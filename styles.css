@@ -1,0 +1,31 @@
+/* Quarto's default layout places the main content in a centered column.
+  This CSS utilizes absolute positioning relative to the main text body 
+  to pull the page numbers out of the standard flow and into the left margin.
+*/
+
+body {
+  position: relative;
+}
+
+.page-number {
+  position: absolute;
+  /* Push the element outside the left boundary of the main text body */
+  left: -6rem; 
+  width: 5rem;
+  text-align: right;
+  color: #6c757d;
+  font-size: 0.85em;
+  font-weight: normal;
+  /* Prevent the page numbers from overlapping text on very small mobile screens */
+}
+
+@media (max-width: 768px) {
+  .page-number {
+    position: static;
+    display: block;
+    text-align: left;
+    margin-top: 1rem;
+    margin-bottom: 1rem;
+    color: #000;
+  }
+}
