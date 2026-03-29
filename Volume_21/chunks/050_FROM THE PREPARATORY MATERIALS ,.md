@@ -1,0 +1,3188 @@
+---
+Volume: 21
+Document_Title: "FROM THE PREPARATORY MATERIALS ,"
+Page_Range: "222-350"
+---
+
+# FROM THE PREPARATORY MATERIALS ,
+
+
+
+**[p. 189]**
+
+Karl Marx
+
+[NOTES FOR AN UNDELIVERED SPEECH ON IRELAND]213
+
+I. EXORDIUM. THE EXECUTION
+
+Since our last meeting3 the object of our discussion, Fenianism, has entered a new phase. It has been baptised in blood by the English Government. The Political Executions at Manchester remind us of the fate of John Brown at Harpers Ferry.b They open a new period in the struggle between Ireland and England. The whole Parliament and liberal press responsible. Gladstone.
+
+Reason: to keep up the hypocrisy that this was no political, but a common criminal affair. The effect produced upon Europe quite the contrary. They seem anxious to keep up the Act of the Long Parliament.214 English [have] a divine right to fight the Irish on their native soil, but every Irish fighting against the British Government in England is to be treated as an outlaw. Suspension of the Habeas Corpus Act.215 State of siege. Facts from The Chronicle. Governmental organisation of "Assassination and Violence".216 Case of Bonaparte.217
+
+II. THE QUESTION
+
+[^1]: What is Fenianism?c
+
+[^2]: a The meeting of the General Council of the International held on November 19, 1867.— Ed.
+
+[^3]: b Here the following passage is crossed out in the manuscript: "But the slaveholders have at least treated John Brown as a rebel, not as a common felon." — Ed.
+
+[^4]: ' See this volume, p. 194.— Ed.
+
+
+
+
+
+**[p. 190]**
+
+n K.ck F.Asi-: o r POITI.A I ION
+
+1846
+
+1841: 8,222,664'
+
+1866: 5,571,971
+
+2,650,693
+
+1855: ' 6,604.665] in 1! years 1,032,69 4 1866: 5,571,971 r
+
+1,0:32,694 Population not only decreased, but the number of the deaf- mutes, the blind, the decrepit, the lunatic, and idiotic increased relatively to the numbers of the population.
+
+INCRFASF OF UVF.-STOCK FROM IS.V, l O 1 .Si'Wi
+
+In the same period from 1855 to 1866 [the] number of the live-stock increased as follows: cattle by 178,532, sheep by 667,675, pigs by 315,918. If we take into account the simultaneous decrease of horses by 20,656, and equalise 8 sheep to 1 horse total increase of live-stock: 996,877, about one million.
+
+Thus 1,032,694 Irishmen have been displaced by about one million cattle, pigs, and sheep. What has become of them? 'The emigration list answers.
+
+From 1st May 1851 to 31 December 1866: 1,730,189. Character of that emigration.
+
+The process has been brought about and is still functioning upon an always enlarging scale by the throwing together or consolidation of farms (eviction) and bv the simultaneous conversion of tillage into pasture.
+
+From 1851-1861 [the] total number of farms decreased by 120,000, while simultaneously the number of farms of 15-30 acres increased by 61,000, that of 30 acres by 109,000 (together 170,000). The decrease was almost exclusively owed to the extinction of farms from less than one to less than 15 acres. Lord Dufferin." 'The increase means only that amongst the decreased number of farms there is a larger portion of farms of large dimension.
+
+in 25 Jahren ;' 1801: 5,319,867 2,650,693
+
+[^1]: FMK,RA n O \
+
+[^2]: ••- Years.— Ed. h See this volume, p. 4?!S. - Ed.
+
+
+
+
+
+**[p. 191]**
+
+a) The People. T h e situation of the mass of the people has deteriorated, and their state is verging to a crisis similar to that of 1846.a T h e relative surplus population now as great as before the famine.
+
+Wages have not risen more than 20% since the potato famine. T h e price of potatoes has risen nearly 200%; the necessary means of life on an average by 100%. Professor Cliffe Leslie, in the London Economist dated February 9, 1867, says:
+
+"Aftet a loss of -/;, of the population in 21 years, throughout most of the island, the rate of wages is now onlv Is. a day: a shilling does not go further than 6d. did 21 years ago. Owing to this rise in his ordinary food the labourer is worse off than he was 10 years ago."
+
+b) The Land. \) Decrease of land under crops.
+
+Decrease in cereal crops: Decrease in green crops:
+
+1861-1866: 470,917 acres 1861-1S66: 128,061 acres
+
+2) Decrease per Statute Acre oj every crop. T h e r e has been decrease of yield in wheat, but greater 1847 to 1865 per cent: the exact decrease: oats 16.3, flax 47.9. tut nips 36.1, potatoes 50%. Some years would show a greater decrease, but on the whole it has been gradual since 1847.b
+
+So result: Gradual expulsion of the natives, gradual deteriora- tion and exhaustion of the source of national life, the soil.
+
+[^1]: Since the exodus, the land has been underfed and overworked, partly from the injudicious consolidation of farms, and, partly, because, under the corn-acre system,"18 the farmer in a great measure trusted to his labourers to manure the land for him. Rents and profits may increase, although the profit of the soil decreases. The total produce may diminish, but that part of it, winch is converted into surplus produce, falling to landlord and greater fanners, instead of to the labourer. And the price of the surplus produce has ; isen.
+
+[^2]: a See Ulis volume, p. 205.— F.d. u M.ux used the data of this paragraph in his "Outline of a Report on the Irish Question" csce this volume, p. 204).- Ed.
+
+[^3]: 1 Marx used this passage in his "Outline of a Report on the Irish Question" (see this volume, p. 204).••---Ed.
+
+
+
+
+
+**[p. 192]**
+
+PROCESS OF CONSOLIDATION
+
+This process has only begun; it is going on in rapid strides. The consolidation has first attacked the farms of under one to under 15 acres. It will be far from having reached the English point of consolidation, if all farms under 100 acres have disappeared. Now the state was this in 1864:
+
+The total area of Ireland, including bogs and waste land: 20,319,924 acres. Of those 3/5 = 12,092,117 acres, still form farms from under 1 to under 100 acres, and are in the hands of 569,844 farmers; 2/5 = 8,227,807, form farms from 100 till over 500 acres, and are in the hands of 31,927 persons. Thus to be cleared off 2,847,220, if we number only the farmers and their families.
+
+This system [is a] natural offspring of the famine of 1846, accelerated by the abolition of corn-laws,219 and the rise in the price of meat and wool, now systematic.
+
+Clearing of the Estate of Ireland,- transforming it in an English agricultural district, minus its resident lords and their retainers, separated from England by a broad water ditch.
+
+State only tool of the landlords. Eviction, also employed as means of political punishment. (Lord Abercorn. England. Gaels in the Highlands of Scotland.220) Former English policy: displacing the Irish by English (Elizabeth), roundheads221 (Cromwell). Since Anne 18th-century politico-economic character only in the protec- tionist measures of England against her own Irish colony; within that colony making religion a proprietary title. After the Union2'2
+
+[the] system of rack-renting and middlemen, but left the Irish, however ground to the dust, holder of their native soil. Present system, quiet business-like extinction, and government only instrument of landlords (and usurers).
+
+From this altered state:
+
+1st) Distinguishing character of Fenianism: Socialist, lower-class movement.
+
+2) Not Catholic movement. Priests leaders as long as Catholic Emancipation223 and their leader, Daniel O'Connell, remained leader of the Irish movement.
+
+[^1]: CHANGE OF CHARACTER OF THE ENGLISH RULE IN IRELAND
+
+
+
+
+
+**[p. 193]**
+
+3) No representative leader in the British Parliament. Character of O'Connell's physical force movement.224 Extinction of Irish party in Parliament.
+
+4) Nationality. Influence of European movement, and English phraseology.
+
+5) America, Ireland, England—three fields of action, leadership of America.
+
+6) Republican, because America republic.
+
+I have now given the characteristics of Fenianism.
+
+IV. THE ENGLISH PEOPLE
+
+A cause of humanity and right, but above all a specific English question.
+
+a) Aristocracy and Church and Army. (France, Algiers.225) b) Irish in England. Influence on wages, etc. Lowering the character of the English and Irish. The Irish Character. Chastity of Irishmen. Attempts at education in Ireland. Diminution of crimes.
+
+Convicted in Ireland
+
+1852 17,678 10,454 7866 4,326 2,418 The decrease in the numbers of persons committed for trial in England and Wales, since 1855, is partly due to the Criminal Justice Act of 1855, authorising Justices to pass sentences for short periods with the consent of the prisoners, instead of committing for trial to the sessions.
+
+Birmingham. Progress of the English people. Infamy of the English press.
+
+c) The Foreign Policy. Poland, etc. Castlereagh. Palmerston.226
+
+V. THE REMEDY
+
+Repeal as one of the articles of the English Democratic Party.
+
+[^1]: Committed for trial: Convicted:
+
+[^2]: Foolishness of the minor parliamentary propositions. Error of the Reform League.227
+
+[^3]: First published in Marx and Engels, Works, Second Russian Edition, Vol. 16, Moscow, 1960
+
+[^4]: Reproduced from the manuscript
+
+
+
+
+
+**[p. 194]**
+
+Karl Marx
+
+[OUTLINE OF A REPORT ON THE IRISH QUESTION DELIVERED TO THE GERMAN WORKERS'
+
+EDUCATIONAL SOCIETY IN LONDON ON DECEMBER 16, 1867]228
+
+I
+
+What distinguishes Fenianism? Actually, it originates from the Irish Americans, Irishmen [living] in America. They are the initiators and LEADERS. But in Ireland itself the movement took root (and is still really rooted) only in the mass of the people, the LOWER ORDERS. That is what characterises it. In all earlier Irish movements the people only followed the aristocracy or MIDDLE-CLASS MEN, and always the Catholic churchmen. The Anglo-Irish chiefs and the priests during the rising against Cromwell; even James II, King of England, was at the head in the war against William III; the Protestant Republicans of Ulster (Wolfe Tone, Lord Fitzgerald) in the 1798 revolution,229 and, finally, in this century the BOURGEOIS O'Connell supported by the Catholic clergy, who also played a leading role in al Learlier movements excepting 1798. The Catholic clergy decreed a ban on Fenianism, which it did not lift until it realised that its attitude would deprive it of all influence on the Irish masses.
+
+II
+
+Here is what baffles the English: they find the present regime mild compared with England's former oppression of Ireland. So why this most determined and irreconcilable form of opposition now? What I want to show—and what even those Englishmen who side with the Irish and concede them the right to secession from England do not see—is that the [oppression] since 1846, though less barbarian in form, has been in effect destructive, leaving no alternative but Ireland's voluntary emancipation by England or life-and-death struggle.
+
+
+
+**[p. III]**
+
+Concerning past history the FACTS are available in any history book. Hence, I shall give only a few, firstly, to clarify the difference between the present epoch and the past and, secondly, to bring out a few points about the character of those who are now called the Irish people.
+
+A) THE ENGLISH IN IRELAND BEFORE THE PROTESTANT REFORMATION
+
+1172. Henry II. Conquered less than 1/3 of Ireland. NOMINAL CONQUEST. A gift from Pope Adrian IV (Englishman). Some 400 years later another Pope (under Elizabeth) (1576), Gregory XIII, took back the present from the English (Elizabeth).230 T h e "ENGLISH PALE".231 CAPITAL: Dublin. Mixing of English COMMON COLONISTS with Irish, and of ANGLO N o r m a n nobles with Irish chiefs. Otherwise, the war of conquest was conducted (originally) as against RED INDIANS. N O English reinforcements sent to Ireland until 1565 (Elizabeth).
+
+Elizabeth. T h e plan was to exterminate the Irish at least u p to the RIVER Shannon, t o take their LAND and settle English colonists in their place, etc. In battles against Elizabeth the still Catholic Anglo-Irish fought with the NATIVES against the English. T h e avowed plan of the English. * Clearing the island of the natives, and stocking it with loyal Englishmen. They succeeded only to plant a landowning aristocracy. English Protestant "adventurers"232 (mer- chants, usurers), who obtained from the English crown the confiscated lands, and "gentlemen undertakers", who were to plant the ceded estates with native English families.
+
+governed only the Pale. Persecution of Catholics.
+
+* Elizabeth settled Munster, James I, Ulster, but Leinster and Connaught have not yet been purged. Charles I tried to purge Connaught.
+
+[^1]: B)* PROTESTANT EPOCH.* ELIZABETH. JAMES I. CHARLES I. CROMWELL. COLONISATION PLAN (16TH AND 17TH CENTURIES)
+
+[^2]: James I. Ulster. (Jacobite plantation, 1609-12.) British undertak- ers, "to stock the confiscated, stolen lands with Irish". *Not until 1613 are IRISH considered ENGLISH subjects; previously they were looked u p o n as "OUTLAWS- and ENFMIES- and the IRISH PARLIAMENT ~33
+
+
+
+
+
+**[p. 196]**
+
+Irish Revolution of 1641. August 1649 Cromwell landing in Dublin. (Followed by Ireton, Lambert, Fleetwood, Henry Crom- well.) In 1652 the 2nd complete conquest of Ireland completed. Division of spoils: the Government itself, the "adventurers" who had lent £360,000 for the 11 years of war, the officers and soldiers, by the Acts of the English Parliament, 12 August 1652, and 26 September 1653.'M Smite the Amalekites235 of the Irish Nation hip and thigh, and replant the re-devastated [land] with new colonies of brand-new Puritan English.* — Bloodshed, devastation, depopula- tion of entire counties, removal of their inhabitants to other regions, sale of many Irish into slavery in the West Indies.
+
+By engaging in the conquest of Ireland, Cromwell put paid to the English Republic.
+
+Thence the Irish mistrust of the English people's party.
+
+*C) RESTORATION OF THE STUARTS. WILLIAM III. SECOND IRISH REVOLT, AND THE CAPITULATION ON TERMS.23''
+
+1660—1692"*
+
+The BRITISH were then more numerous in Ireland than at any other time. * Never higher than 3/11, never lower than 2/11 of the Irish population.
+
+1684. Charles II begins to favour the Catholic interest of Ireland, and to enlist a Catholic army.
+
+1685. James II gives full rein to the Catholics of Ireland. Catholic army increased and favoured. The Catholics soon began to declare that the Acts of Settlement must be repealed and the proprietors of 1641 re-established. James calls some Irish regi- ments to England.
+
+1689. William III in England, 12 March 1689: James landed at Kinsale at the head of Irish soldiers. Limerick capitulates to William III, 1691. Shameful violation of the treaty, already under William III, still more under Anne.
+
+a) All notions of "planting" the country with English and Scotch yeomen or tenant farmers were discarded.* Settling German and
+
+[^1]: D) IRELAND DEFRAUDED AND HUMBLED TO THE DUST. 1692-JULY 4, 1776
+
+[^2]: In the manuscript there follows "(1701) (Anne)".— Ed.
+
+
+
+
+
+**[p. 197]**
+
+* 1698. The Anglo-Irish Parliament (like obedient colonists) passed, on the command of the mother country, a prohibitory tax on Irish woollen goods export to foreign countries.
+
+1698. In the same year, the English Parliament laid a heavy tax on the import of the home manufactures in England and Wales, and absolutely prohibited their export to other countries. She struck down the manufactures of Ireland, depopulated her cities, and threw the people back upon the land.
+
+The Williamite (imported lords) absentees.237 Cry against absentee landlords since 1692.
+
+Likewise legislation of England against Irish cattle.
+
+1698: Molyneux pamphlet for the independence of the Irish Parliament (i.e. the English Colony in Ireland) against the English.3
+
+Thus began the struggle of the English Colony in Ireland and the English Nation. Simultaneously, struggle between the Anglo-Irish Colony and the Irish Nation. William III resisted the shameful attempts of the English and Anglo-Irish Parliaments to violate the treaties of Limerick and Galway.
+
+ß) Queen Anne. (1701-13; George until 1776). Penal Code239, built up by the Anglo-Irish Parliament with assent of the English Parliament. Most infamous means to make Protestant Proselytes amongst the Irish Catholics by regulations of "Property". A code for the transfer of "Property" from Catholics to Protestants, or to make "Anglicanism" a proprietary title. (Education. Personal disabilities.) (No Catholic able to be a private soldier.) To teach the Catholic religion was a transportable felony, to convert a Protestant to Catholicism an act of treason. To be a Catholic Archbishop—banishment, if returning from banishment—act of high treason; hanged, disembowelled alive, and afterwards quar- tered. Experiment to coerce the mass of the Irish nation into the Anglican religion. Catholics deprived of vote for members of Parlia- ment239
+
+This Penal Code intensified the hold of the Catholic Priesthood upon the Irish people.
+
+The poor people fell into habits of indolence. During the palmy days of Protestant ascendancy and Catholic degradation, the Protestants did not encroach upon the Catholics in numbers*
+
+[^1]: a W. Molyneux, The Case of Ireland's Being Bound by Acts of Parliament in England Stated, Dublin, 1698.— Ed.
+
+
+
+
+
+**[p. 198]**
+
+a) Before dealing with this transition period, what was the result of English terrorism?
+
+* English incomers absorbed into the Irish people and Catholicised. The towns founded by the English Irish. No English colony (except Ulster Scotch) but English landowners. The North American Revolution forms the first turning-point in Irish history.
+
+ß) 1777 the British army surrendered at Saratoga Springs to the American "rebels". British cabinet forced to make concessions to the Nationalist (English) party in Ireland. 1778. Roman Catholic Relief Billa (passed by the Anglo-Irish Parliament).240 (Catholics were still excluded from acquiring by purchase, or as tenants, any freeholds241 interest.) 1779. Free trade with Great Britain. Almost all restraints put upon Irish industry swept away.
+
+1782. T h e Penal Code still further released. T h e Roman Catholics allowed to acquire freehold property for life, or in fee simple, a n d — t o open schools.
+
+1783. Equal rights of the Anglo-Irish Parliament!" Winter 1792-93. After the French Government had annexed Belgium, and England resolved upon French war, another portion of the Penal Code was released. Irish could become Colonels in Army, elective franchise for Irish Parliament etc. Rebellion of 1798.c Belfast Republicans (Wolfe Tone, Lord Fitzgerald). Irish peasants not ripe.
+
+[^1]: Anglo-Irish House of Commons voted for the Act of Union passed in 1800.242 By the Legislature and Customs Union of Britain and Ireland closed the struggle between the Anglo-Irish and the English. T h e colony protested against the illegal Act of Union.*
+
+[^2]: 1801-1846
+
+[^3]: a) 1801-1831. At this time (after the end of the war243) a movement for emancipation of Catholics under way among Irish and English (1829).
+
+[^4]: a The Bill for Relieving His Majesty's Roman Catholic Subjects from Certain Pains and Penalties Imposed on Them by an Act of King William.— Ed.
+
+[^5]: b An Act for Removing and Preventing All Doubts Which Have Arisen, of Might Arise, Concerning the Exclusive Rights (The Renunciation Act, 1783).—Ed.
+
+[^6]: c See this volume, p. 194.— Ed.
+
+
+
+
+
+**[p. 199]**
+
+Dublin
+
+Master woollen manufacturers 1800 Hands employed Master woolcombers Hands employed Carpet manufacturers Hands employed Silk-loom weavers at work
+
+91 1840 12 4,918 " 602 30 1834 5 230 " 66 13 1841 1 720 " 0 2,500 1840 250
+
+Kilkenny
+
+Blanket manufacturers 1800 Hands employed
+
+56 3,000
+
+1822 42 925
+
+Balbriggan
+
+Calico-looms at work 1799 2,500 1841 226
+
+[^1]: Wicklow
+
+[^2]: Handlooms at work 1800 1,000 1841
+
+[^3]: Cork
+
+[^4]: Braid weavers , 1800 1,000 Worsted weavers " 2,000 Hosiers " 300 Woolcombers " 700 Cottonweavers " 2,000
+
+[^5]: 1834 40 90 28 110 220
+
+[^6]: etc. The linen industry (Ulster) did not compensate for this.a
+
+[^7]: " T h e cotton manufacture of Dublin, which employed 14,000 operatives, has been destroyed; the 3,400 silk looms have been destroyed; the s e r g e b manufacture, which employed 1,491 operatives, has been destroyed; the flannel manufacture of R a t h d r u m , ihe blanket manufacture of Kilkenny, the camlet' trade of Bandon, the worsted manufactures of Waterford, the ratteen and frieze manufactures of Carrick-on-Suir have been destroyed. O n e business alone survives! T h a t fortunate business — which the Union Act has not struck down — that favoured, and
+
+[^8]: a This sentence is in German in the manuscript.— Ed, h Marx gives the G e r m a n equivalent Sersche in brackets.— Ed. ' Marx gives the German equivalent Camelot in brackets.— Ed.
+
+
+
+
+
+**[p. 200]**
+
+Every time Ireland was about to develop industrially, she was CRUSHED and reconverted into a purely AGRICULTURAL LAND. After the latest General Census of 1861: * Agricultural Population of Ireland
+
+(including all cottiers244 and farm labourers with their families)* 4,286,019 In the 798 TOWNS (of which many were in fact small market towns) 1,512,948
+
+5,798,967
+
+Therefore (1861) approximately 4/5 purely agricultural, and actually perhaps 6/7 if market towns are also counted.
+
+Ireland is therefore purely * agricultural: "Land is life" (Justice Blackburne). Land became the great object of pursuit. The people had now before them the choice between the occupation of land, at any rent, or starvation. System of rack-renting.
+
+"The lord of the land was thus enabled to dictate his own terms, and therefore it has been that we have heard of the payment of £5, 6, 8, and even as much as £10 per acre. Enormous rents, low wages, farms of an enormous extent, let by rapacious and indolent proprietors to monopolising landjobbers, to be relet by intermediate oppressors, for five times their value, among the wretched starvers on potatoes and water."
+
+State of popular starvation.*
+
+Corn Laws in England245 create a monopoly to A CERTAIN EXTENT for the export of IRISH CORN to England. * The average export of grain in the first 3 years following the passage of the Act of Union about 300,000 qrs,
+
+1820 over 1 million qrs, 1834 yearly average of 2V2 million qrs. Amount to pay rent to absentees, and interest to mortgagees (1834), over 30 million dollars (about 7 million pounds sterling). Middlemen accumulated fortunes that they would not invest in the improve- ment of land, and could not, under the system which prostrated manufactures, invest in machinery etc. All their accumulations were sent therefore to England for investment. An official document published by the British Government shows that the transfers of British securities from England to Ireland, i.e., the investment of Irish capital in England, in the 13 years following the adoption of free trade in 1821, amounted to as many millions of pounds sterling, and thus was Ireland forced to contribute
+
+Many pigs and export of same.
+
+1831-1841. Accretion of Ireland's population from 7,767,401 to 8,175,238
+
+In 10 YEARS 407,837 In the same period there emigrated (somewhat more than 40,000 per YEAR) 450,873 The total being 858,710 * O'Connell. Repeal Movement, Lichfield-House Contract with Whigs.246 Partial famines. Insurrection Acts, Arms Acts, Coercion
+
+Acts.**
+
+IV
+
+THE PERIOD OF THE LAST 20 YEARS (FROM 1846). * CLEARING OF THE ESTATE OF IRELAND*
+
+Earlier, REPEATED CASES OF PARTIAL FAMINE. NOW GENERAL. This new period was ushered in by the potato blight (1846-47), starvation and the consequent exodus.
+
+Over one million die, in part directly from hunger, in part from DISEASES, etc. (caused by hunger). In 9 years, 1847-55, 1,656,044 left the country.
+
+The revolution of the old agricultural system was, originally, but a natural result of the barren fields. People fled. * (Families clubbed together to send away the youngest and most enterprising.) * Hence, of course, the pooling of small leaseholds and substitution of pasturage for crop farming.
+
+However, soon circumstances arose whereby this became a conscious and deliberate system.
+
+Firstly, the chief factor: Repeal of the Corn Laws was one of the direct consequences of the Irish disaster. As a result, Irish corn lost its monopoly on the English market in the ordinary years. Corn prices dropped. Rents could no longer be paid. In the meantime, the price of meat, wool and other animal products has been rising steadily in the last 20 years. Tremendous growth of the wool industry in England. Pig-raising was partly connected with
+
+[^1]: a In an earlier passage in his manuscript, after the words "if market towns are also counted" (this section, pp. 199-200), Marx outlines this paragraph thus: "b) 1831-1847. O'Connel", after which the following words are crossed out: "REPEAL MOVEMENT. Lichfield-House Contract with Whigs. (Useless buildings etc.) Not to be forgotten that during the entire period successive INSURRECTION ACTS, ARMS ACTS, COERCION ACTS".— Ed.
+
+
+
+Contributing circumstances that made this systematic:
+
+Secondly: Reorganisation of agriculture in England. Caricature of same in Ireland.
+
+Thirdly: The despairing flight of starving Irish to England filled basements, hovels, WORKHOUSES in Liverpool, Manchester, Birming- ham, Glasgow with *men, women, children in a state almost of starvation *.
+
+Act of Parliament passed (1847-48) that Irish * landlords had to support their own paupers *. (The English Pauper Law is extended to Ireland.3) Hence, the Irish (especially English) landlords, mostly deep in debt, try *to get rid of the people and clear their estates*.
+
+Fourthly: * Encumbered Estates Act (1853?)b:
+
+"The landlord was ruined, for he could collect no rents, and he was at the same time liable for the payment of enormous taxes for the maintenance of his poor neighbours. His land was encumbered with mortgages and settlements, created when food was high, and he could pay no interest; and now a law was passed, by aid of which property could be summarily disposed of at a public sale, and the proceeds distributed among those who had legal claims upon it."*
+
+ABSENTEE PROPRIETORS (English capitalists, INSURANCE SOCIETIES etc.) thereby multiplied, equally former MIDDLEMEN etc., who wanted to run their farms on modern economic lines.
+
+Eviction of farmers partly by friendly agreement terminating tenure. - But much more EVICTION on a large scale (forcibly by CROWBAR BRIGADE, beginning with the destruction of roofs), forcible EJECTION. (Also used as political retribution.) This has continued since 1847 to this day. (Abercorn, Viceroy of Ireland.) African razzias * (razzias of the little African kings). (People driven from the land. The starving population of the towns largely increased.)
+
+Let us now see how this system affected the land in Ireland, where conditions are quite different from those in England.
+
+[^1]: "The tenantry are turned out of the cottages by scores at a time Land agents direct the operation. The work is done by a large force of police and soldiery. Under the protection of the latter, the 'crowbar brigade' advances to the devoted township, takes possession of the houses The sun that rose on a village sets on a desert." (Galway Paper, 1852.) (Abercorn.)*
+
+[^2]: a An Act to Amend an Act of the Tenth Year of Her Present Majesty, for Amending the Laws Relating to the Removal of the Poor.— Ed.
+
+[^3]: b An Act for Continuing and Amending the Act for Facilitating the Sale and Transfer of Encumbered Estates in Ireland.— Ed.
+
+
+
+
+
+**[p. 1866]**
+
+* Decrease in cereal crops Decrease in green crops*
+
+1861-65 428,041 acres 107,984 acres 42,876 acres 20,077 acres
+
+Total 470,917 128,061
+
+DECREASE OF * YIELD PER STATUTE ACRE OF EVERY CROP 3
+
+1847-1865 per cent: the exact decrease: oats 16.3, flax 47.9, turnips 36.1, potatoes 50. Some years would show a greater decrease, but on the whole it has been gradual since 1847.
+
+Estimated Average Produce per Statute Acre
+
+Wheat Potatoes Flax cwts tons stones (14 lbs.)
+
+1851 12.5 5.1 38.6 7866 11.3 2.9 24.9*
+
+Though Ireland exported considerable quantities of wheat in the past, it is now said to be good only for cultivating OATS'3 (the yield of which per acre also continuously decreases).
+
+In fact: 1866 Ireland shipped out only 13,250 qrs of wheat against 48,589 qrs shipped in (that is, almost fourfold). Meanwhile, it shipped out approximately one million qrs of oats (for £1,201,737).
+
+* Since the exodus, the land has been underfed and overworked, partly from the injudicious consolidation of farms, and partly because, under the corn-acre system,247 the farmer in a great measure trusted to his labourers to manure the land for him. Rents and profits (where the farmer is no peasant farmer) may increase, although the produce of the soil decreases. The total produce may diminish, and still greater part of it be converted into surplus produce, falling to the landlord and (great) farmer. And the price of the surplus produce has risen.*
+
+Hence, sterilisation (gradual) of the land, as in Sicily by the ancient Romans (ditto in Egypt).
+
+We shall speak of the livestock, but first about the population.
+
+[^1]: a See this volume, p. 191.— Ed. b This English word is given in the manuscript in brackets after the German equivalent Hafer.— Ed.
+
+
+
+1801: 5,319,867; 1841: 8,222,664; 1851: 6,515,794; 1861: 5,764,543. If the trend continues, there will be 5,300,000 "in 1871, that is, less than in 1801. I shall now show, however, that the population will be lower still in 1871, even though the emigration rate remains constant.
+
+EMIGRATION
+
+Emigration ACCOUNTS naturally for part of the decrease. In 1845-66 there emigrated 1,990,244, or approximately 2,000,000 IRISH. (Unheard of.) (About 2/5 of the TOTAL emigration from the UNITED KINGDOM in 1845-66 which was 4,657,588.) In 1831-41 emigration approximately equalled half the accretion of population during the decade, and after 1847 it was considerably higher than the accretion.
+
+However, emigration alone *does not account for the decrease of the population since 1847*.
+
+The accretion (annual) in 1831-41 was 1.1 per cent, or ABOUT 1 Vio P e r c e n t a year. If the population had increased in the same proportion in 1841-51, it would have been 9,074,514 in 1851. In fact, however, it was only 6,515,794. Consequently, the deficit was 2,558,720. Out of this figure, emigration accounted for 1,274,213. That leaves 1,284,507 unaccounted for. Over a million, but not the whole deficit of 1,284,507, died in the FAMINE. Hence, evidently, natural population growth decreased in 1841-51.
+
+This is borne out by the decade of 1851-61. No FAMINE. The population decreased from 6,515,794 to 5,764,543. Absolute decrease: 751,251. Yet emigration in this period was over 1,210,000. Henoe there was an accretion of NEARLY 460,000 during the ten years. Because 751,251+460,000 = the number of emigrants= 1,211,251. Emigration claimed almost triple the accre- tion. The rate of accretion was 0.7 per cent per year, hence considerably lower than the 1.1 per cent of 1831-41.
+
+The explanation is very simple. * The increase of a population by births must principally depend on the proportion which those between 20 and 35 bear to the rest of the community. Now the
+
+[^1]: DECREASE OF THE NATURAL ANNUAL ACCRETION OF THE POPULATION
+
+
+
+PHYSICAL DETERIORATION OF THE POPULATION
+
+* In 1806, with a total population of 5,574,107, there was an excess of males over females by 50,469, whilst in 1867, with a total population of 5,557,196, there is an excess of the females over males.* At the same time not only a relative, but an absolute increase in the number *of deaf-mutes,3 blind, insane, idiotic, and decrepit inhabitants. Contrasting 1851 with 1861, whilst the population had decreased enormously, the number of deaf-mutes had increased by 473, on their former total of 5,180; the lame and decrepit by 225, on their former total of 4,375; the blind by 1,092, on their former total of 5,767; the lunatic and idiotic, by the immense number of 4,118, on their former total of 9,980; mounting up, in 1861, notwithstanding the decrease in the population, to 14,098.
+
+Wages have not risen more than 20% since the potato famine. The price of potatoes has risen nearly 200%, and the rise* for essential foodstuffs has been 100% *on an average.
+
+Professor Cliffe Leslie, i-n the Economist of February 9, 1867, says:
+
+Partial famines, especially in Munster and Connaught.* Bankruptcy of SHOPKEEPERS PERMANENT. Market towns, etc., fall into decay.
+
+In 1855-66, 1,032,694 Irishmen replaced by 996,859 head of LIVESTOCK (cattle, sheep and pigs). That, in fact, was the accretion of
+
+[^1]: WAGES
+
+[^2]: "After a loss of two-fifths of the population in 21 years, throughout most of the island, the rate of wages is now only Is. a day; a shilling does not go further than 6d. did 21 years ago. Owing to this rise in the ordinary food the labourer is worse off than he was ten years ago."
+
+[^3]: THE RESULTS OE THIS PROCESS
+
+[^4]: ;l After this English word Marx gives its German equivalent in brackets.— Ed.
+
+
+
+
+
+**[p. 206]**
+
+* c o \ s o i m vi ION oi i• \KMS*
+
+From 1851 to 1861 the TOTAL DECREASE of EARMS was 120,000. (Though the number of 15-30 acre RKMS and EAKMS of .'50 acres and over increased.) Thus, the decrease affected particularly farms of one to under 15 acres.
+
+In 1861 about 3/-, of the area (Ireland's total area: 20,3-19,924 acres) or 12 million acres was held by 569,844 tenants who worked plots of one up to less than 100 acres, arid about L7:> (8 million acres) by tenants with over 100 and 500 acres and over (31,927 tenants).
+
+T h e process of consolidation in full gear. Ulster. (Cultivation of flax; Scottish Protestant tenants.)
+
+The Times etc. officially congratulates Abercorn as Vicerouy on this system. He, too, is one of these DEVASTATORS. Lord Dufferin: over-population etc.'1
+
+In sum, it is a question of life and death. Meagher, Hennessy, Irishman.
+
+[^1]: DECREASE Ol '.RIME IN 1RE1AND
+
+[^2]: Committed (Convicted for trial
+
+[^3]: 1852 17,078 10,454 1866 4,32b' 2,4 US
+
+[^4]: V UNITED STATES AND FENIANISM
+
+[^5]: Writ ten on about December Hi, 181)7
+
+[^6]: First published in: Marx and Engels, Works, Second Russian Edition, Vol. lb. Moscow, 1960
+
+[^7]: Printed according to the manu- script
+
+[^8]: See this volume, pp. 428, 43.5.— F.d.
+
+
+
+
+
+**[p. 207]**
+
+Karl Marx
+
+[REMARKS ON THE PROGRAMME AND RULES
+
+OF THE INTERNATIONAL ALLIANCE
+
+OF SOCIALIST DEMOCRACY]248
+
+[PROGRAMME AND RULES OF THE ALLIANCE]3 [MARX'S REMARKS]
+
+The socialist minority of the League of Peace and Freedom, having separated itself from the League as a result of the majority vote at the Berne Congress, the majority being formally opposed to the fundamental principle of all workers' associations—that of economic and social equalisation of classes and individuals—has thereby adhered to the principles proclaimed by the workers' con- gresses held in Geneva, Lausanne and Brussels. Several members of this minority, belonging to various nations, have suggested that we should form a new International Alliance of Socialist Democracy, merged entirely in the great International Working Men's Association, but having a special mission to study political and philosophical questions on the basis of the grand principle of the universal and genuine equality of all human beings on earth.
+
+equality of classes!
+
+merged in and established against!
+
+So, the socialist democrats are not understood through the International
+
+[^1]: Convinced, for our part, of the useful- ness of such an enterprise that would provide sincere socialist democratsb of Europe and America with the means of being understood and of affirming their ideas, without any pressure from the false socialism which bourgeois democracy finds necessary to apply these days, we consider it our duty, together with our friends, to take
+
+[^2]: a Programme et Règlement de l'Alliance internationale de la Démocratie Socialiste, Geneva [1868].—Ed.
+
+[^3]: b The words in bold type were underlined by Marx.— Ed.
+
+[^4]: 9-733
+
+
+
+
+
+**[p. 208]**
+
+Therefore, we have constituted ourselves as the central section of the International Alliance of Socialist Democracy, and we publish today its Programme and Rules.
+
+What modesty! They consti- tute themselves as the centr- al authority, clever lads!
+
+PROGRAMME OF THE INTERNATIONAL ALLIANCE OF SOCIALIST DEMOCRACY
+
+1) The Alliance declares itself atheist; it wants abolition of cults, substitution of sci- ence for faith, and human justice for divine justice.
+
+2) It wants above all political, economic and social equalisation of classes and indi- viduals of both sexes, commencing with abolition of the right of inheritance, so that in future enjoyment be equal to each per- son's production, and so that, in conformity with the decision taken at the last workers' congress in Brussels", the land, instruments of labour, like all other capital, on becoming the collective property of the entire society, may be used only by the workers, that is, by agricultural and industrial associations.
+
+As if one could declare—by decree—the abolition of faith! Hermaphrodite man! Just like the Russian commune! The old Saint Simon panacea!
+
+Empty phrase!
+
+If they are reducing them- selves they will not have to dissolve, but will disappear spontaneously.
+
+[^1]: 3) It wants for all children of both sexes, from birth, equal conditions of development, that is, maintenance, education and training at all levels of science, industry and the arts, being convinced that this equality, at first only economic and social, will gradually lead to greater natural equality of individu- als, eliminating all kinds of artificial ine- qualities, historical products of a social or- ganisation as false as it is iniquitous.
+
+[^2]: 4) Being the foe of all despotism, not recognising any political form other than republican, and rejecting completely any reactionary alliance, it also rejects any politi- cal action which does not have as its im- mediate and direct aim the triumph of the workers' cause against Capital.
+
+[^3]: 5) It recognises that all the political and authoritarian states that exist at present and are more and more reducing their activities to simple administrative functions of public service in their respective countries, will have to dissolve into a universal union of free associations, both agricultural and industrial ones.
+
+
+
+7) It wants the universal association of all local associations on the basis of Liberty.
+
+There is rivalry and rivalry, my dear Russian!
+
+RULES
+
+1) The International Alliance of Socialist Democracy constitutes a branch of the Inter- national Working Men's Association and accepts all its general rules.
+
+2) The Founder Members of the Alliance are organising provisionally a Central Bureau at Geneva.
+
+3) Founder Members belonging to the same country constitute the national bureau of their country.
+
+4) The national bureaus shall establish in all regions local groups of the Alliance of Socialist Democracy, which, through their respective national bureaus, shall ask the Central Bureau of the Alliance to admit them into the International Working Men's Associa- tion.
+
+The International Associa- tion does not admit any "international branches". New Central Council!
+
+The Rules of the Interna- tional do not recognise this "mediatory power".
+
+New taxes absorbing our own contributions!
+
+They want to compromise us under our own pat- ronage!
+
+Asinus Asinorum! And Madame Bakunin!
+
+[^1]: 5) All local groups shall form their bureaus according to the customary proce- dure accepted by the local sections of the International Working Men's Association.
+
+[^2]: 6) All members of the Alliance shall pay a monthly contribution of ten centimes, half of which shall be retained for their own needs by each national group, and the other half shall go to the Central Bureau for its general requirements.
+
+[^3]: In countries where this sum is judged to be too high, the national bureaus, in accord with the Central Bureau, shall have the power to reduce it.
+
+[^4]: 7) At the annual Working Men's Con- gress the delegation of the Alliance of Socialist Democracy, as a branch of the International Working Men's Association, shall hold public meetings in a separate building.
+
+[^5]: MEMBERS OF THE GENEVA INITIATORY GROUP
+
+[^6]: J. Philipp Becker.— M. Bakunin.—Th. Rémy.—Antoine Lindegger.— Louis Nideg-
+
+[^7]: 9*
+
+
+
+and they have the cheek to announce in Switzerland that I shall contribute arti- cles to "La Révolution",249
+
+without informing me!
+
+[^1]: The Founder Members of the Internation- al Alliance of Socialist Democracy, having decided to start a paper.under the name La
+
+[^2]: Révolution, tö be the press organ of this new Association, the provisional Central Bureau will begin publication as soon as 300 shares, of 10 francs each and payable in four instalments quarterly, from January 1, 1869, have been subscribed. Accordingly, the provi- sional Central Bureau is appealing to all national bureaus of the Alliance and inviting them to begin subscriptions in their own countries. As these subscriptions are consid- ered voluntary gifts which give no right to receipt of the paper, the national bureaus are also requested to compile a list of sub- scribers.
+
+[^3]: The paper will appear once a week.
+
+[^4]: Jules Johannard Eugene Dupont0
+
+[^5]: a Barteneva.— Ed. b Bartenev.— Ed. c The names Johannard and Dupont are written in Jung's hand.— Ed.
+
+
+
+one year six months On behalf of the Bureau:
+
+6 fr. 3 fr. 50 provisional Central
+
+Secretary, Jean Zagorsky
+
+rue Montbrillant, 8. N. B. The national bureaus are requested to send the Central Bureau the money received for the shares and subscriptions before January 1.
+
+Remarks made by Karl Marx on De- cember 15, 1868
+
+First published, in Russian, in Generalny Sovet Pervogo Internatsionala. 1868-1870, Moscow, 1964
+
+Printed according to the French leaflet containing Marx's remarks
+
+Translated from the French
+
+
+
+**[p. 212]**
+
+Karl Marx
+
+[IRELAND FROM THE AMERICAN REVOLUTION TO THE UNION OF 1801
+
+EXTRACTS AND NOTES]250
+
+I. FROM 1778 TO 1782. INDEPENDENCE
+
+A) IRISH PARLIAMENT BEFORE 1782
+
+Importance of the question for English working class, and working-class movement generally.
+
+Until 1800 Ireland, although conquered, remained separate and federate kingdom. Title of King up to peace of Amiens251 "George III, King of Great Britain, France, and Ireland, defender of the faith etc."
+
+The English usurpations in regard to the Parliament at Dublin principally calculated with view to mercantile monopoly on the one hand, and, on the other, to have the appelate jurisdiction in regard to the titles of landed estates in the last instance to be decided at London, only in English courts.
+
+(It declared in fact the legislative supremacy of the British Parliament over Ireland.)
+
+[^1]: Poynings' Law252
+
+[^2]: A Statute of Henry VII, framed by his Attorney-General, Sir Edward Poynings, restrained the Irish Parliament from originating any law whatever, either in the Lords or Commons. Before any statute could be finally discussed, it was previously submitted to the Lord Lieutenant of Ireland and his Privy Council?5i for their consideration, who might at their pleasure reject it, or transmit it to England. The British Attorney-General and Privy Council were invested with a power either to suppress it altogether, or model it at their own will, and then return it to Ireland, with permission to the Irish Parliament to pass it into law. Already Molyneux etc. protested against this (17th century). Later, in the 18th century, Swift and Dr. Lucas.254
+
+[^3]: Statute 6, George I255
+
+
+
+^
+
+t*U,
+
+[^1]: Page of Marx's manuscript Ireland from the American Revolution to the Union
+
+[^2]: of 1801
+
+
+
+
+
+George I, Statute, to neutralise the Irish legislation altogether, and to establish an appellant jurisdiction to the British Lords, whereby every decree and judgment of the Irish superior courts, which would tend to affect or disturb the questionable or bad titles of the British adventurers or absentees'*56 to Irish estates or Irish property, might be reversed or rendered abortive in Great Britain by a vote of the Scotch and English nobility.
+
+(This was re-enacted by the Union!)
+
+Many British Peers and Commoners, through whose influence this Statute of George I had been enacted, had themselves been deeply interested in effecting that measure, to secure their own grants of Irish estates. Under the 1st clause of this law England assumed a despotic power "and declared her inherent right to bind Ireland by every Statute in which she should be expressly designated".
+
+It was the success of that vicious precedent which had encouraged George III and his British Parliament to attempt to legislate for America. Cost them the North-American colonies.257
+
+General Character of Irish Parliament in the 18th Century Until the Upheaving
+
+Protestant Parliament. Only Protestants electors. In fact the Parliament of the Conquerors. A mere instrument, a mere serf in relation to the British Government. Compensated themselves by despotism against the Catholic mass of the Irish people. Penal Code against Catholics258 rigorously enforced. Only from time to time some efforts of that Parliament to resist the English commercial legislature ruining Irish industry and commerce, then principally carried on by the Protestant, Scotch-English part of the population.
+
+As to the internal composition of this Parliament etc. more will be said by and by.
+
+A new state of things opened with the American War of Independence and the disasters it brought upon England.
+
+
+
+**[p. 216]**
+
+TO LEGISLATIVE INDEPENDENCE
+
+A) RELAXATION OF PENAL CODE AGAINST CATHOLICS
+
+American (United States) Declaration of Independence proclaimed by Congress, 4 July I776.h
+
+April 1777: Congress proclaims the Constitution (American) of American Republic.11
+
+War between England and America. 6 February 1778: Treaties with France, by which independence of American Republic [was] recognised and France promised to support the Americans, until they had got rid of the English.259
+
+Great fermentation produced by the American events in Ireland. Many Irish, mainly Presbyterians from Ulster, emigrate to America, enrol under the United States banners and fight against England on the other side of the Atlantic. The Catholics, who for a long time had in vain supplicated for a relaxation of the Penal Code, moved again in 1776, in louder tones.
+
+1778: Irish Parliament relaxed the severity of the Penal Code, its worst features obliterated, Catholics were allowed to take leases of land.
+
+Curran said afterwards (1792, in debate on Catholic Emancipa- tion):
+
+[^1]: "What was the consequence even of a partial union with your countrymen? The united efforts of the two bodies restored that constitution which had been lost by their separation.[] Your Catholic brethren shared the danger of the conflict, but you had not justice or gratitude to let them share the fruits of the victory. You suffered them to relapse into their former insignificance and depression. And, let me ask you, has it not fared with you according to your deserts? Let me ask you if the Parliament of Ireland can boast of being now less at the feet of the British Minister, than at that period it was of the British Parliament?"
+
+[^2]: "But you affect to think your property in danger, by admitting them into the state.[] Thirteen years ago you expressed the same fears, yet you made the experiment; you opened the door to landed property, and the fact has shown the fear to be without foundation."260 Then Protestant Ascendancy.261 Tithes and property of the Protestant Church in Ireland.
+
+[^3]: a In the manuscript this section is marked II, though the preceding section is marked "A" and the following "C".— Ed.
+
+[^4]: b "Declaration of Independence in Congress, July 4, 1776. The Unanimous Declaration of the Thirteen United States of America".— Ed.
+
+[^5]: c "Articles of Confederation, and Perpetual Union".— Ed.
+
+
+
+B) THE VOLUNTEER ORGANISATION.
+
+THE FREE-TRADE MOVEMENT. FIRST CONCESSIONS OF ENGLAND
+
+On 4 July 1776 the Americans had proclaimed their Declaration of Independence. In the same year the Irish Catholics, as seen, demanded (they had before supplicated for) relaxation of the Penal Code, redress.
+
+In April 1777 Constitution of American Republic proclaimed. In 1778 first redress of the Catholic grievances etc. This enabled the Irish Protestants, till now considered by the English as their gaolers and bailiffs, to move.
+
+To understand the movement from 1779-1782 (Legislative Independence), it becomes necessary briefly to allude to the state in which England found herself.
+
+June 1778 commenced war between England and France.262 In 1780 France sent not only, as she had done till then, money subsidies and men-of-war to America, but also an auxiliary army. (6,000 men under the Marquis of Rochambeau.) The French army landed on 10 July 1780 in Rhode Island, surrendered to him by the English. September 1780 English colonel Ferguson defeated in the West of North Carolina. 19 October 1781, Cornwallis (General) included by Washington in York Town (Virginia) had to capitulate. (5-6,000 men, many English men-of-war etc. were captured.)
+
+27 July 1778 sea-battle between French and English at Quessant. Undecided.
+
+Summer 1779: King of Spain3 accedes as ally to United States and France. His navy united with the French one. The hostile fleets assailed the English coast in June, and only the dissension amongst the French and Spanish Admirals saved Plymouth (August 1779) from the destruction of its wharfs and arsenals.
+
+In 1780 England was not defeated on the sea, but lost much in money and mercantile ships.
+
+[^1]: a Charles III.— Ed
+
+
+
+
+
+**[p. 218]**
+
+On 30 November 1782 at Paris Preliminary Peace Treaty between United States and England.
+
+* * *
+
+1779. Great part of English army and navy consisted of Irishmen. In 1779 Ireland was left ungarrisoned, an invasion of Ireland by France threatened, English coast (Plymouth) menaced by united French and Spanish navy. Under these circumstances the Volunteers—the armed Protestantism of Ireland264—arose, partly for defence from the foreigner, partly for self-vindication. In less time than could have been supposed, from the commence- ment of these armed associations, the whole surface of the island was covered with a self-raised host of patriot soldiers.
+
+* * =t At this place, it will be interesting to anticipate the whole of the history of this Volunteer force, because, in fact, it is the history of Ireland to the moment when, since 1795, on the one hand, the general popular, national and constitutional movement, represented by them, stripped off its merely national character and merged into a truly revolutionary movement, and, on the other hand, the British Government changed secret intrigue for brutal force intended to bring about, and succeeding in bringing about, the Union of 1800, i. e. the annihilation of Ireland as a nation, and its transformation into an out of the way country district of England.
+
+There are 4 periods of the Volunteer movement. J Period. From 1779 to 1783: In its first formation the Volunteers, the armed Protestantism of Ireland, embrace all vital elements of all classes, noblemen, gentlemen, merchants, farmers, labourers. Their first object, emancipation from the commercial and industrial fetters which the mere mercantile jealousy of England had thrown around them. Then National Independence. Then Reform of Parliament and Catholic Emancipation as one of the conditions of National Resurrection! Their official organisation and the disasters of England give them new strength, but lay also
+
+II Period. From 1783 to 1791 (October). Still important as pressure from without upon Irish Parliament, especially House of Commons, and as armed and popular support of the national and reforming Opposition (minority) of the House of Commons. The aristocratic element and reactionary part of the middle-class withdrew, the popular element prevailing.
+
+The French Revolution (1789) finds both Catholic Committee
+
+(principally composed of Catholic noblemen)
+
+and Whig Club™5
+
+(Reformers)
+
+feeble and dispirited.266
+
+From this moment, the movement of the Volunteers merges into that of the United Irishmen. The Catholic question became that of
+
+[^1]: There was a steady decline of the Volunteer organisation, and of the strength of the Liberal Party until 1790.
+
+[^2]: A different race of men from Whig Club orators or Catholic Lords now began to act on the public.
+
+[^3]: In Dublin, John Keogh, a strong, rough-souled, sagacious merchant, and men of his stamp, sent the Catholic nobles flying in slavish dread.
+
+[^4]: And in Belfast, Neilson, Russell, Mc Cracken etc., headed a Protestant Party, which advocated Reform, but began soon to think of Republicanism. The government rendered fearful by the Regency dispute,™'7 and desperate by the French Revolution, began to push corruption and the principles of the Union 3
+
+[^5]: harder than ever.
+
+[^6]: Theobald Wolfe Tone, the son of a man, half coachmaker and half farmer, a poor and briefless barrister, with a wife and a pack of children, resolved to redress the wrongs of the Catholics, restore representation in the Commons, and with these, or failing in them, to make his country an independent republic. Now he wrote a pamphlet in favour of the Catholic emancipation, called: "An Argument on Behalf of the Catholics of Ireland, by a Northern Whig, " and received every mark of gratitude from his new clients.
+
+[^7]: In October, 1791, in Belfast he founded the first United Irish Society.
+
+[^8]: a Probably a slip of the pen; in his "Memoir of John Ph. Curran" prefixed to The Speeches of Curran, Thomas Davis writes (p. XX): "to push corruption and the principles of disunion".— Ed.
+
+
+
+III Period. From 1791 (October) to 1795 (after recall of Lord Fitzwilliam).
+
+The movement of the Volunteers merged into that of the United Irishmen.
+
+Public until 1794, when forced by the government measures to become secret. The United Irishmen increased in numbers, the Catholics in confidence, and the
+
+Volunteer Corps began to restore their array, and improve their discipline.
+
+Acme of their action:
+
+15 February 1793: A Volunteer Convention at Dungannon passed resolutions in favour of Emancipation and Reform, and named a permanent Committee. The Relief Bill of April 1793 was carried by this pressure.268
+
+But now, the Catholic higher classes secede from the movement; pitched against the ci-devanta Volunteers (merging into the Secret Societies of the United Irishmen) the aristocratic and stupidly, bigottedly middle-class yeomen.
+
+The United Irishmen became a secret organisation. Recall of Fitzwilliam only left the decision to force.
+
+IV Period. Volunteer movement merged into the revolutionary movement since 1795.
+
+* * *
+
+We now return to the development of the Volunteer Movement, 1779-83, and the Acts of Irish Parliament under this high popular pression. The Armed Associations, first provincial and local, strongest in the North (Ulster) and Dublin (Leinster). Only Protestants. First against Invasion. Protestant farmers rallied under this cry first. Catholics prohibited by statute from bearing arms in Ireland. However, they zealously assisted in forwarding those very associa-
+
+[^1]: Coercive laws against military societies, drilling, and the whole machinery of the Volunteers passed on // March 1793, and the Alien Act, the Militia, Foreign Correspondence, Gunpowder and Convention Acts?69 in fact, a full code of coercion passed by the same Parliament, that had passed the Catholic Relief Bill.
+
+[^2]: a Former.— Ed
+
+
+
+The first object of the Irish Volunteers—after the defence against invasion—was to free themselves mercantilely and industrially, an interest then almost wholly in the hands of the Protestants, although by its very nature a national interest.
+
+It was observed, that this British assumption of authority to legislate for Ireland, whatever colouring it might have received by the dissimulation or ingenuity of its supporters, had, in fact, for its real object the restraint of her commerce and the suppression of her manufactures, so far as they might interfere with the interests of England; because the management of the merely local concerns of Ireland, by her own Parliament, was altogether immaterial to Great Britain, unless where a commercial rivalship might be the probable consequence of successful industry and legislative encouragement.
+
+Peers [showed] no public spirit; the measures of the Commons might be suppressed by an act of the Privy Council; hence determined co-operation of the whole people necessary.
+
+The moment (the distress of England and the armed force of the Volunteers) was favourable.
+
+England, notwithstanding [the fact that] she had in some instances suspended, and in others prohibited, the exportation of Irish manufactures, inundated the Irish markets with every species of her own; a combination of the great capitalists of England to destroy Irish manufacture by inundation of the Irish market.
+
+Hence the Irish resolved to adopt a non-importation and non- consumption agreement throughout the whole kingdom, by exclud- ing not only the importation, but the consumption of any British manufacture in Ireland. No sooner was this measure publicly proposed, than it was universally adopted; it flew quicker than the wind throughout the whole nation. Meanwhile the Volunteer organisation spread; at length almost every independent Protes- tant enrolled as a patriot soldier. Self-formed, self-governed, no commissions from the Crown, no connexion whatever with the Government, [they] appointed their own officers etc. Yet subordi- nation complete. Their arms at first provided by themselves; but the extraordinary increase of their numbers rendered them at length unable to procure a sufficient- supply by purchase; they required arms from the Government; Government did not think it
+
+
+
+**[p. 222]**
+
+Many men who had served in the United States against the Americans became their drill sergeants. At the head of the corps noblemen etc. Important in this movement the familiar association of all ranks.
+
+Under these circumstances: Sessions of the Irish Parliament 1779-80. After frivolous speech of the Lord Lieutenant (Harcourt?)3 in the House of Lords, and usual adulatory address moved in the Commons by Sir Robert Deane,h Grattan moved the following amendment:
+
+"That we beseech Your Majesty to believe, that it is with the utmost reluctance we are constrained to approach you on the present occasion; but the constant drain to supply absentees, and the unfortunate prohibition of our trade, have caused such calamity, that the natural support of our country has decayed, and our manufacturers are dying for want: famine stalks hand in hand with hopeless wretchedness; and the only means left to support the expiring trade of this miserable part of Your Majesty's dominions, is to open a free export trade, and let your Irish subjects enjoy their natural birthright."0
+
+Mr. Hussey Burgh, the Prime Sergeant (above the Attorney- General) moved the following amendment:
+
+"That it is not by temporary expedients, that this nation is now to be saved from impending ruin.271
+
+Unanimously carried. Volunteers attributed rightly this unexpected success to their movement. It greatly increased both the numbers and confidence in Volunteer associations.
+
+Although even in both Houses of the British Parliament attention [was] called to the Irish distress and the dangerous state of that country, Lord North treated the whole [matter] with his usual superciliousness and frivolity. Nothing was done.
+
+The non-importation and non-consumption movement became now general in Ireland. At length, a general meeting was convened by the High Sheriff of the city of Dublin, and resolutions then entered into by the whole metropolis, which finally confirmed and consummated that judicious measure, and at length convinced
+
+[^1]: a George Nugent-Temple Grenville, the Marquis of Buckingham, was the Lord Lieutenant of Ireland at the time. See his speech at the opening of the session of the Irish Parliament on October 12, 1779, in H. Grattan, The Speeches, Vol. I, pp. 20-22.—Ed
+
+[^2]: b Deane's address to George III on October 12, 1779, see H. Grattan, The Speeches, Vol. I, p. 22.— Ed.
+
+[^3]: c See J. Mitchel, The History of Ireland.., Vol. I, p. 126.— Ed.
+
+
+
+The appointment of the Duke of Leinster to the command of the Dublin Volunteers, was quickly followed by that of other district generals; and the organisation of 4 provincial armies was regularly proceeded on. The Ulster army appointed the Earl of Charlemont its commander-in-chief, the other armies proceeded rapidly in their organisation. Provincial reviews were adopted; and everything assumed the appearance of systematic movement. Soon General Commander-in-Chief [was appointed].
+
+Affairs now approached fast towards a crisis; the freedom of commerce being the subject most familiar to the ideas of the people, was the first object of their solicitude. "A free trade" became the watchword of the Volunteers, and the cry of the Nation; the Dublin Volunteer Artillery appeared on parade, commanded by James Napper Tandy, with labels on the mouths of their cannon: "Free Trade or Speedy Revolution." Lord North got now frightened. America already lost. On 24th November 1781 speech from the throne wherein he [the King] called the immediate attention of his British Parliament to the situation of Ireland. Now in hot haste these blockheads acceded to the Irish claims. The British Parliament met on 25 November, and the first Bills of concessions received the royal assent on 21 December 1781. Now these dunderheads passed Bills, distinctly repealing all the Acts which their predeces- sors had declared absolutely essential to secure the prosperity of England from the dangerous industry of the Irish.
+
+Messages sent over to Ireland, much fuss made of the liberality and justice of Great Britain. Meanwhile North tried to pass over the year 1782, by continuing to open the Committee on Irish affairs from time to time, now and then passing a resolution in favour of that country, and thus endeavouring to wear out the session.
+
+Ireland at length perceived the duplicity of proceedings which, while they purported to extend benefits to Ireland?!, asserted the paramount authority of Great Britain, and converted its acts of concession into declaratory statutes of its own supremacy. 14 Irish Counties at once avowed to establish, at the risk of their lives and
+
+
+
+**[p. 224]**
+
+George III forced, from the throne (in his speech), to pass unqualified eulogiums on the Volunteer army, as expression of the loyalty and fidelity of the people.
+
+The Army in Ireland had been under the regulations of a British Statute, and the hereditary revenue of the Crown, with the aid of a perpetual mutiny bill,272 enabled the British Government to com- mand at all times a standing army in Ireland, without the authority or the control of its Parliament. Volunteers became aware of this. Resolutions were entered into by almost every military corps, and every corporate body, that they would no longer obey any laws, save those enacted by the King, Lords and Commons of Ireland.
+
+The salaries of the Judges of Ireland were then barely sufficient to keep them above want, and they held their offices only during the will of the British Minister, who might remove them at his pleasure: all Irish justice, therefore, was at his control. In all questions between the Crown and the people, the purity of the judge was consequently suspected.
+
+The Irish Parliament, at this period, met but once in 2 years, and in the British Attorney-General was vested the superintendence of their proceedings and in the British Privy Council the alteration and rejection of their Statutes.
+
+This resolution brought down the British Government to the feet of the Volunteers, and raised the Volunteers above the supremacy of Britain, by a direct Parliamentary approbation of self-armed, self-governed, and self-disciplined associations.
+
+These Volunteers by this time exceeded in number the whole regular military force of the British Empire.
+
+[^1]: 9 October 1781. Irish House of Commons. Irish Parliament opened, speech of the Viceroy3 etc., after address to His Majesty passed, Mr. O'Neill (House of Commons) moved a resolution of thanks to "all the Volunteers of Ireland, for their exertions and continuance". Unanimously voted, and directed to be circulated throughout all Ireland, and to be communicated by the Sheriffs of the counties to the corps within their bailiwicks.b
+
+[^2]: Portugal Affair: By the resolutions of the British Legislature, Ireland had been admitted to export her linen and woollen manufactures to Portugal, agreeable to the provisions of the Treaty of Methuen?7^ from which liberty she had been previously and explicitly prohibited by express statutes. Irish manufacturers tried immediately to improve this. Portuguese Ministry (under orders of the British Ministers) peremptorily
+
+[^3]: a Frederick Howard, Earl of Carlisle.— Ed. b H. Grattan, The Speeches, Vol. I, pp. 82-85; J. Mitchel, The History of Ireland, Vol. I, p. 135.— Ed.
+
+
+
+House [did] not [have] the courage to pass it. Now [the] cry in the country, that their connection with England was only federative. This engrossed now almost the exclusive consideration of the armed associations of Ireland.
+
+Want of protection for personal liberty in Ireland: No Habeas Corpus Act:274
+
+Repeal of the English Statute of 6, George I asked by the armed Volunteers and corporate bodies3 etc. Catholic bodies now also entered the Volunteer army, officered by Protestants. Regular and public deliberative meetings of the armed Volunteers. The armed associations of Ulster first appointed delegates to declare the sentiments of their province, in a general assembly. Convention at Dungannon, 15 February 1782. Agreed upon the celebrated Declaration of Rights and Grievances.
+
+They were delegates from 25,000 Ulster soldiers, backed by the voice of about 1 million inhabitants of that country.
+
+Declaration of the Volunteers at the Dungannon Convention. 15 February 1782™
+
+[^1]: "Whereas it has been asserted that Volunteers, as such, cannot with propriety debate or give their opinions on political subjects, or the conduct of Parliament, or public men, resolved unanimously: That a citizen, by learning the use of arms, does not abandon any of his civil rights. That a claim of any body of men, other than the King, Lords, and Commons of Ireland, to make laws to bind this Kingdom, is unconstitutional, illegal, and a grievance; \ "that the power exercised by the Privy Council of both Kingdoms, under the pretence of the law of Poynings,h is unconstitutional and a grievance;
+
+[^2]: "that the independence of judges is equally essential to the impartial administration of justice in Ireland, as in England; and that the refusal or delay of this right to Ireland, makes a distinction where there should be no distinction; may excite jealousy where perfect union should prevail; and is in itself unconstitutional and a grievance; that it is our decided and unalterable determination to seek a redress of these grievances redress, speedy and effectual; that as men, and as Irishmen, as Christians, and as Protestants, we rejoice in the relaxation of the penal laws against our Roman Catholic fellow-subjects; and that we conceive the measure to be fraught with the happiest consequences to the union and prosperity of the inhabitants of Ireland."
+
+[^3]: 4 members from each county of the province of Ulster were appointed to act as a committee for the Volunteer Corps, to call general meetings of the province. That
+
+[^4]: a See this volume, p. 212.— Ed b Ibid., pp. 212, 215.— Ed.
+
+
+
+
+
+**[p. 226]**
+
+Earl of Bristol, Englishman by birth, British Peer and Protestant Bishop of Derrya
+
+(uncle of George Robert Fitzgerald), openly declares for the Volunteers (ditto for full Catholic Emancipation).
+
+In every Volunteer Corps of Ireland the Dungannon resolutions are accepted. About this time about 90,000 Volunteers are ready.
+
+As soon as the Dungannon Volunteers had received the concurrence of the armed associations, the Irish House of Commons assumed new aspect. The proceedings of the people without now told on their representatives within. The whole House appeared forming into parties.
+
+Their Sessions were biennial, and consequently their grants to Government were for 2 years at once; and till more money was required, their legislative [power] was inactive. They now deter- mined on granting supplies to the Crown for 6 months only, as a hint that they would grant no more till their grievances were redressed: this had its effect.
+
+The proceedings of the Volunteers and municipal bodies became every day more serious and decisive, tone in House of Commons more menacing.
+
+Impracticable to proceed with Lord North any longer. About April 1782 Marquis of Rockingham's Cabinet {James Fox etc.). Duke of Portland, nominated Lord Lieutenant of Ireland, arrived at Dublin 14 April 1782, had to meet the Irish Parliament on the 16th April.
+
+Message of George HI to British Parliament, 18 April 1782.277
+
+Stating:
+
+British House of Commons in reply: express
+
+The same words "final adjustment" were repeated, by the Irish Ministry, when a Union was proposed to the Irish Parliament in 1800.
+
+[^1]: C) DECLARATIONS OF IRISH LEGISLATIVE INDEPENDENCE276
+
+[^2]: "that mistrusts and jealousies had arisen in Ireland, and that it was highly necessary to take the same into immediate consideration, in order to [effect] a final adjustment."
+
+[^3]: "their entire and cheerful concurrence in His Majesty's views of a final adjustment".
+
+[^4]: Frederick Hervey.— Ed.
+
+
+
+Hutchinson accompanied this message, and his statement of his own views on the subject, with a determination to support a declaration of "Irish rights" and constitutional "independence". Hutchinson declared at the same time, that he had simply to deliver the message; he was therefore silent to all details and pledged the Government to none. Ponsonby proposed a short address.
+
+Grattan spoke: "America has shed much English blood, and America is to be free: Ireland has shed her own blood for England, and is Ireland to remain in fetters?" etc. Proposes Amendment to Ponsonby's "short address", etc. "to assure His Majesty that his subjects of Ireland are a free people, that the Crown of Ireland is an imperial crown, inseparably connected with the Crown of Great Britain but that the Kingdom of Ireland is a distinct kingdom, with a Parliament of her own the sole legislature thereof, that there is no body of men competent to make laws to bind the nation but the King, Lords, and Commons of Ireland, nor any Parliament which hath any authority or power of any sort whatever in this country, save only the Parliament of Ireland; to assure His Majesty that we humbly conceive that in this right the very essence of our liberty exists, a right which we, on the part of all the people of Ireland, do claim as their birth-right, and which we cannot yield but with our lives."
+
+(1799. Portland openly avowed in 1799 that he had never considered this concession of England in 1782 as finale)
+
+Shortly before and shortly after this scene very decided resolutions on the part of the Volunteer Corps. It was the unanimous firmness of the people, and not the abstract virtue of their delegates, which achieved this revolution.
+
+(This true man of the Pitt-Castlereagh school!)
+
+[^1]: Brownlow seconded. George Ponsonby stated "that he most willingly consented [on behalf of Portland] to the proposed amendment, and would answer that the noble lord who presided in the Government of Ireland, wished to do everything in his power etc." and "he (Portland) would use his utmost influence in obtaining the rights of Ireland, an object on which he had fixed his heart".
+
+[^2]: Unanimously Grattan's Motion was passed.
+
+[^3]: Fitzgibbon had declared [himself] a patriot; and Mr. John Scott, then Attorney-General, afterwards Lord Clonmel, even declared: "If the Parliament of Great Britain were determined to lord it over Ireland, he was resolved not to be their villain in executing their tyranny. That if matters should proceed to the extremity to which he feared they were verging, he should not be an insignificant subscriber to the fund for defending their common rights he had determined to throw his life and fortune into the scale."
+
+
+
+
+
+**[p. 228]**
+
+Parliament was meanwhile prorogued for 3 weeks, to wait for the King's Reply to their Declaration of Independence. Meanwhile reviews and discipline were continued with unremitting vigour by the Volunteer army, now about 124,000, of whom upwards of 100,000 effectives. Besides nearly V3 of the whole English army then Irish, ditto very many sailors Irish.
+
+(Portland's conduct in 1782 a premeditated tissue of dissimulation!)
+
+27 May 1782 Irish House of Commons met, pursuant to adjournment. Portland in his quasi throne speech: "King and British Parliament are united in a desire to gratify every wish expressed in your late Address to the Throne By the papers which, in obedience to His Majesty's commands, I have directed to be laid before you, you will receive the most convincing testimony of the cordial reception which your representations have met with from the Legislative of Great Britain, but His Majesty whose first and most anxious wish is to exercise his Royal Prerogative in such a manner as may be most conducive to the welfare of his faithful subjects, has further given it me in command to assure you of his gracious disposition to give his Royal assent to acts to prevent the suppression of Bills in the Privy Council of this Kingdom, and the alteration of them anywhere, and to limit the duration of the Act for the better Regulation and Accommodation of His Majesty's forces in this Kingdom, to the term of 2 years. The benevolent intentions of His Majesty unaccompanied by any stipulation or condition whatever. The good faith, the generosity, and the honour of this (the English) nation, afford them the surest pledge of a corresponding disposition, on your part etc."3
+
+Grattan the fool rose at once:
+
+and similar talk, and in particular
+
+[^1]: "That as Great Britain had given up every claim to authority over Ireland, he had not the least idea that she should be also bound to make any declaration that she had formerly usurped that power. I move you to assure His Majesty of our unfeigned affection to His Royal Person and Government magnanimity of His Majesty, and the wisdom of the Parliament of Great Britain, that we conceive the resolution for an unqualified, unconditional repeal of the 6, George I, to be a measure of consummate wisdom and justice"
+
+[^2]: "that no constitutional question between the two nations will any longer exist".
+
+[^3]: Sir Samuel Broadstreet on the other hand declared: "The Irish Parliament actually sat at that moment under an English statute." Ditto Flood, David Walsh:
+
+[^4]: "I repeat it, that until England declares unequivocally, by an Act of her own Legislature, that she had no right, in any instance, to make laws to bind Ireland, the usurped power of English Legislation never can be considered by us as relinquished we have the power to assert our rights as men, and accomplish our independence as a nation."
+
+[^5]: 3 For Portland's speech in Parliament on May 27, 1782, see H. Grattan, The Speeches, Vol. I, p. 131.— Ed.
+
+
+
+Beauchamp Bagenal proposed to appoint committee "to consider and report what sum the Irish Parliament should grant, to build a suitable mansion and purchase an estate for their deliverer" (i.e. Grattan).
+
+The British Cabinet now frightened. Their intolerance degenerated into fear. They had already signed the capitulation, and thought it impossible to carry it too soon into execution. America already lost.
+
+Bills to enact the concessions demanded by Ireland were, therefore, prepared with an expedition nearly bordering on precipitancy. The 6th of George I, declaratory of, and establishing the supremacy of England, and the eternal dependence of Ireland on the Parliament and Cabinet of Great Britain, was now hastily repealed, without debate, or any qualification by the British Legislature. This repeal obtained the royal assent, and a copy was instantly transmitted to the Irish Viceroy, and communicated by circulars to the Volunteer commanders.
+
+Chap. Ill: An Act, to repeal an Act made in the 6th year of the reign of his late Majesty King George I, entitled, An Act for the better securing the dependency of the Kingdom of Ireland upon the Crown of Great Britain.
+
+"Whereas, an Act was passed etc., may it please your excellent Majesty, that it may be enacted, and be it enacted, by the King's Most Excellent Majesty, by and with the advice and consent of the Lords spiritual and temporal, and Commons, in this present Parliament assembled, and by the authority of the same, that from and after the passing of this Act, the above-mentioned Act, and the several matters and things therein contained, shall be, and is, and are hereby repealed."
+
+— the King's best Palace in Ireland.
+
+The Viceroy of Ireland proposing, on behalf of the King of England, to Grattan to reward his services for having emancipated his country from the domination of Great Britain, was an incident as extraordinary as had ever occurred in any Government, and, emanating from that of England, told, in a single sentence, the whole history of her horrors, her jealousies, her shallow artifice and humbled arrogance. Was, of course, rejected by the Irish House of Commons. Grattan got £50,000 from that House.
+
+[^1]: Irish House of Commons, 30 May 1782. Bagenal resumed the subject of reward to Grattan; proposed £100,000. Mr. Thomas Conolly declared that "the Duke of Portland felt with the Irish people he (the Lord Lieutenant) begged to offer, as a part of the intended grant to Mr. Grattan, the Viceregal Palace in the Phoenix Park"
+
+
+
+
+
+**[p. 230]**
+
+General remark on this period: When Lord Westmoreland was removed from Ireland, in 1795, Ireland was in a most unexampled and progressive state of prosperity. Curran suggested even an intention to impeach Westmoreland for having permitted a part of 12,000 troops (which, according to stipulation, should always remain in Ireland) to be drafted out of that kingdom for foreign service.
+
+A) FROM 1782 TO 1783. (THE FIASCO OF THE REFORM BILL AND THE GREAT DEFEAT OF THE VOLUNTEERS)
+
+Irish House of Commons: Bills to ameliorate, by partial concession, the depressed state of the Catholics, and some reward for their zeal and patriotism, were introduced, and had arrived to their last stages in the House of Commons, without any effective opposition. Opposed by bigotism in their latter stages, the Castle powers stirring on. Those Bills relaxing the severity of the Penal Code passed however through both Houses. The concessions [though] very limited, still afforded great satisfaction to the Catholics, as the first growth of a tolerating principle. Grattan still believed in the Whigs. But at length Fox himself, wearied by a protracted course of slow deception, at once confirmed the opinions of the Irish people, and openly proc- laimed to Ireland the inadequacy of all the measures that had heretofore been adopted. He took occasion in the British Parliament, on the repeal of the 6th George I being there alluded to, to state
+
+By that speech, the Irish delusion of a final adjustment was in a moment dissipated, the Viceroy's duplicity became indisputably proved.
+
+Still Flood was feebly supported in Irish House of Commons, but [was supported] by the Volunteers.
+
+[^1]: " that the repeal of that statute could not stand alone, but must be accompanied by a final adjustment, and by a solid basis of permanent connexion", that "some plans of that nature would be laid before the Irish Parliament by the Irish Ministers, and a treaty entered upon, which treaty, when proceeded on, might be adopted by both Parliaments, and finally become an irrevocable arrangement between the two countries".a
+
+[^2]: 19 July 1782 Flood moved for leave to bring in a Bill "to affirm the sole exclusive right of the Irish Parliament, to make laws affecting that country, in all concerns external and internal whatsoever".1"
+
+[^3]: a H. Grattan, The Speeches, Vol. I, pp. 148-51.— Ed. b Ibid., pp. 145-46.— Ed.
+
+
+
+On the other hand [Parliament] passed [the] foolish motion of Grattan:
+
+"that leave was refused to bring in Mr. Flood's bill, because the sole and exclusive right to legislate for Ireland in all cases whatsoever, internally and externally, had been asserted by the Parliament of Ireland, and had been fully, finally and irrevocably acknowledged by the British Parliament"a
+
+(which was not true). (Fox himself had declared the contrary!) (Because of his scepticism Flood had been dismissed from his office of Vice- Treasurer. )
+
+27 July 1782 the Parliament was prorogued. In the proroguing speech Portland stated amongst other things:
+
+" Your claims were directed by the same spirit that gave rise and stability to the liberty of Great Britain, and could not fail of success, as soon as the councils of that Kingdom were influenced by the avowed friends of the Constitution.
+
+"Convince the people in your several districts, as you are yourselves convinced, that every cause of past jealousies and discontents is finally removed; that both countries have pledged their good faith to each other, and their best security will be an inviolable adherence to that compact; that the implicit reliance which Great Britain has reposed on the honour, generosity, and candour of Ireland, engages your national character to a return of sentiments equally liberal and enlarged. Convince them that the two kingdoms are now one, indissolubly connected in unity of constitution, and unity of interests."15
+
+Marquis of Rockingham died (1782). Fox and Lord North Coalition. Portland superseded by Earl Temple (who later became Marquis of Buckingham) (his Chief Secretary his brother Mr., afterwards Lord, Grenville) (15 September 1782-3 June 1783). Temple made small reforms. Though he obtained no credit from the body of the people, he made considerable progress amongst the aristocracy of the patriots (Charlemont, Grattan etc.).
+
+The armed Volunteers had now assumed a deliberative capacity: Paraded as soldiers and debated as citizens. More than 150,000 Volunteers now appeared upon the regimental muster-rolls. Strong accession to them of Catholics. They resolved no longer to obey, or suffer to be obeyed, any statute or law theretofore enacted in England, and to oppose their execution with their lives and fortunes. The magistrates refused to act under them, the judges were greatly embarassed, no legal causes could be proceeded on, under the authority of British Statutes, though naming Ireland, no counsel would plead them, no juries would find for them, the
+
+[^1]: a Ibid., p. 166.— Ed.
+
+[^2]: b Ibid., pp. 170-72.— Ed.
+
+
+
+
+
+**[p. 232]**
+
+Parliament divided between Flood and Grattan, the latter (Whig spelt) always in the majority. This division of nation the British Administration wanted to foster. Baffled by the injudicious conduct of some Members of the British Parliament.
+
+In the House of Commons (British) Sir George Young (Sinecure placeman in Ireland, although not Irish, viz. Vice-treasurer of Ireland) opposed the Bill of Concession to Ireland, and Repeal of 6, George I. Protested against the Power of King and Parliament to pass such bills. (He could not act against the will of the Ministers.)
+
+Lord Mansfield, notwithstanding the repeal of 6, George I, proceeded to entertain, in the Court of King's Bench,278 at Westminster, an appeal from the King's Bench of Ireland, observing that "he knew of no law depriving the British Court of its vested jurisdiction". The interest of money 5% in England, 6% in Ireland. Mansfield had placed very large sums of Irish mortgages to gain the additional 1%. Felt that they were not likely to gain any additional facilities by the appelant jurisdiction being taken from the British courts and transferred to Ireland herself: hence his reluctance to part with it.
+
+Lord Abingdon, in the House of Lords, totally denied the authority of King and Parliament of England to emancipate Ireland; he moved for leave to bring in a Declaratory Bill to re-assert the right of England to legislate externally in the concerns of Ireland.
+
+The Volunteers beat to arms throughout the whole kingdom; above 120,000 paraded. All confidence in Great Britain dissipated. Flood gained much ground amongst the people. Now new panic of the British Ministry. Without waiting for further and peremptory remonstrances from Ireland, they passed the following Statute:
+
+Anno vicessimo tertio (1783) Georgii HI. Regis*
+
+[^1]: Ch. XXVIII. An Act for removing and preventing all doubts which have arisen, or might arise, concerning the exclusive rights of the Parliament and Courts of Ireland, in matters of legislation and judicature; and for preventing any writ of error or appeal from any of His Majesty's Courts in that Kingdom from being received, heard, and adjudged, in any of His Majesty's Courts in the Kingdom of Great Britain. Whereas doubts have arisen whether the provisions of the said (their last) Act are sufficient to secure to the people of Ireland the rights claimed by them, to be bound only by laws enacted by His Majesty and the Parliament of that Kingdom, in all cases whatever etc. etc. be it declared and enacted that the said right claimed by the people of Ireland, to be bound only by laws enacted by His Majesty and the Parliament of that Kingdom, in all cases whatever, and to have all actions and suits at law or in equity, which may be instituted in that Kingdom, decided in His Majesty's Courts therein finally, and
+
+[^2]: a The twenty-third regnal year (1783) of King George III (J. Mitchel, The History of Ireland, Vol. I, p. 153).— Ed
+
+
+
+And be it further enacted that no writ of error or appeal shall be received or adjudged, or any other proceeding be heard by or in any of His Majesty's Courts in this Kingdom, in any action or suit at law or in equity, instituted in any of His Majesty's Courts in the Kingdom of Ireland, etc. etc.
+
+This measure brought into the British House of Commons by Mr. Townshend, passed through both Houses, and received the Royal assent without debate and with very little observation. In England held out a mere consequential declaratory part of a general constitutional arrangement entered into between the two nations. This measure came too late to satisfy the Irish people as to the purity of their own Parliament. It convinced them of either its inefficiency or corruption, or the Renunciation Act of the British Parliament would have been quite unnecessary. They had to secure their liberties. The Renunciation Act of Ireland had discredited the Irish Parliament with the Irish people.
+
+Mr. Flood had become most prominent among the Irish patriots. Grattan his enemy. The discussion on the English Renunciation Act led to the conclusion of the necessity to reform their own Parliament, because, without its comprehensive Reform, there was no security against the instability of events and the duplicity of England.
+
+Rotten borough system.279 Many members of the Irish House of Commons nominated by individuals (borough-mongers) and Peers, who in this way voted by proxy in the House of Commons. The King constitutionally nominated Peers, and the Peers created Commoners. The representation of the people in the Commons was purchased for money, and the exercise of that representation was sold for office. These purchases made by servants of the executive Government, in trust, for the uses and purposes of its ministers to carry measures. The Volunteers had the facts sifted. One Peer nominated 9 Commoners etc. Many individuals openly sold their patronage for money, to the best bidder, others returned members at the nomination of the Viceroy or his Secretary; and it appeared that the number of representatives elected freely by the people did not compose '/4 of the Irish Commons. The Volunteers at length determined to demand a reform of Parliament. Delegates from several Volunteer regiments again assembled at Dungannon, to consider the expediency and means of an immediate reform of Parliament. Flood [had] great influence now. 300 delegates, men of great influence, many of them members of the House of Lords and the Commons chosen by different corps.
+
+
+
+**[p. 234]**
+
+After much deliberation, a plan of reform, framed by Mr. Flood and approved by the Convention, was directed to be presented by him to Parliament forthwith, and the sittings of the Convention were made permanent till Parliament had decided the question. Mr. Flood obeyed his instructions, and moved for leave to bring in a Bill of reform of the Parliament. The Government knew that the triumph of the Parliament implied not only the destruction of the Convention, but of the Volunteers.
+
+The Government refused leave to bring in Flood's Bill,a because it had originated from their (the Volunteers) deliberations. (Yelverton now Attorney-General.) (Furious speech of Fitzgibbon.)b
+
+Unprecedentedly violent debate. Bill was rejected by 158 to 49; 158 of the majority were placemen and the very persons on whom the reform was intended to operate. Ditto 158 placemen who carried the Union Bill in 1800, which, if the Reform had succeeded, never could have been passed. An address to the King (moved by Conolly), offending against the Volunteers, carried.c Earl Charlemont, sup- pressing this news, told the Volunteers, he had received a note from the House of Commons, which left no hopes of a speedy decision, the Convention ought to adjourn till Monday,d then to decide upon ulterior measures, if the Bill should be rejected. He had secretly decided that they should meet no more. On the Monday morning he repaired to the Rotunda before the usual hour of sitting; only his own immediate partisans present. He ad- journed the Convention sine die. When the residue of the
+
+[^1]: a "A Bill for the More Equal Representation of the People in Parliament, November 29, 1783." See H. Grattan, The Speeches, Vol. I, p. 191.— Ed.
+
+[^2]: b H. Grattan, The Speeches, Vol. I, pp. 191-94.— Ed c J. Ph. Curran, The Speeches, p. 38.— Ed d December 1 1783— Ed
+
+
+
+A Northern Corps, calling itself "Bill of Rights Battalion", says in Address to the Bishop among other things:
+
+"The gloomy clouds of superstition and bigotry, those engines of disunion, being fled from the realm, the interests of Ireland can no longer suffer by a diversity of religious persuasions. All are united in the pursuit of one great object—the extermination of corruption from our Constitution; nor can your Lordship and your virtuous coadjutors, in promoting civil and religious liberty, be destitute of the aid of all professions."
+
+Bishop answered in the same strain (dated 14 January 1784): in conclusion he said:
+
+"The hour is now come when Ireland must necessarily avail herself of her whole internal force to ward off foreign encroachments, or once more acquiesce under those encroachments, the better to exercise anew the tyranny of a part of the community over the dearest and inalienable rights of others. For one million of divided Protestants can never, in the scale of Human Government, be a counterpoise against 3 millions of united Catholics. But, gentlemen of the Bill of Rights Battalion, I appeal to yourselves, and summon you to consistency— Tyranny is not Government, and Allegiance is only due to Protection."
+
+The Government resolved (too impotent to act) to watch the progress of events. Many of the best patriots thought the Bishop's language too strong. The idea of coercing the Parliament very rapidly lost ground. No military language to Parliament etc.
+
+The people were severed, but the Government remained compact; the Parliament was corrupted, the Volunteers were paralysed, and the high spirit of the Nation exhibited a rapid declension.
+
+Weak ly foolish Charlemont, after the dissolution of the Convention, recommended a Reform Bill to be presented to Parliament, as emanating solely from civil bodies, unconnected with military character. Of course, the placemen, who had scouted the military Bill, because it was military, now rejected the civil Bill, because it was popular. Meetings of the Volunteers were suspended, their reviews continued, to amuse the languid vanity of their deluded general.
+
+The temperate (bourgeois parliamentary) system now gained ground. The Volunteers of Ireland survived these blows for some years. The Whig orators (Grattan etc.) lost ground and influence.
+
+December 1783. Pitt Minister. Duke of Rutland Viceroy (!)
+
+
+
+**[p. 236]**
+
+Pitt in England. Duke of Rutland (Lord Lieutenant) died October, 1787. Marquis of Buckingham (formerly Earl of Temple) second time Viceroy (16 December 1787-5 January 1790).
+
+John Fane, Earl of Westmoreland [Lord Lieutenant] (Hobart, afterwards Earl of Buckinghamshire, Chief Secretary) from 5 January 1790 onwards (until 1795).
+
+In Irish House of Commons repeated attempts at Reform (Flood, Grattan, Curran etc.) failed.
+
+Place Bill, Pension Bill, Responsibility Bill, Inquiry into the Sale of Peerages and into the Police of Dublin the most material measures pressed by the Opposition during Westmoreland's Office, hence after the Revolution of 1789 in France.
+
+{The Place, Pension and Responsibility Bills proposed by Mr. Grattan, acceded to by the Viceroy, passed into laws. Place Bill—a bill to vacate the seats of members accepting offices under Government, omitting the term of bona fide offices, thereby leaving the Minister a power of packing the Parliament; this Bill one of the instruments of Castlereagh for carrying the Union.}
+
+[Up] to 1790 all these things as also Emancipation, Reform, Tithe questions failed.
+
+Orde's Propositionsc and Regency Bills the things most important during this period as international questions between Ireland and
+
+[^1]: There was a steady decline of the Volunteer organisation, and of the strength of the Liberal party to 1790. We have Tone's word that when the French Revolution broke out, both Catholic Committee and Whig Club280—the Emancipation and Reform parties — were feeble and dispirited.3
+
+[^2]: Irish House of Commons. February 14, 1785. Militia against Volunteers. Gardiner {on behalf of the Minister, and, as Curran told him, "in hope of being rewarded, by being raised to a higher rank", became actually Lord Mountjoy by the Union} moved a grant of £20,000 for clothing the Militia. This motion was levelled at the Volunteers, and therefore violently debated. One of the reasons of its being carried—the fool-rogueb Grattan went with the Government. Fitzgibbon, the Attorney-General, said amongst other things against Curran, who opposed the Bill and defended the Volunteers: "he (Curran) poured forth a studied panegyric of the Volunteers I shall even entrust the defence of the country to gentlemen, with the King's commission in their pockets, rather than to his (Curran's) friends, the beggars in the streets."
+
+[^3]: a See Davis' "Memoir" in J. Ph. Curran, The Speeches, p. XIX.— Ed. b "The fool-rogue" was inserted by Marx.— Ed. c Marx means Orde's propositions regarding the trade between Ireland and Great Britain made on February 11, 1785. See H. Grattan, The Speeches, Vol. I, pp. 214-17.— Ed
+
+
+
+Renewed efforts for reform made in 1784. In consequence of a requisition, Henry Reilly, Sheriff of the County of Dublin, summoned his bailiwick to the court-house of Kilmainham for the 25 October 1784, to elect members to a national congress. For this Mr. Reilly was attached by the King's Bench, on a crown motion, and on the 24 February 1785 Mr. Brownlow moved a vote of censure on the judges of that court, for the attachment. Speech of Curran. Motion rejected by 143 to 71.'A
+
+Shows still a great independent minority.
+
+PENSIONS, DISFRANCHISEMENT OF EXCISE OFFICERS, GOVERNMENT CORRUPTION
+
+The endeavour to regain by corruption what was surrendered to force, began in 1782, and increased greatly after the defeat of Orde's Propositions.281
+
+Pensions
+
+Pensions, 13 March 1786. Irish House of Commons. Bill of Forbes to limit the amount dj pensions. Defeated, i.e., adjournment ad Calendas Graecasb carried. As Curran said [the] object of the Bill [was] to "restrain the Crown from doing wrong by a physical necessity". "The Pension List, like charity, covers a multitude of sins coming home to the members of this House the Crown is laying a foundation for the independence of Parliament they" (the members of this House) "will have this security for their independence, that while any man in the kingdom has a shilling, they will not want one" (Curran).
+
+[^1]: 12 March 1787. (Forbes renewed his Bill for limiting Pensions. Curran supported him. Orde, Secretary. Also failed.)
+
+[^2]: "The King's authority" (here) "delegated first to a Viceroy, and next it falls to a Secretary, who can have no interest in the good of the people, no interest in future fame etc What responsibility can be found or hoped for in an Fnglish Secretary? A succession of men" (these Secretaries), "sometimes with heads, sometimes with hearts, oftener with neither" (Curran). "Where will you look for Orde's responsibility as a Minister? You will remember his Commercial Propositions" (Curran).
+
+[^3]: "A right honourable member opposes the principle of the Bill, as being in restraint of the Royal Bounty A gross and general application of the people's money to the encouragement of every human vice, is a crying grievance The pension list, at the best of times, was a scandal to this country; but the present abuses of it have gone beyond all bounds" (Curran).
+
+[^4]: "That unhappy list has been degraded by a new species of prostitution that was unknown before: the granting of honours and titles, to lay the foundation for the grant of a pension; the suffering any man to steal a dignity, for the purpose that a barren
+
+[^5]: See Davis' commentary in J. Ph. Curran, The Speeches, p. 42.— Ed. Until the Greek calends.— Ed.
+
+
+
+
+
+**[p. 238]**
+
+11 February 1790. Irish House of Commons (government corruption and patriot opposition proceeded, the public daily being more convinced that nothing but a reform of the Commons could save the Constitution of 1782 from the foul policy of the Ministers). Forbes moved an address describing and censuring several recent pensions. Curran supported it. Motion rejected by 136 to 92.
+
+Government Corruption
+
+House of Commons. 21 April 1789. Disfranchisement of Excise Officers' Bill. Bill rejected by 148 to 93.
+
+Curran's prophecy in his speech on that occasion was fulfilled. The English executive inflicted incompetent men and corrupt measures on Ireland, then took advantage of her own crime and our misfortunes to provincialise us, and now uses these very events as arguments against our independence. Curran said inter alia: "The opposition to this measure [] comes from the avowed servants of the crown and of every administration the men sent to grind us are, in general, the refuse of Great Britain Cart-loads of excise officers — revenue troops—collected from every corner of the nation, and taking possession of boroughs on the eve of an election" (Curran).
+
+House of Commons. 25 April 1789. Dublin Police. Sir H. Cavendish moved two resolutions to the effect that the Dublin Police System was attended with waste, and useless patronage. Ministers opposed the Resolutions. Rejected by 132 to 78.
+
+In his bold speech Curran alludes to the French Revolution.
+
+[^1]: Curran in support said among other things: "Advantage had been taken of some disturbances in 1784, to enslave the capital by a police. A watch of old men, at 4d. per night, was naturally ineffectual."
+
+[^2]: House of Commons. 4 February 1790. Stamp Officers' Salaries. {Curran proposes to regulate, cut them down etc. Rejected by 141 to 81.} (This was one means of government corruption.) Westmoreland Viceroy, Hobart his Secretary.
+
+[^3]: Curran says inter alia: the Earl of Temple (afterwards Marquis of Buckingham) incensed because of his failure in the Regency Bill increased the Revenue Board, the Ordnance, £13,000 addition to the infamous Pension List; (Under Lord Harcourt compact [was] made that the Board of Accounts and the management of the stamps (stamp duties had been granted in Harcourt's times} should be executed by one board.) Buckingham separated them in order to make places for members of Parliament. "Two country members prying into stamps!" "In proportion as you rose by union, your tyrant became appalled: but when he divided, he sunk you, and you became debased." "I rise in an assembly of 300 persons, 100 of whom have places or pensions I am showing the danger that arises to our honour and our liberty, if we submit to have corruption let loose among us the people now are fairly told that it is lawful to rob them of their property, and divide the plunder among the honest gentlemen who sell them to the administration."
+
+[^4]: House of Commons. February 12, 1791. Government Corruption. {New attempt of Curran to prove the impurities of Government.} Curran's principal theme: "Raising
+
+
+
+"I have proof* that a contract has been entered into by the present ministers to raise to the peerage certain persons, on condition of their purchasing a certain number of seats in this House."
+
+Curran states: "During the whole of last session" (1790) "we have, in the name of the people of Ireland, demanded from them the Constitution of Great Britain, and it has been uniformly denied. We would have passed a law to restrain the shameful profusion of a pension-list—it was refused by a majority. We would have passed a law to exclude persons, who must ever be the chattels of the government, from sitting in this House—it was refused by a majority. A bill to make some person, resident among you, and therefore amenable to public justice, responsible for the acts of your governors—has been refused to Ireland by a majority of gentlemen calling themselves her representatives [] This uniform denial proof to them" (the people) "that the imputation of corrupt practices is founded in fact."
+
+The vain attempt—in 1790-91—of the Parliamentary Minority against government corruption proves on the one hand its increase, on the other the influence of French Revolution of 1789. It also-shows why, at last, foundation of United Irishmen [took place] in 1791, since all Parliamentary action proved futile, and the Majority of Parliament mere tool in the hands of the Government.
+
+* * *
+
+a) Orde's Commercial Propositions. (Duke of Rutland, Lord Lieutenant)2*2
+
+(in fact, of English origin).
+
+'placing England and Ireland on the same footing, to the ruin of the latter.}
+
+[^1]: ATTKMPTS OF GOVERNMENT AGAINST IRISH INDEPENDENCE REPELLED
+
+[^2]: ON OCCASION OF ORDE'S COMMERCIAL PROPOSITIONS
+
+[^3]: AND THE REGENCY BILL
+
+[^4]: In May, 1784, Griffith proposed in Irish House of Commons inquiry in the commercial intercourse between Britain and Ireland. He desired to show that Irish trade should be protected from English competition etc. Government took this proposal out of his hand.
+
+[^5]: On 7 February 1785, Mr. Orde, the Chief Secretary, announced, and on 11 February moved the 11 propositions on trade, commonly called the Irish'A propositions
+
+[^6]: There were 4 principles established in these propositions:
+
+[^7]: 1) Taxes on all goods, foreign and domestic, passing between the 2 countries, should be equal
+
+[^8]: a This word is underlined by Curran.— Ed
+
+[^9]: 10-733
+
+
+
+
+
+**[p. 240]**
+
+3) That the regulations should be unalterable (thus abdicating legislation). 4) That the surplus of the hereditary revenue (hearth tax, and certain customs, and excises, over £656,000 a year) should be paid over to the English Treasury, for the support of the Imperial (English) navy.
+
+Yet this plan was proffered as a boon, a reciprocity plan; Orde (in contrast to Flood) hurried the Commons on to seize upon it, because otherwise the jealousy of the English monopolists might be awakened. The thing was a favour—to be paid for by £140,000 of new taxes, asked and voted in return for it. On the 22nd of February 1785 Pitt moved the Resolution in British House of Commons which declared that Ireland should be allowed the advantages (i.e. competition) of British Commerce as soon as she had "irrevocably" granted to England an "aid" (i.e. tribute) for general defence. North and the Tories, Fox and the Whigs —
+
+as a party manoeuvre—
+
+saw in English jealousy to Ireland a sure resource against the "heaven born Minister". Fox obtained adjournments, and all England "spoke out", from Lancashire to London, from Gloucester to York. Pitt sounded a parley. He submitted to some of their terms; retained all that was adverse to the Irish Constitution, suffered the loss of all that could by any ingenuity be serviceable to Irish trade. Returned the Act thus approved of by him in the form of 20 English propositions.
+
+The 11 propositions had been increased in England to 20, each addition a fresh injury. Half the globe, namely, all between Magellan and Good Hope, was (articles 3 and 9) interdicted to Ireland's ships: interdicts were also laid on certain goods. The ivhole customs legislation of Ireland was taken away by clauses which forced her (art. 4) to enact (register) all navigation laws passed or to be passed by England; (art. 5 and 8) to impose all the colonial duties that England did; (art. 6 and 7) to adopt the same system in custom-houses that England did; and finally (art. 17 and 18) to recognise all patents and copyrights granted to England.
+
+Curran plainly threatened that the people would take revenge against the persons who, in a thin House, would accept the 20 propositions after the adjournment. He threatened that such a
+
+[^1]: Irish House of Commons. 30 June 1785: Orde moves the adjournment of the House till Tuesday fortnight. Curran opposes this. Adjournment is carried. Curran says:
+
+[^2]: "When we had the 11 propositions before us, we were charmed with them. Why?—because we did not understand them. Yes, the endearing word reciprocity rang at every corner of the streets."
+
+[^3]: 23 July 1785. Orde moves new adjournment; Curran opposes; adjournment carried.
+
+[^4]: 11 August 1785. Curran asks Orde what has become of the 11 propositions "as of them only that Parliament could treat". They were "proposed as a system, of final and permanent commercial adjustment between the 2 kingdoms". "As a compensation for the expected advantages of this system, we were called upon {and they did so!}
+
+[^5]: to impose £140,000 a year on this exhausted country." "We submitted." "We have oppressed the people with a ioad of taxes, as a compensation for a commercial adjustment: we have not got that adjustment."
+
+
+
+12 August 1785. Orde moved his Bill (the 20 propositions). Opposed by Grattan, Flood, Curran. Leave to bring in the Bill carried by 127 to 108 (=19 votes: this showed that the Bill would be rejected).
+
+Curran: "The commercial part of it" (the Bill) "is out of the question: for this Bill portends a surrender of the Constitution and the liberties of Ireland I fear the British Minister is mistaken in the temper of Ireland, and judges of it by former times. Formerly the business here was carried on by purchase of majorities things have changed. The people are enlightened and strong, they will not bear a surrender of their rights, which would be the consequence, if they submitted to this Bill. It contains a covenant to enact such laws as England should think proper: they would annihilate the Parliament of Ireland. The people here must go to the bar of the English House of Commons for relief; and for a circuitous trade to England, we are accepting a circuitous constitution A power to bind externally, would involve a power to bind internally. This law gives the power to Great Britain, of judging what would be a breach of the compact, of construing it; in fact, of taxing us as she pleased; while it gives her new strength to enforce our obedience. In such an event we must either sink into utter slavery, or the people must wade to a re-assumption of their rights through blood, or be obliged to take refuge in a Union, which would be the annihilation of Ireland, and what, I suspect, the Minister is driving atb Civil war or a Union at best."
+
+15 August 1785: Orde, on presenting the Bill, abandoned it for the session, and for ever. Thereupon Flood moved: "Resolved—That we hold ourselves bound not to enter into any engagement to give up the sole and exclusive right of the Parliament of Ireland to legislate for Ireland in all cases whatsoever, as well externally as commercially and internally. " Curran supported him. Flood withdrew his motion, the House adjourned, and Orde's Propositions merged in a secret design for the Union.
+
+[^1]: b) Regency Bill (1789)283
+
+[^2]: George III mad for some time, concealed, in the end of 1788 could no longer be hid. In the ministers' draft of the address in answer to the Lord Lieutenant (Buckingham) (he had again become Viceroy in December 1787), they praised themselves.
+
+[^3]: Irish House of Commons. February 6, 1789. Grattan moved amendment, substituting a general expression of loyalty. Curran spoke in support. "Every man sees the change of public administration that is approaching. " (People thought that Fox would become Minister under the Prince of Wales.3)
+
+[^4]: "It has been delayed and opposed by a party in another kingdom. Upon what principle of wisdom or justice can Ireland enlist herself in that opposition etc?" Grattan's amendment was carried without a division although he called Buckingham "a jobber in a mask"
+
+[^5]: a This sentence is in German in the manuscript.— Ed. b The words "or be obliged to is driving at" are italicised by Curran.— Ed.
+
+[^6]: 10*
+
+
+
+
+
+**[p. 242]**
+
+so prostrated was the Castle at the prospect of the Prince's Regency, with Fox as Premier.
+
+February 11, 1789: Ministers tried to postpone the discussion on the Regency. Their avowed motive to have from England the Resolutions of the British Parliament, appointing the Prince Regent of Great Britain with limited powers. These resolutions passed on 23 January, accepted by Prince on 31st January, but had not reached the Irish Government. The postponement was refused by the House. Conolly then moved an address to be presented to Prince, as Prince Regent of Ireland with full kingly powers. Motion passed without a division.
+
+February 12, 1789. Conolly moved the address. February 17 concurrence of Lords brought up and agreed.to. On 19 February presented to Buckingham. He refused to transmit it. February 20, 1789 agreed to transmit it by deputation. Vote of censure against Buckingham.
+
+February 27, 1789. Deputation (Conolly, O'Neil, etc.) deliver a letter to the Commons with answer of Prince Regent, thanking "warmly" the Irish Parliament.
+
+March 20, 1789. Still more fervent letter of the Prince Regent, announcing his father's recovery, read in the Irish House of Commons.
+
+Pitt, to maintain his power, had defended and carried in England, the right of election of the Regent, hence the right to restrain his power.
+
+The Irish in this case maintained the common Constitution against the oligarchic and ministerial encroachments of Pitt.
+
+* * *
+
+There are for this lapse of time two things still to be considered,
+
+1) the Tithe Riots etc., showing the state of the Catholic Irish peasantry at that time, and
+
+2) The Dublin Lord Mayor election, showing the influence of the French Revolution upon the (into the bargain Protestant) Irish middle-class.
+
+1) Tithe Riots etc. English Riot Act Introduced in Ireland284
+
+Towards the close of the 18 century (since end of 1791) political parties united themselves with the peasants (the republicans of the North).
+
+[^1]: Irish House of Commons. January 19, 1787. Outrages in the South. Disturbances in the South caused by the misery of the people, Tithes, Rents, absenteeism,2^ bad tenures, harsh treatment etc.
+
+[^2]: 1786.' In the Lord Lieutenant's Opening Speech, he referred to the "frequent outrages" ("Right Boys" of Kilkenny, who were bound amongst each other by
+
+
+
+7 787 Viceroy's speech referred much more positively to the Southern outrages, and the debates on the Address in reply to it [were] violent. During this debate the government party (Fitzgibbon for instance) treated the disturbances as against the clergy, accused the landlords of grinding the people, and abetting the disturbances, and asked for fresh powers.
+
+House of Commons. 19 January 1787. Fitzgibbon, in [his] speech (1787) said the disturbances commenced in Kerry, the people assembled in a mass-house, there took an oath to obey the laws of Captain Right. Soon spread through the province of
+
+Munster. Their objects the tithes, then to regulate the price of lands, to raise the price of labour, and to opjmse the collection of hearth-money and other taxes. "I am very well acquainted with the province of Munster, and I know that it is impossible for human wretchedness to exceed that of the miserable peasantry in that province. I know that the unhappy tenantry are ground to pou'der by relentless landlords'1—far from being able to give the clergy their just dues, they have not food or raiment for themselves, the landlords grasp the whole; and not satisfied with the present extortion, some landlords have been so base as to instigate the insurgents to rob the clergy of their tithes, not in order to alleviate the distresses of the tenantry, but that they might add the clergy's share to the cruel rack-rents already paid The poor people of Munster live in a more abject state of poverty than human nature can be supposed able to bear—their miseries are intolerable, but they do not originate with the clergy: nor can the legislature stand by and see them take the redress into their own hands. Nothing can be done for their benefit while the country remains in a state of anarchy."
+
+Longfield, a County Cork Gentleman, stated that the disturbances were exaggerated, though the distress was not. He accused the government of looking for a year at the disturbances, for a political purpose.
+
+[^1]: Curran moved an amendment to the address (withdrawn without a division). Said inter alia:
+
+[^2]: "Cease to utter idle complaints of inevitable effects, when you yourselves have been the causes the patience of the people has been totally exhausted; their grievances (have long) been the empty song of this House, but no productive effect has ever followed. The non-residence of the landholders, the tyranny of intermediate landlords. You denied the existence of the grievance, and refused redress No wonder that the peasantry should be ripe for rebellion and revolt Not a single man of property or consequence connected with the rebels
+
+[^3]: "You were called on solemnly for a proper reformation in the representation of the people: did you grant it? No; and how does it at present stand? Why, Sir, seats in this House are bought and sold. They are set up to public sale; they have become an absolute article of commerce—a traffic of the constitution Saleable rotten boroughs. As they have bought the people for a sum of money, it is natural they should sell them The peasantry have formed hopes of relief People, when oppressed, [] though oppressed by law, will make reprisals; and these are the real causes of the disturbances. System of vile jobbing extends to commissions of the peace (24 commissions of the peace sent down to the County of Clare in one post) and to the sheriffs. You may talk of commerce expanding but what, in God's name, have they to do with the wretched peasantry?"
+
+[^4]: House of Commons. 19 February 1787. "Right Boy Bill". One clause of the Government, [which was] abandoned, was directing magistrates to demolish mass-houses
+
+[^5]: a The passage "to exceed that of relentless landlords" is italicised by Davis.— Ed.
+
+
+
+
+
+**[p. 244]**
+
+Curran: "The people are too much raised by a consciousness of their strength and consequence to be proper objects of so sanguinary a code as that now proposed" He alludes to pamphlet of Dr. Woodward, Bishop of Cloyne, in defence of tithes "tending manifestly to revive the dissensions from which we had so recently emerged, and to plunge us into the barbarism from which we were emerging, or, perhaps to imbrue us in the bloodshed of a religious war" (The Bill was committed by 192 to 31.)
+
+20 February 1787. Discussion of the same Bill, by which a Riot Act passed. O'Neill moved to limit it to Cork, Kerry, Limerick, and Tipperary. (Limiting motion rejected by 176 to 43.) In the Bill Todesstrafe—capital punishment—for tendering an oath etc.
+
+"I fear," said Curran, "that, as the coercion is so great, and as no means are taken for the relief of the poor, rebellion will go in the dark until the whole Kingdom set in a flame."
+
+13 March 1787. Tithes. Grattan having moved a resolution that if tranquillity were restored, at the opening of the next session, the House would consider the Tithe Question. Motion lost, without a division. Curran supported Grattan's Motion. Curran: "A law of pains and penalties severe beyond all example of any former period The offence was local and partial the causes of such offence were universal The abject and miserable state of the peasantry of Ireland. The Secretary" (Englishman!) "declares he is a stranger to their distresses, and will not hold out any hope that they should be ever considered by the Parliament!" "The honourable gentlemen could not let the Riot Act pass without accompanying it with an express disavowal of all intention to alleviate, or even at any period, however distant, to listen to their complaints." "Who are to execute it" (that law)? "That very body of men in the class above the peasants, who have been represented as adverse to the rights of the clergy, and are said to have connived at these offences." "But whatever may be the idea of an English Secretary, this House must be too wise to say that inveterate evils can receive any sanction from any length of time."
+
+2) Election of Lord Mayor of Dublin (1790)™
+
+[^1]: Disputed election for the Mayoralty of Dublin, connected with the attempt of the English Government to govern or provincialise Ireland by corruption. Hence the burgesses of Dublin pledged themselves in their guilds not to return any one as Lord Mayor or Member of Parliament for the city, who held a place or pension from the Government Alderman James was a Police Commissioner. Under the old Corporation laws the Lord Mayor and Aldermen sat and voted in one chamber, the Sheriff and Common Councilmen in a second. 16 April 1790 the former chose Alderman James as mayor elect for the ensuing year, the Common Council rejected him. Seven other names afterwards sent down were similarly rejected. Then the Common Council elected Alderman Howison; Napper Tandy led the popular party. The Aldermen repeated their election of James. This dispute came before the Privy Council, where Curran pleaded for the Common Council. Privy Council decided for a new election. Aldermen re-elect James and Councilmen Howison. This whole process, with interference of the Privy Council, repeated several times.
+
+[^2]: On 10 July 1790 Curran pleads for the Common Council before the Privy Council, presided by Fitzgibbon (became Lord Chancellor, and Lord Clare, in June 1789.)
+
+
+
+Privy Council decided for James, he resigned, on 5th August 1790 Howison chosen by the Aldermen, approved by the Common Council and Privy Council Thus this struggle ended in utter defeat of the Government.
+
+On 16 July, in the Common Council, Napper Tandy carried 17 Resolutions censuring the Privy Council, Aldermen, and summoned meeting of freemen and freeholders288 at the Exchange. This meeting held on 20 July, Hamilton Rowan in the chair, adjourned to 3d August, after appointing a committee to prepare a state of facts.
+
+3d August that State of Facts read, and James's resignation was announced. Sir E. Newenham denounced Fitzgibbon, who on 24 July had in House of Peers made audacious speech, where he read a Resolution of the Whig Club'21*9 and attacked them, until Lords Charlemont and Moira avowed the Resolution. (Whig Club founded in Dublin, summer 1789.)
+
+Whig Club, [which] met on 2d August, drew up a Report against Fitzgibbon. Fitzgibbon had become so unpopular, that the guild of merchants, who had, in the previous winter, voted him an address in a gold box, for services to their trading interests, expunged the resolutions on 13 July, 1790, as "disgraceful".
+
+From the above-quoted "State of Facts", August 3, 1790. (Aggregate meeting of the citizens of Dublin, held at the Royal Exchange.) Among other things it said:
+
+"That we do acknowledge, that for the last 10 or 11 years the citizens of Dublin did take an active part for the liberty of their country etc. etc.;
+
+"that we do acknowledge [that] the freedom of the City of Dublin [was] refused to His Excellency etc. the Earl of Westmoreland etc.;
+
+"that we do not deny that many among us did, on a former occasion, favour the scheme of Protective Duties etc.;
+
+T h e Judges, dependent on the Crown, the Army independent of Parliament, the Legislature at the feet of the British Attorney- General, and the people bound by the laws of Scotch and English Delegates. {The two last points apply to the period before 1782.}
+
+{From October 1791 to 4 January 1795. (Arrival of Fitzwilliam.) (Continuation of Lord Westmoreland's Government. (His Secretary Major Hobart.) }
+
+[^1]: "that we do acknowledge to have expressed our approbation of the conduct of the minority of the late Parliament in the last session that those measures had no other view, meaning or object, save corruption only: that the nation was told by a very high authority (Fitzgibbon) that in order to defeat an opposition in Parliament, this nation had been, in the Administration of the Marquis of Townshend, bought in by the Government, and sold by the Members of Parliament for half a million, and that if opposition continued to the present Administration, this nation must be bought and sold again etc. etc."
+
+[^2]: C) FROM OCTOBER 1791 TO COMMENCEMENT OF APRIL 1795
+
+[^3]: (LORD FTTZWILLIAM'S RECALL AND REPLACEMENT BY LORD CAMDEN)
+
+
+
+
+
+**[p. 246]**
+
+1794. 18 May, Moreau and Souham won a total victory over the Duke of York at Tourcoing.
+
+26 June 2nd battle of Fleurus (Jourdan). Belgium quickly conquered. The leaders of the English and Dutch troops were compelled to think only of the defence of the Netherlands.
+
+October and November the Dutch lost all their frontier fortresses. October Jourdan compelled the Austrians to abandon the entire left bank of the Rhine up to Mainz, 26 October he entered Coblenz. On the entire left bank of the Rhine, only Mainz and Luxembourg remained in the hands of the allies.
+
+27 December Pichegru in Holland.
+
+1795. 20 January 1795 Pichegru's entry into Amsterdam.- Batavian Republic.
+
+September Düsseldorf in Jourdan's hands, Mannheim in Picheg- ru's. The Austrians had to withdraw across the Main. Clairfait defeated the French army at Mainz on 29 October. Pichegru and Jourdan had to retreat. An armistice towards the end of the year. Moreau was given the command of the Rhine army.
+
+At the beginning of 1795 a peace treaty with the leaders of the Vendée. (The Peace of La Mabilois.) Pitt landed an émigré army at Quiberon on 27 June 1795 etc. On 20 July it was crushed by Hoche etc.290
+
+{February and March 1796 Stoff let, Charette etc. were court- martialled and executed by firing-squad. July 1796 he [Hoche] reported to the Directory that the civil war in the West had been brought to an end. }
+
+1796. 1797. Bonaparte in Italy.
+
+[^1]: :l The next passage, up to and including the words "1796, 1797. Bonaparte in Italy", is in German in the manuscript.— Ed.
+
+
+
+Their avowed (and by the mass of the Societies alone wished for) objects were Union between Catholics and Protestants, perfect Emancipation for the Catholics (Belfast had proposed this already in 1783) and Popular Representation for the men of both creeds. (Tone and others of the leading men for independent Republic. Without the c ruelty of Government they would have been overruled by the Whigs, and outvoted in the Societies.)
+
+The Belfast Society met publicly, as did all the United Irish Societies until 1794. The Catholics, on their part, were rapidly advancing in political spirit and information.
+
+Keogh and the leading (not aristocratic and Whiggish) Catholics were United.
+
+The Confederation extended to Dublin, received the support of the leading citizens, and of many of the Volunteer Corps. Its chief organ was The Northern Star: the first number of this paper, printed 4 January 1792 (manager Samuel Neilson), occupied itself chiefly with French politics. The Evening Star appeared in Dublin soon after, but The Press did not commence until 28 September 1797.
+
+Returning now to Westmoreland's Administration, we remark that Catholic Emancipation and Parliamentary Reform were the two cries!
+
+Irish House of Commons. 18 February 1792. Catholic Emancipation. These proceedings began by the presentation of a petition from the Protestants of County of Antrim for the Bill.
+
+Some small thing was proposed by Grattan. (Rejected.)
+
+[^1]: Curran. "At Cork, the present Viceroy was pleased to reject a most moderate and modest petition from the Catholics of that city. The next step was to create a division amongst the Catholics themselves: the next was to hold them up as a body formidable to the English Government, and to their Protestant fellow-subjects It is not a question merely of the sufferings or their relief—it is a question of your own preservation a partial liberty cannot long subsist alienation of 3 millions of our people, subserviency and corruption in a fourth the inevitable consequence would be an Union with Great Britain. And if any one desires to know what thai would be, I will tell him. It would be the emigration of every man of consequence from Ireland; it would be the participation of British taxes, without British trade; it would be the extinction of the Irish name as a people etc."
+
+[^2]: The petition for the Catholics rejected with indignation, by 208 to 23. This rejection inflamed the Catholics.
+
+[^3]: DOINGS OK CATHOLICS, UNITED IRISHMEN AND ADMINISTRATION UNTIL CATHOLIC RELIEE BILL
+
+[^4]: OK 1793292
+
+[^5]: In March, 1792, the Catholic Committee,29^ or rather Convention (for it was a body of delegates) met, and Tone was named its secretary. The agitation by means of these societies became most vigorous. The shining3 progress of the French
+
+[^6]: •' In his "Memoir" Davis has "stirring". See J. Ph. Curran, The Speeches, p. XXL— Ed.
+
+
+
+
+
+**[p. 248]**
+
+7 December 1792. Government Proclamation against all seditious meetings: In this proclamation we read: "The first battalion of National Guards were to have paraded, clothed like Frenchmen etc." This proclamation answered by the United Irishmen.
+
+16 December 1792, Rowan (of Dublin) Chairman, when the address was voted, Dr. Drennan wrote it.
+
+The main content of this proclamation,3 on account of which Rowan and Drennan were prosecuted, was: 1) It called the Volunteers to arms:
+
+"To your formation was owing the peace and protection of this island; to your relaxation has been owing its relapse into impotence and insignificance. 2) Elective franchise to the whole body of the people reform in representation. 3) Universal Emancipation and representative legislature, in these 4 words lies all our power We, therefore, wish for Catholic Emancipation without any modification, but still we consider this necessary enfranchisement as nearly the portal to the temple of national freedom The Catholic cause is subordinate to our cause, and included in it; for, as United Irishmen, we adhere to no sect, but to society—to no party, but the whole people, were it (Catholic Emancipation) obtained tomorrow, tomorrow would we go on as we do today, in the pursuit of that Reform, which would still be wanting to ratify their liberties as well as our own. 4) For both these purposes it appears necessary that provisional conventions should assemble preparatory to the convocation of the Protestant Convention (this then to communicate with the Catholic Committee or Convention in Dublin) If a Convention on the one part does not soon follow, and is not soon connected with that on the other, the common cause will split into the partial interest—the people will relapse into inattention and inertness—too probably, some local insurrections, instigated by the malignity of our common enemy, may commit the character, and risk the tranquillity of the island The 15th of February approaches,296 Let parochial meetings be held as soon as possible; let each parish return delegates; let the sense of Ulster be again declared from Dungannon Citizen Soldiers etc." (This address was issued in meeting at a fencing school, Dublin, several corps of Volunteers with their side-arms going there, as well as Napper Tandy etc.)
+
+[^1]: In December 1792 Rowan was arrested on an information and admitted-to bail.b
+
+[^2]: The prosecution of the "Northern Star" of Belfast for publishing the Declaration and Address of the "Irish Jacobins (name of the society) of Belfast" on 15 December 1792.
+
+[^3]: The Declaration of the "Irish Jacobins" says among other things:
+
+[^4]: ;1 Marx means the proclamation "The Society of United Irishmen at Dublin. To the Volunteers of Ireland" quoted according to Davis' commentary in J. Ph. Curran, The Speeches, pp. 154-55. The division of the text into points is by Marx.— Ed.
+
+[^5]: '' The following two semences are in German in the manuscript.— Ed.
+
+
+
+"1st) Resolved—That this Kingdom (meaning the Kingdom of Ireland) has no national government, inasmuch as the great mass of the people are not represented in Parliament. [] 3d) That the people of Ireland can never effectually constitute their own laws, without an extension of the elective franchise to all its citizens. 4th) That the elective franchise can never be obtained without a cordial, steady, and persevering union of all the Irish people of every denomination. 5) That the penal code of statutes which have for upwards of a century doomed our fellow-citizens, the Roman Catholics of this Kingdom, to a state little inferior to the unlettered African, is a disgrace to the land we live in. [] 7) That to obtain this most desirable end (natural rights of men) we entreat our fellow-citizens of every denomination in Ireland, England, and Scotland, to turn their thoughts to a National Convention, in order to collect the sense of the people as to the most effective means of obtaining a radical and complete Parliamentary reform, an object without which these kingdoms must for ever remain wretched etc."
+
+"Address. The Irish Jacobins of Belfast to the Public"
+
+Among other things: "Where the mode of government is not derived from all the people clearly expressed, that nation has no constitution; need we say this is the case with Ireland; it possesses only an acting government []: in such a government the supreme authority has more power to oppress the subject than to defend his rights Out of 5 millions of people (meaning the Irish people) 90 individuals actually return a majority of the House of Commons, who instead of representing the voice of the nation, are influenced by English interests, and that aristocracy whose baneful exertions have ever tended to sap the vital principles etc. of this unhappy and wretched country By unanimity and perseverance this divided land will be liberated from the shackles of tyranny It is by procuring a renovated representation that liberty will be established in this country; this can only be accomplished by a National Convention. The Roman Catholics are already convened; let the Protestants follow their peaceful example." 297
+
+[^1]: 15 February 1793: Volunteer Convention, said to represent 1,250,000 people, met at Dunganaon, passed resolutions in favour of Emancipation and Reform, and named a permanent Committee. This, doubtless, assisted the carrying of the Relief Bill, but it made the Ministry resolve to crush the Protestants, while it conciliated the Catholics.
+
+[^2]: Irish House of Commons. 10 January 1793. Lord Westmoreland opens Parliament [with a speech]. Complained of the discontent of Ireland, but said nothing of the corruption, extravagance, and alien policy of ministers. It complained of the invasion of Holland by France, but was silent of the European conspiracy against the Republic. It recommended a relaxation of Catholic fetters, but not the motives: English declaration of war against France, Custine had conquered the Rhine (21 October 1792), Dumouriez's battle of Jemappes (6 November 1792) and annexation of Belgium. The speech also stated that Government had increased the military establishment, and recommended the formation of a militia. This last was a stroke against the Volunteers. The Address moved was echo to the speech, Grattan moved a trivial amendment.
+
+[^3]: Catholics had acquired spirit and organisation by Wolfe Tone, Keogh, Byrne, Todd Jones and M'Cormick. The Catholic Committee negotiated with the Government, the
+
+
+
+
+
+**[p. 250]**
+
+In opposition to the Catholic Committee and the United Irishmen, the Ministry stimulated Protestant bigotry and Catholic division. Out of doors they got the exclusive Corporation of Dublin to address the other Irish Corporations against Emancipation, and they intrigued with the Aristocracy (lay and clerical) of the Catholics. In Parliament they found the relics of the old exclusion Party.
+
+11 January 1793: Curran supported Grattan's amendment which was carried. "Parliament has become unpopular in the country How could the credit of Parliament survive its independency? More than half of us have no connexion with the people The disunion of the people from this House raises from this—the people are not represented. And to restore the Union wanted a radical Reform of the Commons Without them (the Catholics) the country cannot be saved. Give them no qualified Emancipation A hated Government, an unpopular Parliament, a discontented people The Catholic Petition (1792) has been rejected by the influence of the Irish Administration."
+
+Early in January 1793d Curran unsuccessfully resists the Attorney-General's motion for the committal of M'Donnell, the printer of the Hibernian Journal, for publishing that the House was not free and independent.
+
+On January 14, 1793 (so persuasive were French victories) Grattan obtained a Committee of the Whole House on Parliamentary Representation, and moved resolutions [pointing out] among other things that of the 300 members only 84 [are] returned by counties, counties of towns and cities, together with the University, while the remaining 216 [are] returned by boroughs and manors. Finis: "Resolved—That the state of the representation of the people in Parliament requires amendment."
+
+Curran supported this. He said: "The Catholic Question must precede a Reform. Their place in the state must be decided first Ireland feels, that without an immediate Reform her liberty is gone."
+
+[^1]: Motion lost by 71 to 153. But the Opposition had already yielded to the Ministers Indemnity for their violent Proclamations against the Republican Volunteers: they had consented to the Militia and Gunpowder Bills, and therefore the Resolutions were resisted.
+
+[^2]: 11 March 1793 another Government Proclamation, forbidding military societies, drilling, and the whole Machinery of the Volunteers, without naming them.
+
+[^3]: April 1793: Relief Bill of the Catholics passed, admitting Catholics to the franchise, the bar, the University, and to all the rights of property; but excluding them from Parliament, from State Offices, and from all, indeed, that the Bill of 1829 conceded?^ The Bill of 1793 was brought in 10 days after the declaration of war against France.b
+
+[^4]: The same Parliament which passed the Relief Bill, passed the Alien Act, the Military Foreign Correspondence, Gunpowder, and Convention Acts, in fact, a full code of coercion and a Secret Committee. It got 20,000 Regulars and 16,000 Militia.
+
+[^5]: Convention Bill: "A law," says Curran, "not to restrain but to promote insurrection." The law declares that no body of men may delegate a power to any smaller number, to act, think, or petition for them.
+
+[^6]: 11 According to Davis, on January 29, 1793. Cf. his commentary in J. Ph. Curran, The Speeches, p. 152.— Ed.
+
+[^7]: b On February 21, 1793.— Ed
+
+
+
+Thus armed, the Government commenced its crusade of prosecuting and persecuting, and obtained fresh laws from time to time, and, after the truce of 1795, drove the quarrel to an Insurrection and to the Union.
+
+7 794. The agitation continued. (Government prosecutions against Volunteers, United Irishmen etc.) The United Irishmen Society was changed into a secret and secretly organised body. The Catholics still laboured; the French had conquered; their Government aroused by the Irish Jacobin Resolutions of Belfast, and the suggestions of some Irish patriots, bethought themselves to assist the discontented Irish to effect a separation. Rev. Jackson sent there as an agent, put himself in communication with Tone. Betrayed; arraigned for treason (after arrest), hanged.
+
+29 January 1794, Curran as defender of Rowan: "But now, if any aggregate assembly meets, they are censured; if a printer publishes their resolutions, he is punished; rightly, to be sure, in both cases, for it has been lately done. If people say, let us not create tumult, but meet in delegation, they cannot do it the law of last session has for the first time declared such meetings to be a crime."
+
+The informer system is flourishing.
+
+4 January 1795, Lord Fitzwilliam, Whig, who had opposed Pitt,
+
+But from papers published (correspondence between Fitzwilliam and Lord Carlisleh) [it is] evident that Pitt (this was, perhaps, second thought, when the King's and Beresford's influence prevailed) has
+
+[^1]: FROM 4 JANUARY 1795 TO THE END OF MARCH 1795. LORD FITZWILLIAM
+
+[^2]: [was] sent by him to Ireland, charged with the carrying of Catholic Emancipation (and Reform Bill), and pacification of Ireland. The apparent causes [were] the rapid progress of the United Irishmen and the French armies, who had driven the Spaniards behind the Pyrenees, the Austrians behind the Rhine, destroyed the Duke of York's army, and prepared the occupation of Holland in the winter 1794-95.a
+
+[^3]: •' See Davis' commentary in J. Ph. Curran, The Speeches, p. 233.— Ed. b Marx refers to [Carlisle] "A Letter to Earl Fitzwilliam, in Reply to His Lordship's Two Letters" (London, 1795) and "A Letter from Earl Fitzwilliam to the Earl of Carlisle" (1795). Further on Marx cites facts according to Mitchel's History of Ireland.., Vol. I, pp. 218-19.—Ed.
+
+
+
+
+
+**[p. 252]**
+
+Fitzwilliam was one of the most indulgent landlords of Ireland and very popular. What Pitt wanted, was to raise the Catholics to the height of expectation, and by suddenly recalling Fitzwilliam, to drive them into commotions, which would throw the Protestants into the arms of England for protection, whilst the horrors would be aggravated by the mingled conflicts of parties, Royalists and Republicans.
+
+Pitt had sent Fitzwilliam to Ireland with unlimited powers. The day Fitzwilliam arrived, peace was proclaimed throughout all Ireland. The day he quitted it, she prepared for insurrection.
+
+Irish House of Commons. 22 January 1795 Fitzwilliam opens with plausible speech. Grattan outdid the Ministers in servile adulation3 (as to the Address). An Emancipation Bill300 was read a first time, but ample supplies were voted, £2 millions loan was voted, and Anti-Gallican frenzy got upon certain classes. Fitzwilliam recalled.
+
+I l l
+
+B) LORD CAMDEN'S ADMINISTRATION. APRIL 1795-END OF JULY 1798
+
+Camden's arrival attended by almost insurrectionary outrages. The Beresfords assaulted, Clare (Lord Chancellor, i.e. Fitzgibbon) almost killed in his carriage.
+
+Camden's Chief Secretary Mr. Pelham (Earl Chichester) afterwards replaced by his nephew Stewart (Lord Castlereagh).
+
+Camden became extremely popular amongst the armed associations which were raised in Ireland under the title of Yeomen. He was considered the guardian of that Institution.
+
+[^1]: Irish House of Commons. 4 May 1795. Second Reading of the Emancipation Bill. Rejected by 155 to 84.
+
+[^2]: Fitzwilliam's recall was a triumph for the separation party. An Irish Republic now became the only object of the United Irish. The bulk of the Presbyterians of Down, Antrim, and Tyrone joined, as did multitudes of Protestants and Catholics in Leinster. At this time the Catholics of the North were Defenders or Ribbonmen.301 Both sides made ready for the worst.
+
+[^3]: An Insurrection Act passed, making death for any one to take an oath of Association; another allowing the Lord Lieutenant to proclaim countries [in a state of siege], in which case no one could go out at night; and magistrates obtained the power of breaking into houses, and transporting to the navy all persons whom they suspected Other acts—granting indemnity for magistrates guilty of any illegality—giving the Lord
+
+[^4]: a Davis wrote "he outdid ministers in loyalty". See J. Ph. Curran, The Speeches, p. 233.— Ed
+
+
+
+The Yeomanry consisted of the Tory Gentry, and their dependants, undisciplined and unprincipled, legal banditti. No villainy but was perpetrated by them. Whipping, pitch-capping, half or whole hanging, sending to serve in the navy—as the leisure or facilities of the officer allowed.302
+
+1795. Among the papers found by Jackson View of Ireland, by Tone:
+
+"The Established Churchmen in Ireland have engrossed, besides the whole church patronage, all the profits and honours of the country exclusively, and a very great share of the landed property. Aristocrats, adverse to any change, decided enemies of the French Revolution. Dissenters Republicans []. Catholics, the great body of the people, in lowest degree of ignorance, ready for any change, because no change can make them worse. The whole peasantry of Ireland, the most oppressed and wretched in Europe, may be said to be Catholic. Within these 2 years [they] have received a certain degree of information, [] various insurrections, [] bold, hardy race, and make excellent soldiers. [] Defenders. [] They are so situated that they have but one way left to make their sentiments known, and that is by war. [] All Parliamentary, Grand Jury etc. Acts proceeding from aristocrats, whose interest is adverse to that of the people."
+
+Defenders (in the North). The Lords' Committee of 1793 describes them
+
+"as poor ignorant labouring men", [fighting] for Catholic cause, relieved from hearth-money, tithes, county cesses, lowering of their rents. First they appeared in County Louth, April 1793, several of them armed; assembled mostly in the night, forced into the houses of Protestants and took from them their arms. Spread soon through the counties of Meath, Cavan, Monaghan and other parts adjacent. The Secret Committee tried to connect them with Catholic Gentlemen, and the crown prosec Mtors tried to trace them to the United Irishmen Association and French gold. Before Drogheda, Spring Assizes, April 23, 1794, Drogheda Defenders, declared not guilty. Dublin Defenders,. December 22, 1795. James Weldon, connected with them, hanged.
+
+[^1]: House of Commons. February 3d, 1796. Indemnity Bill. 25 February 1796. Insurrection Bill (it gave the right of arbitrary transportation to magistrates).
+
+[^2]: Curran: "It is a Bill for the rich, and against the poor."'d "What is a Bill which puts the liberty of the poor man, who has no visible means of living but labour, in the discretion of the magistrates? [] In Ireland," where poverty [is] general, "it constitutes poverty a crime." "Let the rich men of Ireland, therefore, fear when they enact a law against poverty, lest poverty should enact a counter-law against riches." "Gentlemen have reasoned to prove that he who should be transported by this law would only be sent into an honourable retirement, where he might gain glory by fighting for his country from which his poverty had expelled him."
+
+[^3]: Irish Flouse of Commons. 13 October 1796. French War. Camden opened [Parliament with the call:] resist invasion! (Hoche's force was just assembling at Brest,
+
+[^4]: •' Here and below in this paragraph italics is by Curran.— Ed.
+
+
+
+Curran. "Government encourages every attack upon the reputation of the Catholics, and the most wicked and groundless prosecutions against their lives." "Look at the scene that has been 'exhibited for 2 years in one of your counties, of robbery, and rape, and murder, and extermination" (of the Catholics). "Law can give them no protection under a hostile and implacable government."
+
+Ponsonby's Amendment defeated by 149 to 12. Then the Attorney-General moved for leave to bring in a Bill, similar to such as have been enacted on like occasions in England, to empower the Lord Lieutenant, to take up and detain all such persons as were suspected of treasonable practices. Leave being given, the Bill was forthwith presented, read a first and second time, and committed for the morrow.
+
+14 October 1796. Suspension of the Habeas Corpus Act. Leave to bring it in granted, read, 2 times, etc. all in a few minutes in the morning after midnight.
+
+17 October 1796. Catholic Emancipation Bill. Rejected. 6 January 1797. Hoche's Expedition^ Secretary Pelham brought down a message from the Lord Lieutenant full of English palaver, in reference to France and especially the expedition of Hoche.
+
+Curran. "You have already laid a shilling on the brogues of your beggar peasants; will you impose another shilling upon them? [] What wealth they have? Seven pence per day."
+
+24 February 1797. Internal Defence. Sir Laurence Parsons moved an Address for an increase of the d< nestic army, especially the Yeomen infantry. Grattan supported, and the Ministers opposed, the Address. Neither party foresaw how the patriots of the Clubs would turn into the scourges of the People— traitors to their country and their oath, when under the bribe of payment, the compulsion of discipline, and the spirit of the army.
+
+Since end of March 1796 whole counties of Ireland proclaimed (put in state of siege).
+
+[^1]: Curran. "At this moment the gaols are crowded they3 make a demand of redress an act of treason."
+
+[^2]: House of Commons. March 18, 1797: Disarming of Ulster. Message of Lord Camden. (Pelham is still Secretary.) General Lake—cowardly, infamous, cruel—was to disarm the inhabitants together with the magistrates. Lake's Proclamation. Belfast, 13 March 1797.
+
+[^3]: 19 March 1797. Grattan: "The Lord Lieutenant attaints one entire province of Ireland of High Treason."b Amendment of Grattan.
+
+[^4]: 20 March 1797. Amendment rejected by 127 to 16. Curran. "The North is deeply discontented. By what? Your own laws, your Convention Act, Gunpowder Act, Insurrection Act. The first denies the natural right of sufferers—the right of petition or complaint; the second, the power of self-defence the third, the defence of a jury against the attempts of power."
+
+[^5]: May 15, 1797. Last speech of Curran in the House of Commons, secedes from it, ditto Grattan; the Opposition ceased to attend, and House adjourned on 3 July 1797. Castlereagh Chief Secretary.
+
+[^6]: We have seen the decreasing minorities of the party who gallantly struggled to
+
+[^7]: 3 The Commoners.— Ed. b Marx quotes Grattan probably according to J. Ph. Curran, The Speeches, p. 267; see also H. Grattan, The Speeches, Vol. Ill, p. 299.— Ed.
+
+
+
+The Government and the United Irishmen now face to face. The Government strengthened itself by spies on the United Irishmen (such as Maguane and others), the "battalion of testimony" (Bird, Newell, O'Brien etc.), free quarters, prosecutions, patronage, and calumny.
+
+Orr hanged 14 October 1797 for having (allegedly) administered the oath of the United Irish to a private soldier. The Oath is: first, to promote a brotherhood of affection among men of all religious distinctions; secondly, to labour for the attainment of Parliamentary Reform; 3dly, an obligation of secrecy, added to it when the Convention Law had made it criminal for any public delegation to meet for that purpose. The Insurrection Act makes the administering of such an oath felony of death.
+
+The United Irish Society of 1791 formed in 1791, for the achievement of Catholic Emancipation and Parliamentary Reform. In 1792-93 it increased, retaining its original objects. In 1794, the views of Tone and Neilson, who both desired an independent republic, spread; but the formal objects were unchanged, when, on 10 May 1795, the organisation of Ulster was completed. The recall of Fitzwilliam, the consequent disappointment of the Catholics, the accumulation of coercive laws, the prospects of the French Alliance, and the natural progress of a quarrel, rapidly spread the influence, and altered the whole character of the Society. The test of the Society was made more decisive, and less constitutional. In the autumn of 1796 the organisation was made military in Ulster. Towards the middle of 1797, this system spread to Leinster. So far back as May 1796, the Executive had formally'"1 communicated with France, through Lord Edward Fitzgerald. Only on J9 February 1798 [it was] resolved "that they would not be diverted from their purpose by anything which could be done in Parliament".
+
+[^1]: In the winter of 1796-97, the coming of the French was urged as a reason for immediate insurrection; but it did not prevail. In May, 1797, the order for the execution of the 4 soldiers of the Monaghan militia, was regarded by the militias as sufficient motive for action; but not so thought the Executive. In trie summer of 1797 the militia regiments sent a deputation, offering to seize the Castle. The Northern leaders were for an outbreak, so was Lord Edward. Still nothing was done. And again, in the beginning of 1798, the people subjected to free quarters, whipping, burnings, and transportation, pressed for insurrection. Lord Edward disposed to it. Emmet wanted to wait for France, and thus they were, when the sleek traitor Reynolds of Kilkee glided into their councils through Lord Edward's weakness. Arthur O'Connor was arrested at Maidstone, in the act of embarking for France; on 12 March, a meeting of Leinster delegates, including Oliver Bond, Mc Cann etc., were arrested at Oliver Bond's warehouse, Dublin. Mac Nevin, Thomas Emmet, Sampson were not taken for some days. Warrant against Lord Edward, he escaped and lay concealed. New Directory, John Sheares one of it. On 19 May, just 4 days before the rising was to take place, Lord Fitzgerald was pounced on, and on 21st the two Sheares.b Thus the insurrection began, without its designers to lead it, and without time to replace them.
+
+[^2]: A The word "formally" is italicised by Davis.— Ed.
+
+[^3]: h Henry and John.— Ed.
+
+
+
+
+
+**[p. 256]**
+
+Before the outbreak of the insurrection, trials took place in February and March 1798."
+
+The insurgents during the struggle not treated as soldiers, but hanged. Burning every cottage, and torturing every cottager—the loyalists. Martial law proclaimed, and the courts of justice closed. No quarter on either side. Bills of attainder and all sorts of legal murder. Juries (packed) recorded the opinions given them by the judges.
+
+25 July 1798 the state prisoners' negotiation with Government. Their lives secured [by] Mr. Cooke, on behalf of the Ministers. On the other hand, they were to describe the United Irish affairs, so far as they could, without implicating individuals. Byrne, however, was hanged: compact was finally settled on 29 July, at the Castle, by "deputies from the gaols". The Government broke the compact. They, not only in their press, but by their indemnity act, described the United Leaders as confessing guilt, and craving pardon, neither of which they did. Instead of allowing them to go abroad, they were kept in gaol here for a year, and then thrust into Fort George, from whence thev were not released, till the Treaty of Amiens,304 in 18()2.b
+
+Within 12 days from the first rising, the people of Wexford had cleared their county, with the exception of Ross and Duncannon, two places unfit to resist a skilful attack. Similar successes attended the Kildare insurrection.
+
+Antrim and Down did not rise for a fortnight, and there, after similar blunders, and a shorter struggle, the Presbyterians were ousted.
+
+German and English troops were also employed in these affairs.
+
+1784. Independence assailed by Pitt under colour of commercial
+
+tariff. 1789. The Prince Regent's Question determined to extinguish the
+
+Irish Legislature.
+
+[^1]: The Wexford men protracted the war; partly from a vague hope for foreign assistance, but still more from despair, for they could not trust the faith of their persecutors; and not a few of these heroic men died in the plains of Meath, in an effort to force their way into Ulster.
+
+[^2]: The soldier having done his own work, and that of the assassin and brigand, too, [it was the turn of] the bow-string of the Attorney-General. Courts-martial hanged those taken in battle, and courts-civil slaughtered the prisoners. Most unaccountably the insurgents did not retaliate. They besides spared females, the loyalists did not.
+
+[^3]: PITT'S PLAN TO ENFORCE AND PROVOKE THE INSURRECTION
+
+[^4]: •' This sentence is in German in the manuscript.— Ed. h J. Mitchel, The History of Ireland, Vol. II, pp. 15, 19. 26. Further, till the end of the section, there follow excerpts from Davis' "Memoir" in J. Ph. Curran, The Speeches, p. XXIV.—- Ed.
+
+
+
+United Irish Societies known to Government.
+
+Though it appeared, from public documents, that Government had full and accurate information of the United Irish Societies, and that their leaders and chiefs were fully known to the British Ministry, the Government did nothing to suppress, but everything to exasperate, the people.3
+
+Under Camden's Administration: Earl of Carhampton, Commander-in-Chief of Ireland, first expressed his dissatisfaction of Pitt's inexplicable proceedings. Although martial law was not yet declared, Carhampton ordered his troops to intervene, wherever insurrectionary movements occurred.15 This was prohibited by Camden. Carhampton found that troops in the garrison of Dublin were daily corrupted by the United Irishmen; he therefore withdrew them and formed two distinct camps on the South and the North, some miles from the capital. This measure also refused by the Lord Lieutenant whom Carhampton refused to obey. The King's sign manual was at length procured, ordering him to break up his camps, and bring back the garrison; this he obeyed and marched his troops into Dublin barracks. He then resigned his command, and publicly declared, that some deep and insidious scheme of the Minister was in agitation; for, instead of suppressing, the Irish Government was obviously disposed to excite, an insurrection. Mr. Pitt counted on the expertness of the Irish Government to effect a premature explosion. Free quarters were now ordered,
+
+{Free quarters rendered officers and soldiers despotic masters of the peasantry, their homes, food, property, and occasionally, their families. This measure was resorted to, with all its attendant horrors, throughout some of the best parts of Ireland, previous to the insurrection, and for the purpose of exciting it.}
+
+[^1]: to irritate the Irish population; Slow Tortures0 were inflicted under the pretence of forcing confessions; the people were goaded and driven to madness.
+
+[^2]: General Aberçromby, who succeeded as Commander-in-Chief, was not permitted to abate these enormities, and therefore resigned with disgust. {General Abercromby, in general orders, stated that the army placed under his command, from their state of
+
+[^3]: a This paragraph and the text that follows it, till the end of the section, is Marx's rendering of the text from Mitchel's History of Ireland.. (Vol. I, pp. 261-62) which is close to the original.— Ed
+
+[^4]: b This sentence and the one that follows it are in German in the manuscript.— Ed. c Italics by J. Mitchel.— Ed.
+
+
+
+
+
+**[p. 258]**
+
+Ireland was by those means reduced to a state of anarchy, and exposed to crime and cruelties to which no nation had ever been subject. The people could no longer bear their miseries. Pitt's object was now effected and an insurrection was excited
+
+United Irishmen and Pitt. (Poland and Prussia)305
+
+Until 1795 the United Irishmen were Protestants, of a minor division of the people. Many of them were Pitt's dupes. At the same time (1793 sqq) emissaries were sent from Berlin to Poland in order to form there Jacobinical Clubs, that they might offer a pretext for the introduction of new armies.306
+
+Exorbitation of the People. Castlereagh's Boast
+
+The Irish people were to be tormented, outraged, forced into actual rebellion. Recall of Lord Fitzwilliam involved the country in consternation and dismay. To this succeeded, to fret and exasperate, the Habeas Corpus Act Suspension Bill, the Searching for Arms Act, the Bill to transport persons not found at home from sunset to sunrise; further many persons were shot because, being terrified, they attempted to escape when challenged, or, being seized, they were consigned to Prussia. Ensor met some of them at Berlin, and the law indemnified the perpetrators of such prodigious deeds. Then the Yeomanry were raised: these committed dreadful outrages, particularly in the North; burning houses in open day, commanded by their officers, who were also magistrates. The Militia rivalled the Yeomanry. It is said that pitch-caps were invented by some bravos of the North Cork Militia. Still more ferocious the Dublin Corporation. The riding-house, in Marlborough Street, distinguished for Protestant loyalty, and torture was administered by the scourge and the triangle. Summary executions not uncommon in preparing the Irish for the Union; bodies of Irishmen, deluded by the British Ministry, irritated and inflamed, tortured, tormented, in phrensy and despair, grasped such arms as they could seize, and defied their enemies. This was called rebellion; and Castlereagh boasted that he had made the conspiracy explode. He charged that mine as well as fired it.
+
+[^1]: PITT IN BRITISH PARLIAMENT DEFENDER OF THE UNION,
+
+[^2]: IN ORDER TO PREVENT MEASURES OF PACIFICATION.
+
+[^3]: CASTLEREAGH, 1797, IN IRISH PARLIAMENT
+
+[^4]: Castlereagh had been reformer in Ireland as Pitt in England, till office made him explode. Declared 1792 for Irish Parliamentary Reform. Ditto 1793 for Grattan's motion for Parliamentary Reform. When, Io! the Ministry of Ireland was changed and Camden succeeded Lord Fitzwilliam. With the change of men Castlereagh's opinion of Reform was upset. In 1797, the serpent, the viper, and snake made
+
+
+
+Pitt in British Parliament
+
+The reign of terror (Pitt thundered against the French one) prepared the Union. Pitt, while talking of the prodigious wickedness of interfering with prerogative orders and ancient customs, meditated during years of such verbose, political prudery, the end and ruin of the fundamental constitution of Ireland. At the very time when this his machination was completing, he defended, with swollen rhetoric, the independence of Ireland's Parliament. In the debate on the recall of Lord Fitzwilliam, in 1795, "he deprecated the discussion as a manifest violation of the independence of the Irish Parliament".;1 Two years later, in 1797. when Fox proposed to address His Majesty on the best means to tranquillise Ireland, this W. Pitt objected "on the unconstitutionality, the impropriety, and the danger to be apprehended from the interference of the British Parliament in the affairs of Ireland". This flagitious impostor deprecated any means for Ireland's prosperity; for he proposed, through its agonies and confusion, to effect its incorporate Union with Great Britain.
+
+LORD CORNWALLIS' ADMINISTRATION (AUGUST 1798 SQQ). CASTLEREAGH CHIEF SECRETARY.
+
+THE UNION TRICK
+
+(There he incorporated Tippoo Sahib for the East India Com- pany.)
+
+In India Cornwallis had defeated Tippoo Sahib, but concluded a peace which only increased the necessity of future wars.307
+
+19 October 1781, capitulation of Cornwallis by Yorktown.
+
+[^1]: Then there was Lord Cornwallis, the man thrashed by the Americans, during their War of Independence. As a governor for India, he was further qualified for destroying a nation's rights.
+
+[^2]: Cornwallis was the intermediate agent between Pitt and Robert Stewart, commonly called Lord Castlereagh.h
+
+[^3]: Quietness was almost restored. Cornwallis affected impartiality, whilst he was deceiving both parties. He encouraged the United Irishmen, and he roused the Royalists; one day he destroyed, the next day he was merciful. His system, however, had not exactly the anticipated effect. Everything gave reason to expect a restoration of tranquillity, it was through the impression of horror alone that an Union could be effected, and he had no time to lose, lest the country might recover its reason.
+
+[^4]: Fortunate accident for him: A portion of an armament, destined by France to aid the Irish insurgents, had escaped the Irish cruisers, and landed about a 1,000
+
+[^5]: •' Elisor's italics in this sentence.— Ed. b G. Ensor, Anti-Union. Ireland as She ought to Be, Newry, 1831, pp. 87, 88.— Ed.
+
+
+
+
+
+**[p. 260]**
+
+A considerable part of the Louth and Kilkenny regiments (militia), not finding it convenient to retreat, joined the victors, and in. one hour were completely equipped as French riflemen. About 90 of these men were hanged by Cornwallis afterwards at Ballynamuck. The defeat of Castlebar, however, was a victory to the Viceroy; it revived all the horrors of rebellion, which had been subsiding, and the desertion of the militia regiments tended to impress the gentry with an idea, that England alone could protect the country.
+
+Lord Cornwallis was supine, and the insurgents were active in profiting by this victory; 40,000 of them were prepared to assemble at the Crooked Wood, in Westmeath, only 42 miles from Dublin, ready to join the French and march upon the metropolis.
+
+The French continued too long at Castlebar, and Lord Cornwallis at length collected 20,000 troops, with which he considered himself pretty certain of conquering 900 men. With above 20,000 men, he marched directly to the [Shannon]c to prevent the passage, but he was outmanoeuvred]: the insurgents had led the French to the source of that river, and it was ten days before Castlereagh, by the slowest possible marches, which tended purposely to increase the public terror, reached his enemy. After some skirmishes, in which the French [were] victorious, they capitulated at Ballynamuckd They were sent to Dublin and afterwards to France.
+
+[^1]: Horrors now were everywhere recommenced; executions were multiplied. Cornwallis marched against the peasantry, still masters of Killala; and after a sanguinary conflict in the streets, the town was taken: some were slaughtered, many hanged, and the whole district was on the point of being reduced to subjection, when Cornwallis most unexpectedly proclaimed an armistice, and without any terms allowed the insurgents freely to disperse, and gave them 30 days, either to surrender their arms or be prepared for slaughter; leaving them to act, as they thought proper in the interval. This interval was terrific to the loyalists; the 30 days of armistice were 30 days of new horror, and the Government had now achieved the very climax of public terror, on which they so much counted for inducing Ireland to throw herself into the arms of the protecting country. And the first step of Pitt's project was fully consummated.
+
+[^2]: a On August 22, 1798; then follow, up to the section "More about the Union", excerpts from J. Mitchel's History of Ireland, Vol. II, pp. 27-39, 43, 45, 47-51, 59-62, 76-77 and 79.— Ed.
+
+[^3]: b On August 27, 1798.— Ed. c The manuscript is damaged here.— Ed. d On September 8, 1798.— Ed.
+
+
+
+
+
+**[p. 261]**
+
+Pitt now conceived that the moment had arrived to try the effect of his previous measures to promote a Legislative Union.
+
+The Irish Peers, under Lord Clare's, Lord Chancellor's, despotism, [were] ready for anything. The lure of translation neutralised the scruples of Episcopacy. Single exceptions: Marly, Bishop of Waterford, and Dixon, Bishop of Down. The rebellion had commenced on 22 May 1798, and on 22 January 1799, an Union was proposed. 40,000 British troops were then in Ireland.308
+
+Pitt now conceived the moment to have come to try the effect of his previous measures to promote a Legislative Union, and annihilate the Irish Legislature.
+
+The measure first proposed indirectly by Speech from the Throne on 22 January 1799. Lord Cornwallis' unexpected warfare against 900 Frenchmen, evidently intended more for terror than for victory.
+
+{ King's title was "George III, King of Great Britain, France, and Ireland, Defender of the Faith" etc. France was dropped on Amiens Peace.}
+
+Clare's (Fitzgibbon's) only check [was] the bar, which he resolved to corrupt. He doubled the number of bankrupt commissioners, revived some offices, created others, and under pretence of furnishing each County with a local judge, in 2 months established 32 new offices, of £600-700 each.
+
+First Parliamentary debate on 22 January 1799, lasted till 11 o'clock of 23 January (22 hours). Government obtained majority of 1 by open sale of a certain Fox, lawyer.
+
+[^1]: 2nd debate on 5 o'clock of 23 January 1799, continued till late in the morning of the 24, Government defeated. In every debate upon that measure, it was insisted upon that Parliament was incompetent, even to entertain the question of the Union. In this sense spoke Saurin, since Attorney-General, Plunket, since Lord Chancellor, Sir John Parnell, then Chancellor of the Exchequer, Bushe, since Lord Chief Justice, Lord Oriel, the then Speaker of the Irish House of Commons.
+
+[^2]: Sir Lawrence Parsons and others showed by irrefutable facts that the country had been worked upon by the English Minister, to terrify the Irish gentry into a resubmission to those shackles from which the spirit of the Volunteers and the nation had but a few years before released them. It was argued that the insurrection, first organised and fostered by Pitt, and protracted by Cornwallis, had been suppressed by the Irish Parliament; and that the introduction of foreign and mercenary Germans, to immolate the Irish, instead of extinguishing, had added fuel to the insurrection. Then great point: the incompetence of Parliament to betray its trust. Act of Union in itself a nullity ab initio,* and a fraud upon the then existing constitution.
+
+[^3]: Act of 23 George III "recognising the unqualified independence of Ireland, and expressly stipulating and contracting that it should endure for ever".
+
+[^4]: 24 January 1799 111 Members decided against Union, 105 for. Voted that night 216. Absent 84.
+
+[^5]: House of Lords on 22 January 1799 in answer to the Viceroy's address voted for the Union.
+
+[^6]: The Irish Lords lay prostrate before the Government, but the leaders were not inattentive to their own interest. The defeat of the Government in the Commons gave them
+
+[^7]: 11 From the beginning.— Ed.
+
+
+
+
+
+**[p. 262]**
+
+Cornwallis coquetted with the persons, assuming to themselves the title of "Catholic Leaders". The Catholic Bishops were generally decieved into the most disgusting subserviency.
+
+The members of the old opposition, who were returned to the new Parliament in 1797, did not exceed 50.
+
+Strongest cause of division amongst the Members [was] the Catholic Question. Cornwallis flattered the Catholics promising certain emancipation; the priests bowed before him. Never yet did any clergy so retrograde as the Catholic Hierarchy, on that occasion. Corruptly deceived. In 1798 the Catholics were hanged, in 1799 caressed, in 1800 cajoled, in 1801 discarded.
+
+Mr. Pitt, by private dispatch to Cornwallis, desired that the measure should not be then pressed, unless majority of 50 [was] certain. Clare, the Chancellor, overhauled this. Thousands of addresses and petitions against any further discussion. As a punishment for the rejoicings at Dublin over the rejection of the Union, soldiers were ordered to fire amongst the people, of whom a few [were] killed and some wounded.
+
+It appears in full proof, that in proportion to their respective numbers, the British Commons, at the period of the Irish Union, [had] 1/4 more corrupted, corruptible, and influenced members than that of Ireland at any period.
+
+5 and 6 February 1800. Union accepted by Irish House of Commons. Castlereagh compelled even felons in the gaols to sign Union petitions. English generals, who, at a moment when martial law existed, or a recollection of its execution was still fresh in every memory, could not fail to have their own influence over proclaimed districts and bleeding peasantry; tried to procure addresses to Parliament.
+
+[^1]: Mr. Darby, High Sheriff of King's County,309 and Major Rogers of the artillery, had gone so far as to place 2 six-pounders towards the doors of the Court House, where the gentlemen and freeholders of the county were assembling to address as Anti-Unionists.
+
+[^2]: In interval between old and new Parliament, the Parliamentary patrons had breathing-time after the preceding session, and began to tremble for their patronage and importance; some desperate step by Government became necessary to insure continuance of their support. Now unparalleled measure.
+
+[^3]: Castlereagh publicly declared, first, that every nobleman, who returned Members to Parliament, should be paid, in cash, £15,000 for every Member so returned; secondly, that every Member who had purchased a seat in Parliament should have his purchase money repaid to him, by the Treasury in Ireland; thirdly, that all Members of Parliament, or others, who were losers by an Union, should be fully recompensed for their losses; and that £1,500,000 should be devoted to this service; in other terms, all who supported this measure were, under some pretence or other, to share in the bank of corruption. A declaration so flagitious and treasonable was never publicly made in any country; [it] had its effect; before the meeting of Parliament he had secured a small majority of 8 above a moiety of the members.
+
+[^4]: After the debate on the Union in 1800, he performed his promise, and brought in a Bill to raise 1 V2 million of money upon the Irish people, nominally to compensate, but really to bribe their representatives, for betraying their honour and selling their country. George III gives his assent to a Bill to levy taxes for the compensation of Members of Parliament, for their loss of the opportunities of selling what it was criminal to sell or purchase.
+
+
+
+
+
+**[p. 263]**
+
+Lord Shannon received for his patronage in the Commons £45,000 The Marquis of Ely £45,000 Lord Clanmorris, beside a British peerage £23,000 Lord Belvidere, beside his douceur £15,000 Sir Hercules Langrishe £15,000
+
+15 January 1800 Speech from the Throne, debate proceeded till past 10 o'clock on the 16th. (60 members absent. Not governmental ones.)
+
+5 February next division. The Union propositions, as passed by the British Parliament, were, after a long speech, laid before the House of Commons by Castlereagh. After a debate of the entire night, at 11 the ensuing morning, the division took place.
+
+Members 300, absent 27, rest 273. For Castlereagh's Motion 158, against 115, majority 43. (273 members present.)
+
+The House was surrounded by military, under the pretence of keeping peace, in fact, to excite terror. (British Regiment.)
+
+The Bishops Troy, Lanigan, and others, deluded by the Viceroy, sold their country, and basely betrayed their flocks, by promoting the Union. Rebellion had terrified the great body of Catholics who could not move. Besides the 1 V2 million Castlereagh also had unbounded secret service money from England. British clerks and officers were smuggled into the Irish Parliament to vote away the Constitution of the Country. By the subjugation of Ireland, England has gained nothing but an accumulation of debt, an accession of venality to her Parliament, an embarrassment in her councils and a progressive danger to the integrity of the empire. The name of Union has been acquired, but the attainment of the substance has been removed farther than ever. Castlereagh palpably purchased 25 Members before the second discussion in 1800, which made a difference of 50 votes in favour of Government. Thus Pitt and Castlereagh carried the Union.
+
+* * *
+
+More about the Union11
+
+[^1]: The Irish Parliament were only delegates for a few years. How could they vote their own dissolution and extinction for ever? If the Irish Parliament was authorised to destroy the Constitution, why not the English? Why not pass a royal law? No appeal was made to the people. This was done in Scotland ; [they] did not dare doing it in Ireland. Even the rotten boroughs sickened at the sound.
+
+[^2]: The Irish Parliament of 1800 elected in 1797 for 8 years. The Union carried during the reign of Martial Law\ On the other hand, Resolution of the English House of Commons in 1741: "that the presence of armed . soldiers, at the election of members of Parliament, is a high infringement of the liberty of the subject, and an open defiance of the laws and constitution1."
+
+[^3]: Martial Law Bill in Ireland from commencement of the rebellion in 1798, renewed 1799, in 1800 revived, but in fact it was to be considered as a continuance of [the]
+
+[^4]: a The heading is in German in the manuscript. This section is. Marx's rendering of a passage from Ensor's Anti-Union, p. 126.— Ed.
+
+
+
+
+
+**[p. 264]**
+
+The Act of the Union is an Act of Conquest (Ensor). Ireland's Union with England—Cromwell's scheme. It was among the delusions of Monk. The English Government had no object by the Union, which means the extinction of Irish Legislature, but to deprive Ireland of its political consequence and authority, and subject her property and people to the mercy of England.
+
+The English Ministry, in guaranteeing Norway to Sweden, stipulated that Norway, by its union with Sweden, should enjoy an independent Parliament.311
+
+Just as the Union of Ireland with England was declared necessary, so had Lord Grenville declared: "Hampshire ought to be no more dear to us than Hanover."
+
+Popular Meetings (and Petitions) Despite Martial Law and the Suspension of All Guarantees for Popular Security. Ditto House of Commons during 1799A
+
+Popular indignation universal. Though sheriffs were chosen to obstruct petitioning, though the military opposed their assembling, and dispersed them; yet they met and protested, as at Birr, where Major Rogers actually marched with cannon against a county meeting. They met in Dublin, as in 1759, on the mere rumour of a projected Union. The people assembled in the towns of Belfast, Limerick, Drogheda, Newry, Maryborough, Carrickfergus, Pontadown, etc.; in the Counties of Dublin, Cork, Limerick, Wexford, Cavan, Longford, Tipperary, Galway, Monaghan, Fermanagh, Kilkenny, Meath, Carlow, the King's and Queen's Counties, Leitrim, Kildare, Down, Westmeath, Armagh, Clare, Louth, Donegal, Mayo, Wicklow, Tyrone, Antrim, Waterford. Thus the population in towns, cities and counties petitioned against that fatal measure, in spite of all terrors and opposition.
+
+Corruption etc. in 1800
+
+[^1]: The Irish Commons coincided with them. Though a mere fictitious representa- tion, first by the borough system, and secondly by its election (a mere farce), for the annalist remarks: "through consternation of some, and hostility of others, it had little more than the formality of an election." Yet the House of Commons had in 1799 rejected the Union by 111 to 105!
+
+[^2]: The English Government resumed the measure. Merciless profligacy. Vote with us or vacate your seat! Open, flagitious bribery! The bribe was administered in every form to wretches. Mr. Edgeworth relates that he was offered to vacate a seat, that a more convenient person might be elected in his place. Offices were granted simply, or divided among many; pensions added; endless promises. The Church afforded a great vent for the increase of prostitution; rectories and bishoprics were
+
+[^3]: •' In this section and in the two sections that follow it Marx sets forth, very closely to the original, passages from Elisor's Anti-Union, pp. 94-97 and 110.— Ed.
+
+
+
+So numerous were the superadded placemen alone in the Commons, that in the year of the Union 1800, 35 new writs were moved for the re-election of members, who had accepted places from England's Minister! The Lords, and the other boro[ughmong- ers],a of course, obtained a grand division of the Union-bribe—£622,000 was voted in the United Parliament, in 1801, [as] compensation for the borough-holdersl Only £622,000 paid, as a first instalment, by the borough-mongers of [England] to the borough-mongers of Ireland!
+
+Yet, after this overwhelming corruption, prompt payment, and endless expectancy, the minority opposed to the Union, in the first [division], in a House of Commons, of whom 84 only returned for the counties, counties of cities, and the University, and 216 for [boroughs and manors]. A simple bribe disqualifies a member from sitting in Parliament; and shall not such bribery, a small part of the corruption, dismiss the Act of Union from the Statute-Book?
+
+Just Punishment of the Traitorous Catholic Hierarchy and the Few Higher
+
+Class Catholics Who Joined Them
+
+Cornwallis (Pitt) had promised them full emancipation. Fulsome address from the Catholic clergy and Bishop Lanigan from Kilkenny to Cornwallis. Yet King George III, as will be seen from the following, accepted the Union as means to make no further concessions to the Catholics. Pitt in 1801 handed in his resignation, on pretext that King kept not his word as to Catholics. This [was] mere show. He wanted not to be minister during truce with Bonaparte.312 Re-entered afterwards the Ministry without stipulating any favour for Catholics.
+
+On the Legality of the Union
+
+[^1]: George III, in his letters, published by Lord Kenyon, declares that he was inclined to assent to the Union, believing that the Union would for ever preclude any further concessions to the Catholics.
+
+[^2]: His words in his letter to Pitt, February 1, 1801, are: "When the Irish propositions were transmitted to me, by a joint message from both Houses of Parliament, I told the Lords and Gentlemen, sent on that occasion, that I would with pleasure, and without delay, forward them to Ireland; but that, as individuals, 1 could not help acquainting them, that my inclination to an Union with Ireland was principally founded on a trust, that the uniting the established churches of the 2 kingdoms would for ever shut the door to any further measures with respect to the Roman Catholics. " b
+
+[^3]: Attorney-General's Scott's (afterwards Lord Clonmel, principal agent of Pitt etc.) declaration of resisting the usurpation of England, in 1782, was repeated in 1800, by 2 successive Attorney-Generals of Ireland. Mr. William Saurin, in his place in
+
+[^4]: a The manuscript is damaged here.— Ed
+
+[^5]: b G. Ensor, Anti-Union, p. 110.— Ed
+
+
+
+
+
+**[p. 266]**
+
+Mr. Plunket made the same declaration, but in rather stronger terms, as he vouched for his son as well as himself; and soon after became Attorney-General.
+
+In every debate upon that measure, it was insisted upon that the Parliament was incompetent, even to entertain the question of the Union. So Saurin, Plunket (since Lord Chancellor), Sergeant Ball, the ablest lawyer of Ireland, Fitzgerald, Prime-Serjeant of Ireland, Moore, since a judge, Sir John Parnell, then Chancellor of the Exchequer, Bushe, since Chief Justice, Lord Oriel, the then Speaker of the (Irish) House of Commons.
+
+January 1799. Irish House of Commons. Plunket (Solicitor-General for Ireland under Addington Cabinet) declared: "I tell [you] a that if, circumstanced as you are, you pass this Act, it will be a mere nullity, and that no man in Ireland will be bound to obey it." ''
+
+7 May 1802 Forster declared in the United House of Commons 1802 that Castlereagh, in Ireland, had made use of public money [for the pur]pose of obtaining votes in favour of the Union.
+
+Grey, May, 1806, House of Commons said that ''these votes for Union were purchased by corruption '•'.
+
+"The ac[t of] a borough-mongers and placemen is irrevocable, against the Irish Nation!" (Ensor.)c
+
+Opinions of English Liberals and Radicals on the Union
+
+Cobbett. Political Register, 14 February 1807, in connection with the "Threshers" disturbances in West Ireland,313 lays the following ironical words in the mouth of an Irish exciseman:
+
+[^1]: Lord Holland: The English were injured (by the Union) particularly by the means it affords to increased parliamentary corruption. This was foreseen by Lord Holland, who, in debating the Union preparatory to its enactment, said "that it was incompatible with the opinions of all those who wished for Parliamentary Reform". , {The Representative Irish Peers, thickening the ranks of the House of Lords, have strengthened the prerogative. The whole peerage of Ireland is a borough, of which the King is Patron X
+
+[^2]: George Tierney said, speaking of the Union before it was enacted, that it would ruin Great Britain. It has ruined both England and Ireland. The subjugation of Ireland has made England's people a mere taxable commodity. Instead of the universal tranquillity, which Canning promised, when advocating the Union, the Union was followed by new and severe laws, extraordinary commissions, and unlimited agitation. Ireland is mocked with some of the minor forms of freedom.
+
+[^3]: "Union of 1800 a ruin to the annexed, a torment to the annexing nation." (Barrington.)
+
+[^4]: a The manuscript is damaged here.— Ed, b Cf. J. Mitchel, The History of Ireland, Vol. II, p. 77.—Ed. c G. Ensor, Anti-Union, pp. 97-98.— Ed.
+
+
+
+In connection with the Irish Insurrection Bill of 1807, which was still in force in 1809:
+
+Cobbett, Political Register, 9 December 1809: "Angry with the Irish; because — because what? Why, because their existence endangers our safety] Angry with them, because they are alive, and have a desire to enjoy life! Sad dogs those Irishmen must be to desire to keep alive, when to keep (dive may be dangerous to usl" "We may, as I before observed, be angry with the Irish, because about 5 millions of them continue to be alive, we may hate them and curse them; we may wish their island sunk to the bottom of the sea; but, still they live, and live they will" "It is, therefore, as useless to be angry with them as it would be to be angry with thunder and lightning."13
+
+Cobbett. Political Register, 20 February 1811: "What an infamy to the English nation, who really seem to desire to be deceived with regard to Ireland; but, whose silly and base desire will be frustrated in spite of themselves; for hear and see and feel the truth they must. They may hide their heads in their hoods and cloaks as long as they will; they may, as long as they please, pay impostors to sooth their cowardly fears, but all will not do. Ireland! Ireland! Ireland! will, maugre all their miserable devices, present herself to them in her true and formidable shape."1
+
+Ensor. "Ireland with its foundations is pressed downward by the accumu- lated burthens of England and her empire." (Pays 5 millions now for absentees etc. to England.)d
+
+[^1]: Curran: She (Ireland) "thought the circulation of the political blood could be carried on only by the action of the heart within the body, and could not be maintained from without". "The instruments of our government have been almost simplified into the tax gatherer and the hangman." With the Union: "all semblance of national independence buried in that grave in which our legislation is interred, our property and our persons are disposed of, by laws made in another clime, and made like boots and shoes for exportation to fit the wearers as they may. It was, in fact, the real design of a rash, and arbitrary, and short-sighted projector, at once to deprive you of all power, as to your own taxation, and of another power of not very inferior importance, and which, indeed, is invariably connected with taxation, to rob you of all influence upon the vital question of peace and war; and to bring all within the control of an English minister. This very power, thus acquired by that detested Union, has been a millstone about the neck of England. From that hour to this she has been flaring away in her ruinous and wasteful war."e
+
+[^2]: a Cobbett's Weekly Political Register, No. 7, February 14, 1807, Vol. XI, p. 255.— Ea\
+
+[^3]: b Ibid., No. 23, December 9, 1809, Vol. XVI, pp. 866-74.— Ed. c Ibid., No. 15, February 20, 1811, Vol. XIX, pp. 420-21.— Ed d G. Ensor, Anti-Union, p. 118.— Ed e Marx quotes passages from Curran's speech made on October 17, 1812, at the General Election in Newry. See J. Ph. Curran, The Speeches, pp. 465-66, 468-69.—Ed.
+
+
+
+
+
+**[p. 268]**
+
+Morning Chronicle, 1828: "The hatred of the Union is the only point, we believe, as to which all Irishmen are agreed. It has been an unfortunate measure both for England and Ireland]"314
+
+Petty said: "England has constantly -lost, these 500 years, by the meddling with Ireland." b
+
+Loss to England315
+
+Irish Members—access of venality and corruption to the House of Commons. Increase [of] ministerial usurpation.
+
+"How the Irish Members precipitated themselves, when the Manchester Massacre was to be justified by Castlereagh, the manager of the Union! How they thronged to pass the 6 Acts!"316 (Ensor)
+
+"The French war strengthened the royal prerogative in England, as it increased the means of expenditure, and the fonds of corruption. These effected the Union, and the Union multiplied every scheme of rapine and prodigality." (Ensor.)
+
+Ireland—one of the pretexts of keeping a large standing army.
+
+[^1]: By the Union, the military of one country, when transferred, are in effect foreign mercenaries. War service in time of peace.
+
+[^2]: English House of Commons. "Increased members, and the increased and multiform business in the House of Commons, have lessened the attention of the great body of the members. The House of Commons, before the Union of Scotland and England, consisted of 513 members. At this period the business of the nation preceded application to private affairs. The legislature then met in the morning. The members were fined if they absented themselves when the Speaker took the Chair, and absence for a whole day was punished with an enhanced penalty. Now the House consists of 658 members, yet not a 10th are present when the Speaker takes the Chair on any day. Business is often transacted when there is, technically, no House." (Ensor.)
+
+[^3]: "Every acquisition of a nation by a nation is injurious to the liberty of both. The accessory country is a lapsed inheritance, while the people who make the acquisition are submissive to their own rulers, lest they might countenance any disturbance in the superadded nation; they submit at home for a barren, often expensive, superiority abroad. [] This the whole story of the Roman history as the world fell before the Roman aristocracy, the Roman citizens were pauperised and enslaved. [] Every impeachment, of liberty in one country leads to its loss in another." (Ensor.)
+
+[^4]: "Talk about revolutionary principles] The Duke of Clarence, afterwards William IV, called, in 1793, an effort to abolish the slave trade part of 'the levelling principles of the French Revolution'."
+
+[^5]: a G. Ensor, Anti-Union, p. 11.— Ed b W. Petty, The Political Anatomy of Ireland, Dublin, 1769, p. 320 (quoted from G. Ensor, Anti-Union, p. 31).— Ed
+
+
+
+Confiscations in Ireland511
+
+Sir W. Petty says generally: "most of the lands of Ireland have been, within 150 years, forfeited"?
+
+In fact, all Ireland has been confiscated, three times, again and again. On some occasions, such were the forfeitures, that the territory on sale, from the glut of the market, fell to V4 of its former annual value. Lawrence mentions, "that from 1654-1660, not only the adventurers318 and soldiers, but all persons who could command money, traded in land, and thereby obtained better estates in one year than by treble the sum they got ever before in 7 years' traffic".
+
+This upsetting and dislocation of property, by force of arms, were aggravated by wicked inquisitions, and the practices of the crown lawyers. When the head of a clan died, if the descent followed the Irish custom, the land was forfeited: for this custom was repugnant to the English code. [Yet, if]b this land were distributed according to the English law, that was reputed irregular, for it should have been transmitted, said the lawyers, according to the Brehon /aw.319 Thus the land was forfeited either way, and the Crown became the sole heir. By these means, whether in peace or alleged insurrection, property was subjected to chicane, and the people were systematically robbed. Sometimes the people revolted, e.g. under Edward II and Charles /.32() Harris states the reasons of this last insurrection thus: "The preposterous rigour, and unreasonable severity—the covetous zeal and uncharitable fury of some men — and, lastly, the fear of utter extirpation."
+
+Scotch Union with England
+
+[^1]: Scotland and England parts of the same island. But the population differed from that in England. In Scotland at that time there was peace at home and abroad. There were only 3,000 troops in Scotland (Defoe)} Again, when the Parliament of Scotland was to be elected, the electors were apprised that they were to depute members to decide respecting the Union of the 2 countries. When Union [was] first proposed in the Scotch Parliament, 64 majority for Union. Scotland by
+
+[^2]: •l W. Petty, op. cit., p. 359 (quoted from G. Ensor, Anti-Union, p. 51).— Ed. b The manuscript is damaged here.— Ed. 1 D. Defoe, The History of the Union of Great Britain, Edinburgh, 1709; quoted from G. Elisor, Anti-l Tnion.. . p. 5r>.— Ed.
+
+
+
+
+
+**[p. 270]**
+
+[IRELAND FROM THE AMERICAN REVOLUTION TO THE UNION OF 1801
+
+SUMMARY]321
+
+1) FROM 1778 TO 1782. (LEGISLATIVE INDEPENDENCE).
+
+(CATHOLICS)
+
+a) Penal Code up to 1778 in full vigour against the Catholics. State of Irish Parliament in 18th century until American War of Independence. Poynings' Law (a statute of Henry VII, by his Attorney- General, Sir Edward Poynings). Statute 6, George I.
+
+Only some opposition to England on commercial matters. Influence of absentees. (Peers principally.)
+
+b) 1778 Irish Parliament relaxes severity of the Penal Code?22
+
+Catholics were allowed to take leases of land. This [is a] consequence of the American war, and the treaty of France with America (6 February 1778).
+
+June 1778 commenced war with France. Summer 1779 King of Spain accedes as ally to United States and France. Plymouth assailed by their united fleets (August 1779). Threatened invasion of Ireland.
+
+The Volunteers—armed Protestantism of Ireland?2^ {(26 February 1780: Armed Neutrality founded by Russia.)} In 1779 Ireland left ungarrisoned.
+
+The Armed Associations first local and provincial, strongest in the North. First against Invasion. Protestant farmers rallied first under
+
+[^1]: C) VOLUNTEER ORGANISATION.
+
+[^2]: THE FREE TRADE MOVEMENT. FIRST CONCESSIONS OF ENGLAND
+
+[^3]: a See Debates in the English House of Lords on the Union with Scotland on June 2, 1713, in A Collection of the Parliamentary Debates in England, from the Year M. DC, LXVIII to the Present Time, Vol. VI, 1740.— Ed. b G. Ensor, Anti-Union, pp. 54, 56-57. Ensor has: " in the English House of Lords".— Ed.
+
+
+
+
+
+**[p. 271]**
+
+Grattan moves an amendment to the address, where we find the following:
+
+"constant drain to supply absentees, and the unfortunate prohibition of our trade", demands to "open a free export trade".
+
+Amendment of Hussey Burgh (the Prime Sergeant):
+
+"that it is not by temporary expedients, that this nation is now to be saved from impending ruin".324
+
+Unanimously carried. Volunteers rightly attributed to them- selves this success. Increase in their number and confidence. Lord North supercilious. Does nothing. Non-Importation and Non- Consumption Act now general [cry] in Ireland. Dublin (city) Resolutions. Dublin Volunteers chose William, Duke of Leinster, for their Chief. Soon 4 provincial armies organised, Earl of Charlemont first commander-in-chief of the Ulster army, soon general com- mander-in-chief.
+
+Free Trade became the watchword of the Volunteers. James Napper Tandy at the head of Dublin Volunteer Artillery, with labels on the mouths of their cannon: "Free Trade or Speedy Revolution". Meanwhile: 19 October 1781, Cornwallis capitulates at York Town (Virginia).
+
+30 November 1782. Paris Preliminary Treaty between United States and England. Lord North now frightened. America already lost. English House of Commons. 24 November 1781 speech from the throne. 25 November 1781 British Parliament meets, first Bills of concessions receive royal assent.
+
+2 December 1781. In hot haste these laws restrictive of commercial and manufacturai restraint are now revoked, but North tried, by considering them bit by bit, in longer intervals, to get over the session of 1782 and do no more. Now, on the contrary, the Irish Volunteers became aware that under the pretext of making concessions British Parliament asserts its legislative authority over Ireland. Free Parliament becomes now a watchword added to that
+
+[^1]: 11-733
+
+
+
+
+
+**[p. 272]**
+
+Resolutions entered into by almost every military camp, and every incorporate body, that they would no longer obey any laws, save those, enacted by the King, Lords, and Commons of Ireland.
+
+At that time: Poynings' Statute subjected Irish Legislature to British Attorney-General and British [Privy] Council. 6, George I to Statutes of British Parliament and British Appellant Jurisdiction.
+
+Standing army in Ireland independent of Parliament, under the regulations of a British Statute, Perpetual Mutiny Bill and hereditary Revenue of the Crown.
+
+Judges of Ireland hold their offices only during the will of the British Minister, and their salaries barely sufficient to keep them above want.
+
+Irish Parliament met but once in 2 years. In the British Attorney- General was vested the superintendence of their proceedings, in the British Privy Council the alteration and rejection of their Statutes. Want of Protection for Personal Liberty in Ireland: No Habeas Corpus Act.
+
+9 October 1781. Irish House of Commons. Resolution of vote of thanks for the Volunteers, for their exertions, and continuance. Unanimous.
+
+These brought down the British Government to the feet of the Volunteers—self-armed, self-governed, self-disciplined associa- tions; by this time [they] exceeded in number the whole regular military, force of the British Empire. Now regular and public deliberative meetings of the Volunteers. Catholic bodies entered the Volunteer army, officered by Protestants. Cry: "that their connection with England was only federative". Repeal of 6, George I asked.
+
+The armed associations of Ulster first appointed delegates to declare their sentiments in a general Assembly. Convention at Dungannon, 15 February 1782. Agreed upon the celebrated Declaration of Rights and Grievances. Delegates of 25,000 Ulster soldiers.
+
+Convention resolves to appoint 9 of their members to act as a Committee at Dublin, to communicate with the other Volunteer Associations, deliberate with them on carrying the Dungannon Resolutions into effect. In every Volunteer Corps of Ireland the Dungannon Resolutions accepted.
+
+Pressure of this on the Irish House of Commons. Its sessions [were] biennial, and, consequently, their grants for the Government for 2 years at once. 1 hey now resolved on granting supplies to the Crown for 6 months only. This had its effect.
+
+Proceedings of Irish voluntary bodies and corporate bodies [became] every day more serious and decisive, tone in the House of Commons more menacing. Lord North no longer possible.
+
+April 1782. Marquis of Rockingham Cabinet (James Fox in it). Duke of Portland, nominated Lord Lieutenant of Ireland, arrives at Dublin 14 April 1782, had to meet the Irish Parliament on 16 April.
+
+Message of George III to British Parliament, 18 April 1782, wherein necessity expressed "to come to a final adjustment with Ireland".
+
+British House of Commons express their full concurrence. House of Commons, 16 April 1782. Portland had wanted to procrastinate, Grattan communicated to him that [this was] impossible without provoking anarchy. Hely-Hutchinson, Lord Lieutenant had ordered him to communicate King's message for "a final adjustment". Grattan's amendment of the address in reply affirming Ireland to be a "distinct kingdom with a Parliament of her own the sole legislature thereof" etc.
+
+G. Ponsonby (on behalf of Portland^ seconded this. Unanimously passed. Strictly before and after this scene firm Resolutions of the Volunteer Corps. Their firmness achieved this Revolution (even Fitzgibbon and John Scott, afterwards Lord Clonmel, on 16 April 1782 frightened into patriotism). Immediately after this Portland sends two despatches to England, one public, the other private and confidential to Fox, as to the necessity of yielding (ascertaining at the same time that he would act on the Volunteers through Charlemont, on the House of Commons through dissension of Flood and Grattan).
+
+Irish Parliament prorogued for three weeks, to wait on King's Answer. Meanwhile public reviews of the Volunteers (then 100,000 effectives); nearly V3 of the whole English Army, besides, are Irish, many sailors ditto.
+
+Irish House of Commons meets: 27 May 1782: Quasi Throne Speech of Portland. Will concede to all demands, British Parliament ready; King gives his Royal Assent to acts to prevent the suppression of Bills in the Privy Council of the Kingdom, limits the Act (Mutiny Bill) for Army to 2 years. (Besides much soft-sawder.) Grattan fool, address of thanks.
+
+[^1]: "The British Government had given up every claim to authority over Ireland" (he says), "that we conceive the resolution for an unqualified repeal of 6 George I to be a measure of consummate wisdom", "that no constitutional question between the 2 nations will any longer exist. "
+
+[^2]: 11*
+
+
+
+
+
+**[p. 1782]**
+
+Britishers frightened. Precipitantly Bills enacted for making the concessions to Ireland. 6, George I repealed by British Parliament, obtains sanction of King, instantly transmitted to the Irish Viceroy, by him communicated to all the Volunteer Corps.
+
+Irish House of Commons, 30 May 1782. Bagenal's proposition for Grattan repeated. Portland offers him, as part of the intended grant, on the part of the Crown, the "Vice-Regal Palace in the Phoenix Park", the King's best palace in Ireland. Of course refused. Grattan got from House of Commons £50,000.
+
+II) FROM 1782 (SINCE DECLARATION OF INDEPENDENCE)
+
+TO 1795
+
+A) 1782-1783. (REFORM BILL DEFEATED. VOLUNTEERS HUMBLED)
+
+Some small measures to relax the severity of Penal Code against Catholics. Opposed by bigots and Castle325 influence. Passed however. The concessions very limited.
+
+At length Fox himself declared in British Parliament that
+
+By this Viceroy's duplicity [was] exploded, Grattan's stupidity exposed, Flood is now still feebly supported in the House of Commons, but strongly by the Volunteers.
+
+19 July Flood moves leave to bring in a Bill for the ascertaining of Irish legislative etc. independence. Even leave to bring in this Bill was negatived without a division. (Grattan!) 27 July 1782. Irish Parliament. Prorogued by Portland. In his proroguing speech: "inviolable adherence to that compact etc." Marquis of Rockingham died 1782. Fox-North Coalition. Portland superseded by Earl of Temple (later Marquis of Buckingham). His Chief Secretary Mr., afterward Lord Grenville. His Administration from 15 September 1782—3 June 1783. More than 150,000 Volunteers now on the Muster-rolls. Strong accession to them of Catholics. Resolved no longer to obey or suffer to be obeyed any law or statute passed in England for Ireland.
+
+[^1]: "the repeal of that Statute" (6, George I) "could not stand alone, must be accompanied by a final adjustment", "treaty, to be adopted by both Parliaments, to be entered upon to finally become an irrevocable arrangement between the 2 countries".
+
+
+
+Parliament divided between Flood and Grattan. The latter (Whig spelt) always in majority. British Administration resolved to foster the division of Nation thus created. Baffled by injudicious conduct of some Members of the British Parliament.
+
+Sir G. Young in British House of Commons. Lord Mansfield in the Court of King's Bench. Lord Abingdon in the House of Lords.
+
+Volunteers beat to arms throughout Ireland. Above 120,000. Flood [has the] upper hand amongst them. New panic of British Ministry.
+
+1783. 23 Act of George III. All right of legislative interference on the part of British Parliament, and appellant jurisdiction in England, repudiated. Without debate passed.
+
+This British Renunciation Act discredited the Irish Parliament with the Irish People. Showed either its insufficiency or corruption, or would have been superfluous. Reform of the Irish Parliament now the cry.
+
+Irish Parliament. Rotten Borough System. Members of House of Commons nominated by individuals, especially Peers, nominated by the King, voted by proxy in House of Commons. Membership purchased by money and its exercise sold for office. These purchases also made by servants of the Executive Government. The Volunteers had the facts sifted etc. 1 Peer nominated 9 Commoners etc. 'At of members only freely elected by people. New Delegates Assembly of Volunteers in Dungannon. 10 November 1783 was proclaimed for the first sitting of the Grand National Convention of Ireland at Dublin. Rotunda place of their meeting. British Ministers knew that if Reform [were effected] in Ireland [it] could not be withheld from England. Then commercial jealousy of England. Charlemont President by trickery. Plan of Reform passed, to be brought into the House of Commons by Flood. Sittings of Convention were made permanent till answer [was received].
+
+The Government refused leave to bring in Flood's Bill, because it had originated from armed deliberation.
+
+The Government knew that the triumph of the Parliament implied not only the destruction of the Convention, but of the Volunteers. Bill rejected by 158 to 49. 158 of the majority were placemen, as in 1800. Address to the King, offending the Volunteers, carried. Charlemont adjourns the Convention by tricks. Now struggle between the bigots (Charlemont) and Emancipation (Catholic) amongst the Volunteers and People. (Earl Bristol, Bishop of Derry for full emancipation. Address in that sense by Belfast Volunteers.) Foolish Charlemont made
+
+
+
+**[p. l]**
+
+B) FROM THE END OK 178-i TO 1791 (FOUNDATION OF UNITED IRISHMEN)
+
+December 1783. Pitt Minister. Duke of Rutland Viceroy. Orde Minister. Rutland died October 1787. Duke of Rutland Viceroy. (Orde Chief Secretary.) December 1783- October 1787. In the House of Commons repeated useless attempts at Reform. Orde's Commercial Propositions. May, 1784. Griffith proposes House of Commons inquiry into the commercial intercourse between Ireland and Great Britain, Irish trade he wanted to be protected against English competition. Government took that proposal out of his hands.
+
+7 February 1785. Orde announced, and on 11 February 1785 moved, 11 Propositions on Trade. This plan proffered as a boon of reciprocity. Favour [to be] paid for by £140,000 new taxes. 22 February 1785. Pitt moved 20 Resolutions in the British House of Commons. Amended in English sense. T h e n sent to Ireland. Half the globe interdicted to Irish ships and interdicts laid on Irish goods. Whole Custom-House Legislation taken away from Ireland etc. (See p. 22a.)
+
+Irish House of Commons. O n 15 August 1785, after different previous stormy sittings, Orde had to abandon his Bill for the session, [and] for ever. Orde's Propositions merged into a secret design for the Union.
+
+11 August 1785. Curran had threatened with opposition, "not only by words".
+
+12 August 1785. Curran:
+
+Irish House of Commons. 14 February 1785. Bill for raising Militia. Against the Volunteers. (£20,000 for Militia.) 1784 renewed effort for Reform. Henry Reilly, Sheriff of the County of Dublin, in consequence of a requisition, summoned his bailiwick
+
+[^1]: "the Bill portends a surrender of the Constitution and Liberties of Ireland".
+
+[^2]: a Here and further on Marx refers to the main section of his manuscript (see pp. 240-41 of this volume).— Ed.
+
+
+
+24 February 1785 Brownlow moved vote of censure on the judges of that Court, for the attachment. Rejected by 113 to 71.
+
+The endeavour to regain by corruption what was surrendered to force, began in 1782, and increased greatly after the defeat of Orde's Propositions.
+
+Irish House of Commons 13 March 1786. Forbes moves to limit the amount of Pensions. This failed.
+
+12 March 1787. Forbes renewed his Bill. Failed again. No Ministerial Responsibility in Ireland. Irish House of Commons January 19, 1787. Outrages in the South, caused by misery of the people, from tithes, rents, absenteeism, bad tenures, harsh treatment etc. (Since the end of 1791, United Irishmen, Political Parties united themselves with the peasants, the Republicans of the North.)
+
+1786. Lord Lieutenant's Opening Speech referred to "frequent outrages" in the South, "Right Boys" of Kilkenny. Yet the only Bill, brought in by Government, the Dublin Police Bill, against which the City of Dublin petitioned.
+
+1787. Viceroy's speech on this subject much more positive. Fitzgibbon accused the landlords of grinding the people, and abetting the disturbances against the clergy, asked for more powers.
+
+19 January 1787. Fitzgibbon said the disturbances commenced in Kerry etc. "Captain Right". Spread then through Munster etc. Their object the tithes, then to regulate the price of lands, raise the price of labour, oppose the collection of hearth-money and other taxes.
+
+Curran during the debates:
+
+19 February 1787. Right Boy Bill. Bill committed by 192 against 31. By it Riot Act, introduced from England, passed.
+
+20 February 1787: Proposed to limit the Bill to Cork, Kerry, Limerick, Tipperary. Motion lost without a division. By this Bill capital punishment for tendering an oath etc.
+
+13 March 1787. Tithes. Grattan moved, that if tranquillity [were] restored, at the opening of the next session, the House would consider the Tithe Question. Motion lost, without a division. English Secretary declared
+
+[^1]: "You may talk of commerce extending but what, in God's name, have they to do with the wretched peasantry?"
+
+[^2]: "he was a stranger to the distress" and would "never have it considered by the Parliament".
+
+
+
+
+
+**[p. 278]**
+
+Marquis of Buckingham (formerly Earl of Temple) second time Viceroy. 16 December 1737-5 January 1790. (Orde Secretary!) (Fitz- herbert Chief Secretary.) Influence of French Revolution of 1789 commences during this period. Irish House of Commons. 21 April 1789. Disfranchisement of Excise Officers' Bill, Rejected by 148 to 93. 25 April 1789: Dublin Police. Motion
+
+"attended with waste, and useless patronage". Rejected by 132 to 78.
+
+Regency Bill, 1789. Ceorge III mad for some time, concealed, at the end of 1 788 it could no longer be hid. In the ministers' draft of the address in answer to Lord Buckingham they praised themselves. 6 February 1789 Grattan moved amendment. ([People] believed that Fox would become Premier Minister under the Prince of Wales.) Carried without a division. 11 February 1789 Ministers tried to postpone division on the Regency; their avowed motive to know the Resolutions of the British Parliament (appointing Prince Regent with limited powers). (These resolutions passed in England on 23 January, accepted by Prince 31 January, but had not yet reached the Irish Government.) Postponement refused. Prince nominated Prince Regent of Ireland with unlimited Powers. Passed without division. 12 February 1789 Conolly moves address, February 17 concur- rence of L.ords, 19 February presented to Buckingham. Refused to transmit it, 20 February 1789 Deputation to Prince appointed. Vote of Censure against Buckingham. 27 February 1789 Deputation (of the Commons) send them letter with "warmest thanks" of the Prince, 20 March 1789 still more fervent letter of the Prince to Irish House of Commons on recovery of his father's health.
+
+House of Commons, 4 February 1790. Stamp officers' Salaries. (Proposed to cut them down and regulate them. Rejected by 141 to 81.) (Curran in his speech alludes to the French Revolution.) 11 February 1790. Forbes moves an address describing and censuring several recent pensions. Rejected by 136 to 92.
+
+[^1]: ADMINISTRATION OK JOHN FANE, EARL OF WESTMORELAND
+
+[^2]: (CHIEF SECRETARY HOBART, AFTERWARDS EARL OF BUCKINGHAMSHIRE)
+
+[^3]: (5 JANUARY 1790—4 JANUARY 1795)
+
+
+
+"During the whole of the session of 1790, we have, in the name of the people of Ireland, demanded from them the Constitution of Great Britain, and it has been uniformly denied. We would have passed a law to restrain the shameful profusion of a pension-list—it was refused by a majority. We would have passed a law' to exclude persons, who must ever be the chattels of the government, from sitting in this House. Refused by a majority. A bill to make some person, resident among you, and therefore amenable to public justice, responsible for the acts of your governors refused. [] This uniform denial proof to the people of Ireland, that the imputation of corrupt practices is founded in fact."
+
+Disputed Election of Lord Mayor in Dublin (1790)
+
+Citizens of Dublin pledged themselves to elect no one as Lord Mayor or Member of Parliament for the city, who held place or pension from Government. 16 April 1790 Aldermen choose Alderman James, a Police Commissioner, Lord Mayor for the ensuing year. Rejected by the Common Council, ditto 7 other names. They elected Alderman Howison (Napper Tandy led the popular party). Aldermen re-elect James. Before the Privy Council. Orders new election. Same farce repeated.
+
+10 July 1790. Curran pleads before Privy Council for Howison. Privy Council for James, who resigns on 5 August 1790. Howison chosen [by the] Aldermen.
+
+Insurrectionary outrages at Dublin on Camden's arrival. Fitzwil- liam's recall triumph for the Separation party. Irish Republic soon object of the United Irishmen. Bulk of the Presbyterians of Down, Antrim, Tyrone, joined by multitudes of Catholics and Protestants in Leinster. Catholics of the North Defenders or Ribbonmen. Irish House of Commons 4 May 1795. Second Reading of the Emancipation Bill. Rejected by 155 to 84. {An Insurrection Bill passed etc., law allowing the Lord Lieutenant to proclaim counties;
+
+[^1]: 16 July 1790. Napper Tandy in Common Council carried Resolutions censuring Privy Council, Aldermen, and summoned meeting of freemen and freeholders at the Exchange. Adjourned to 3 August to draw up State of Facts, which [was] done accordingly. 24 July: Whig Club [passed] similar Resolutions. Their quarrel with Fitzgibbon.a
+
+[^2]: a The next, 9th, page of the manuscript is missing.— Ed.
+
+
+
+
+
+**[p. 280]**
+
+Irish House of Commons 3 February 1796. Indemnity Bill. 25 February 1796. Insurrection Bill. {Right of arbitrary transporta- tion to serve in the navy given to magistrates.) Curran:
+
+"bill for the rich, and against the poor".
+
+Since end of March 1796 whole counties of Ireland proclaimed.
+
+13 October 1796. French war. (Hoche was just assembling at Brest, and Wolfe Tone, Grouchy, and a part of the expedition, reached Bantry Bay on the 22 December, left it only the 28.)
+
+Camden opens Parliament. Resistance to France (Invasion!) and "popular passion and public opinion".
+
+Curran. Government has instigated persecution of Catholics, for 2 years [they] murdered etc. in one of the counties. Ponsonby's Amendment to Address rejected by 149 to 12. Then [the] Bill (by Attorney-General) [was] passed, [the] Bill to empower the Lord Lieutenant to take up and detain all such persons, as were suspected of treasonable practices etc. It was read many times, once or twice committed for the morrow.
+
+14 October 1796. Suspension of the Habeas Corpus Act. 17 October 1796. Catholic Emancipation Bill rejected. 6 January 1797. Hoche's Expedition. Pelham brings down message of Viceroy for new war taxes.
+
+18 March 1797. Disarming of Ulster. Message of Camden. (Proclamation of General Lake. Belfast. 13 March.)
+
+15 May 1797. Curran, Grattan etc. secede from the House. 3 July 1797 House adjourned. Castlereagh Chief Secretary.
+
+14 October 1797. Orr hanged for having administered oath of the United Irishmen to a private soldier (proven only by an informer etc.)
+
+{10 May 1795. Organisation of Ulster (United Irishmen) com- pleted. In autumn 1796 made military in Ulster. Towards the middle of 1797, this system spread to Feinster. Only 19 February 1798 the Executive of the United Irishmen resolved "that they would not be diverted from their purpose by anything which could be done in Parliament".
+
+[^1]: 24 February 1797. Internal Defence. Yeomanry Infantry etc. (p. 38).a
+
+[^2]: a See this volume, pp.253-54.— Ed.
+
+
+
+
+
+**[p. 281]**
+
+23 May 1798 the insurrection commenced (Dublin), 17 July Lord Castlereagh announced its final defeat.
+
+Treason trials were held in February and March 1798 before the beginning of the insurrection? Free quarters. Slow tortures, under the pretence of forcing confessions etc. Summary executions. At the outbreak of the insurrection martial law proclaimed.
+
+25 July 1798. Negotiations of leaders from gaol with the Government. Settled 29 July. (Released only by peace of Amiens, 1802!)
+
+PITT'S PLAN TO ENFORCE AND PROVOKE THE REBELLION (P. 41 SQQ.)"
+
+1598-99 Elizabeth (Mountjoy and Carew); same 1798-99. Earl of Carhampton. General Abercromby.
+
+United Irishmen and Pitt. Prussia and Poles. Castlereagh boasted that he had made the conspiracy explode. He charged the mine as well as fired it.
+
+Pitt 1795 and 1797 opposed debates for pacification of Ireland in British Parliament on pretext that it was an encroachment on Irish independence.
+
+Pitt, Castlereagh, Cornwallis. (19 October 1781 Cornwallis's Capitu- lation at York Town, Virginia.) Cornwallis wants terror to carry the Union.
+
+Happy accident for him: 22 August 1798 about 1,000 French, under Humbert, entered Killala Bay, carried Castlebar 27 August.
+
+[^1]: LORD CORNWALLLS GOVERNMENT. UNION
+
+[^2]: 1 This sentence is in German in the manuscript.— Ed. '' See this volume, pp. 256-59.— Ed.
+
+
+
+
+
+**[p. 282]**
+
+Revival of horrors. 40,000 troops in Ireland. Martial Law continuing (it was constantly renewed, and discontinued in 1801).a
+
+House of Commons 22 January 1799. Legislative Union first proposed in Speech from the Throne (debate lasted 22 hours, until the morning of 23 January). Government obtained majority of 1, by open sale of certain Fox, lawyer.
+
+2nd debate, on 5 o'clock of 23 January 1799, lasted till morning 24. Government defeated. I l l members decided against Union, 105 for. {Voters 216, Absent 84.)
+
+Lords Spiritual and Temporal use this House of Commons' Opposition to get money etc. out of Government, stipulated for their sale.
+
+Cornwallis bamboozles the Catholic Bishops; [their] disgusting subserviency.
+
+Petitions, Addresses, Dubliners fired into for their rejoicings.
+
+5 and 6 February 1800 Union accepted by Irish House of Commons. Still minority of 115 of a total of 273 votes. In interval between old and new Parliament corruption broadcast (pp. 48, 49b).
+
+Castlereagh's shameless measure. The House of Commons was surrounded by a British Regiment. Castlereagh palpably purchased 25 members before the 2nd division in 1800, which made a difference of 50 votes in favour of Government. Thus Pitt and Castlereagh carried the Union.
+
+[^1]: Written in October-November 1869 Reproduced from the manuscript
+
+[^2]: First published in Marx and Engels, Works, Second Russian Edition, Vol. 45, Moscow, 1975
+
+[^3]: a The sentence in brackets is in German in the manuscript.— Ed, b See this volume, pp. 262-63.— Ed.
+
+
+
+
+
+**[p. 283]**
+
+Frederick Engels
+
+[NOTES ON GOLDWIN SMITH'S BOOK IRISH HISTORY AND IRISH CHARACTER]™6
+
+1) GOLDWIN SMITH, IRISH HISTORY AND IRISH CHARACTER (PART OF IT IN NOTEBOOK III UNDER O'CONOR327)
+
+Gold win Smith, Irish History and Irish Character, Oxford and London, Parker, 1861.
+
+Behind the cloak of objectivity, the apologetic English bourgeois professor. Even from a geographical point of view, Ireland, he says, was destined to be subjugated by England, and he attributes the slow and incomplete conquest to the width of the Channel and to the position of Wales between England and Ireland.
+
+Ireland is said to be a GRAZING COUNTRY by nature, see Léonce de Lavergne.3 Smith thinks that
+
+There are coalfields in Ireland (p. 4).
+
+(and Laplanders?). On the other hand, the prospect is held out to the Irish
+
+Greatly deplores the lack of moderation in Irish eloquence. Nevertheless the Irishman complements the Englishman, and it
+
+[^1]: "it is difficult, over a great part of the island, to get in a wheat harvest its natural way to commercial prosperity seems to be to supply with the produce of its grazing and dairy farms the population of England" (p. 3).
+
+[^2]: The climate is supposed to have debilitated the Irish and retarded their development, in comparison with such BRACED PEOPLE as the Scandinavians
+
+[^3]: of the VILLAS OF NOBLES and MERCHANT PRINCES, such as can now be found in Scotland (p. 5)
+
+[^4]: (l N THE GROUSE MOORS AND DEER FORESTS!).
+
+[^5]: a Léonce de Lavergne, The Rural Economy of England, Scotland and Ireland. Translated from the French. Edinburgh, 1855. See this volume, p. 159.— Ed.
+
+
+
+
+
+**[p. 284]**
+
+Originally the clan or tribe [was] the social form common to all Celts
+
+(and to other nations)
+
+in Wales as well. Soon more intermingling of the different clans in the Irish plain and loosening of ties within the clans; on the other hand [there existed] the rule of the more powerful over those who were weaker, the beginnings of monarchy. The main prerogative of the king seems to have been the exaction of tribute, rather than regular jurisdiction.
+
+The FACTION FIGHTS of the Irish, TWO YEAR OLDS and THREE YEAR OLDS, are vestiges of the old clanships, as are also the COUNTY jealousies and COUNTY FIGHTS a
+
+(cf. the FIGHT between Cork and Tipperary on the emigrant ship).
+
+The FAIRIES too have their FACTION and COUNTY FIGHTS b
+
+(cf. Kohl).328
+
+The old loyalty to the clan chief and submission to his will explain much in the Irish character.0
+
+T h e land of the clan [was] communal property. In this context Smith realises that in Ireland it was never the Irishman, but only the Englishman who held land as private property, although he merely says that private property confronted the Irishman only
+
+[^1]: in the "form of insecurity, degradation, and despair" (p. 21).
+
+[^2]: Sir John Davies, pp. 135, 136,d329 writes of the CHIEFRIES that
+
+[^3]: "though they had some portions of land allotted to them", [their income] "did consist chiefly in cuttings and cosheries and other Irish exactions, whereby,
+
+[^4]: the English LAWYER says,
+
+[^5]: "they did spoil and impoverish the people at their pleasure. And when their chieftains were dead, their sons or next heirs did not succeed them but their tanists who were elective and bought their election by strong hand; and by the Irish custom of gavelkind, the inferior tenancies were partable amongst all the males of the sept both bastards and legitimate and after partition made, if anyone of the sept had died, his portion was not divided among his sons, but the chief of the sept made a new partition of all the lands belonging to the sept and gave everyone his part according to his antiquity."
+
+[^6]: Quoted p. 22.
+
+[^7]: The English LAWYERS are supposed to have called this, and TANLSTRY in particular, "no estate, but only a transient and scambling possession", and Davies was entirely
+
+[^8]: a G. Smith, op. cit, pp. 15-17.— Ed. b J. G. Kohl, Reisen in Irland, Bd. I, Dresden und Leipzig, 1843, S. 34.— Ed c Ibid, p. 19.— Ed. d Engels' note in the margin: "Davies, excerpts, pp. 4, 2." — Ed.
+
+
+
+i.e. the English law.
+
+How often a new division took place is not clear (!!), certainly not at every death. (See Hallam.b)
+
+Every two or three years, see Davies, excerpts, p. 82.c In any case it is obvious that because of the English conquest, the Irish up to 1600 had not yet gone beyond communal property! But Smith (p. 24) asserts that as early as the
+
+"invasion the land which a member of a sept had occupied seems generally to have passed at his death, as a matter of course, to all his sons".
+
+This is wrong; see Davies, who considers that partition still exists at least in the northern part of Ireland.0
+
+Even today, he says, "spend me and defend me" is more natural to the Irish peasant than the relationship of landlord and tenant.
+
+The term GAVELKIND was introduced into Ireland by English LAWYERS, for they confused Irish law with the Kentish GAVELKIND, which knows no primogeniture either (P- 25).
+
+St. Bernard's pronouncement about the Irish Church, on the basis of which Henry II justified Adrian's Papal Bull,330 because it was necessary to bring the whole church under the sway of Rome in the face of external enemies, contains nothing but trash:
+
+(i.e. not in accordance with the formalities prescribed by Rome),
+
+Giraldus Cambrensis however repeats the same accusations:
+
+[^1]: 1) They pay no first-fruits or tithes. 2) they do not properly marry
+
+[^2]: nor do they go to confession (?), no one exhorts them to do penance and no one imposes a penance. Moreover, 3) there are far too few priests. But all this had already been put right by St. Malachy, as St. Bernard himself admits. (De vita St. Malachiae, ch. 8.)
+
+[^3]: they pay neither tithes nor first-fruits, disregard the "rites of marriage, do not come to church and marry the wives of deceased brothers".e In addition one can merely say that the hierarchy is incomplete, there are far too many bishops and for a long time there were no archbishops at all, and their ORDINATIONS are not quite lawful (P- 33).f
+
+[^4]: a J. Davies, Historical Tracts, London, 1786, pp. 134-35.— Ed. b H. Hallam, The Constitutional History of England, from the Accession of Henry VII to the Death of George II, Vols. I-III, London, 1869.— Ed.
+
+[^5]: c In the manuscript this is written above the preceding quotation.— Ed. d In the manuscript this remark is inserted between the lines.— Ed. c Giraldus Cambrensis, Topographia Hibernica, et Expugnatio Hibernica. Edited by James F. Dimock, London, 1867, p. 289.— Ed.
+
+[^6]: f See St. Bernard, De Vita S. Malachiae, Ch. 10; p. 33 refers to Smith's book.— Ed.
+
+
+
+
+
+**[p. 286]**
+
+(says Davies).3
+
+That heathen elements are still evident in their religion is obvious, it was so everywhere. Thus in Ireland one can find "the pledge of blood" in addition to the touching of a relic when concluding an agreement, the noisy, orgiastic WAKES which accompany funerals, the fact that the right arm is not baptised etc.
+
+In Germany and England one can find quite different things.
+
+FOSTERAGES and the special emphasis laid on sponsorship (GOSSIPREDE) as being binding for life, are probably also of pagan origin. Cambrensis: "As for their own brethren and kinsmen, the Irish persecute them when living unto death, and avenge them when slain; while such love and fidelity as they show is confined to their foster-brethren and foster-children." Quoted p. 37.b
+
+Marriage however seems to have been in a bad way, for Davies, p. 146,c speaks of "their common repudiation of their wives, their promiscuous generation of children, their neglect of lawful matrimony"; he associates this with "their uncleanness in apparel, diet, and lodging, and their contempt and scorn of all things necessary for the civil life of man".
+
+T h e fact that in law BASTARD CHILDREN are placed on a par with legitimate children is connected with this but also with communal property.
+
+The Irish squire of the last century is said to have still eaten at the same table with the RETAINERS of his HOUSEHOLD, almost like the old clan chief (p. 39).
+
+But their Irish can no longer be understood today.
+
+[^1]: T h e laws of the conquerors against bards and STROLLING SINGERS were directly political,
+
+[^2]: because they were the upholders of the NATIONAL tradition. As late as the end of the 18th century there were still a few old travelling harpists/'
+
+[^3]: The Normans in Ireland "formed only a military colony, or rather garrison, holding its ground against the natives with difficulty, and living in a perpetual state of border war". From the outset therefore [they tried to gain the] ASCENDANCY. The Pale331 was a part of feudal England on the other side of the Channel (p. 56).
+
+[^4]: The ENGLISH INTEREST and the ANGLO-IRISH INTEREST in the Pale arose already at that time. The Irish barons were jealous of the English officials who came from England, etc., and of those who also owned English ESTATES, and who for the most part were absentees332 and remained English.
+
+[^5]: During the.Wars of the Roses333
+
+[^6]: a The parenthesis was inserted later.— Ed. h Giraldus Cambrensis, op. cit., Vol. II, p. Ill; p. 37 refers to Smith's book.— Ed. *•' The page reference — which is not given in Smith's book—was presumably inserted by Engels later.— Ed.
+
+[^7]: d G. Smith, op. cit., p. 43.— Ed.
+
+
+
+(Moore sub anno 1472, not in the Chronology.) 3 3 4
+
+T h e Statute of Kilkenny 3 3 5 is said to be merely an act of self-defence AND there was NOTHING PECULIARLY MALIGNANT IN IT. T h a t crimes against Irishmen were not punishable is said to have been the natural consequence of the fact that in Ireland two nations living in the same country were subject to two different codes of law!
+
+"An Irishman who had murdered an Englishman would have been only fined for it by his Brehon H"
+
+Proof of this is
+
+the affair of the sheriff whom an Irish chief was prepared to admit into his territory, provided the government fixed the wergeld to be paid for him should the case arise.b
+
+T h e quinque sanguines1 are correctly understood as 5 clans.
+
+English statesmen, such as Spenser, Davies and Bacon, who were interested in Ireland, regarded "the settlement and subjugation of Wales by Edward I" as an ideal/1
+
+At any rate Davies, see pages 105-07, notebook 3, 2. e 3 3 6
+
+Finally under Poynings' administration (Henry VII) every murder was made punishable according to English lawf
+
+[^1]: (i.e. within the Pale). Almost all his laws are said to have benefited Ireland, because they placed IMPERIAL (here it is simply a euphemism for English) INTERESTS AND POLICY above ASCENDANCY (!).
+
+[^2]: "It can hardly be doubted that the most obnoxious of his statutes, as they tended to make imperial policy and imperial interests paramount over the policy aud interests of ascendancy, were at the time of their enactment beneficial to the Irish people"!! (p. 73).
+
+[^3]: These Acts were effective only within the Pale, and not a trace of the Irish people could be found there! (Davies, pp. 136-39.)R
+
+[^4]: He claims that with Henry VIII and Wolsey "the deep and reflecting statecraft of a politic age now began to appear" in the Irish administration of the regents sent to Ireland (p. 74).
+
+[^5]: •' G. Smith, op. cit., p. 66.— Ed. b Engels'note in the margin: "Davies, pp. 134, 135; notebook pp. 4, 2; Spenser, p. 20."— Ed.
+
+[^6]: c Five bloods. See this volume, p. 292.— Ed. d G. Smith, op. cit., p. 71.— Ed. e This note was inserted later.— Ed. f G. Smith, op. cit., pp. 72-73.— Ed. s The source reference was inserted later.— Ed.
+
+
+
+
+
+**[p. 288]**
+
+The war against the Geraldines337 in the reign of Henry VIII was waged by both sides with great cruelty and caused much destruction; in addition there was treachery and perfidity on the part of the English against Fitzgerald and his five uncles, and against others as well.
+
+Under Elizabeth "there was corruption, corruption in the very vilest form, corruption which preferred war to peace because war held out hopes of lucre which peace threatened to destroy".
+
+Then, in the age of the adventurers,
+
+"the eagle took wing for the Spanish main, the vultures descended upon Ireland"
+
+But in Ireland, too, Raleigh had a castle and an estate granted to him at Lismore. Wakefield, Vol. T, p. 70.a338
+
+"A dexterous use of intrigue, chicanery and the art of inciting to rebellion, procured for the sharper in Ireland wealth in the shape of confiscated lands" (p. 79).
+
+In 1561 Shane O'Neill came to England with a guard of GALLOWGLASSES, who were bareheaded, wore GLIBS, SAFFRON shirts, short skirts and shaggy cloaks and were armed with hatchetsb
+
+(at a time when muskets were in use!).
+
+P. 86. Elizabeth's expenditure for the war in Ireland amounted to at least £4-500,000 per annum, hence the counterfeit money. "Assuredly whoever may have profited by the misery and depression of Ireland, it has not been the English nation." (!!) "To the English nation Ireland has been a source of expense, danger, and weakness without intermission from the conquest almost down to the present hour."
+
+And à qui la faute?" Surely that of THE ENGLISH NATION!
+
+Just as Potemkin's villages had likewise been a historical necessi- ty.339 Good for the reformers.
+
+Arthegal in Spenser's Faerie Queene is LORD DEPUTY Gray.
+
+[^1]: James is said to have been obliged to create SHAM BOROUGHS, not only to obtain a majority, but also because there were no real boroughs!!! (p. 96).
+
+[^2]: Sir Thomas Smith's first colonies "were planted in Down and Antrim on lands which were presumed in law to be vacant by the attainder of O'Neill". This failed, "the native occupants, says Hallam, not acquiescing in this doctrine of our lawyers".
+
+[^3]: a Engels wrote the passage from "But in Ireland" to " Vol. I, p. 70." in the margin and marked the place for it in the text.— Ed.
+
+[^4]: h G. Smith, op. cit., p. 80.— Ed. c Whose fault is it?—Ed.
+
+
+
+(King's and Queen's Counties),340
+
+"the septs pleaded that the chieftain could not by his attainder forfeit the sept land which he never had possessed. A feeling that the land was still theirs and that they were unjustly kept out of their possessions is perhaps not extinct even at the present day" (p. 101).
+
+To show his impartiality, Strafford also extorted considerable sums from the colonists of Londonderry, because they had committed a small formal BREACH OF THE COVENANT, thus arousing the wrath of London, the mother city, against him and Charles.1'
+
+"It is not too much to say that the English Puritans regarded the Irish Catholics, after O'Neill's massacre, with the rage of the Orangeman341 towards the Papists added to the rage of the Englishman of Calcutta towards the Sepoy mutineer342
+
+(p. 113),
+
+so that on the whole, Cromwell countenanced as few murders as he possibly could.
+
+Cromwell's transportation of Irish rebels to the West Indies to be employed there as slaves is said to be less harsh
+
+"than the measure which the Catholic House of Austria dealt at the same time to the Protestants of Bohemia and other conquered provinces in the Thirty Years' War" (p. 114).
+
+To be looked up.34i
+
+What does the West End of London say to this?
+
+[^1]: In defence of the judicial murder of Archbishop Plunket [he says that] although Titus Oates' plot was an invention, "there was a Popish plot for the extirpation of Protestantism and liberty throughout Europe, of which the King of France0 was the powerful head, of which the Jesuits were the restless and unscrupulous agents, in which the King and the heir presumptive to the crownd were deeply engaged and which all but overthrew the religion and liberties of England in the next reign" (p. 119).
+
+[^2]: Not a word about the breach of the Treaty of Limerick?44
+
+[^3]: "James II issued a mandate nominating a Papist to the Professorship of the Irish language in Trinity College. It turned out that no such Professorship existed" (p. 135).
+
+[^4]: The money which the ABSENTEES take with them is said to be mainly expended on unproductive work and thus for the most part lost in any case; therefore it does not matter much that the money is not spent in Ireland (p. 144).
+
+[^5]: a A mistake in Smith's book, it should be "O'Connor".— Ed. >> Charles II.—Ed. < Louis XIV.— Ed. d The Duke of York, later James II.— Ed.
+
+
+
+That is into slavery lasting for a longer or shorter time.
+
+He then proposes that some of the children be assigned to the butcher, and in his Maxims he suggests that the Irish be permitted to sell their surplus population into slavery/
+
+Even before the reign of James II the potato is said to have been the symbol and REPROACH OF IRELAND. Under James II "an Irish deputation was followed about the streets of London by a mob with potatoes stuck on poles" (p. 150).
+
+Ireland's distress "overflowed to England, and bringing pauperism" (!) "and disease" (!!) "into our great cities, punished England for whatever share she may have had in Irish wrongs" (p. 151).
+
+According to Phelan's Remains, Vol. II, p. 42, the landlords preferred Catholic SERFS to Protestant TENANTS, especially because the former always offered to pay the highest rent. The Protestants therefore emigrated to America.
+
+(No date mentioned.)
+
+Mac Geoghegan says in his History of Ireland'^45: "from calculations and researches made at the French war-office, it has been ascertained that from the arrival of the Irish troops in France in 1691, up to 1745, the year of the battle of Fontenoy, more than 450,000 Irishmen died in the service of France."
+
+In the independent Irish Parliament before the Union
+
+(according to an INQUIRY MADE [in] 1784 FOR THE BENEFIT OF THE ENGLISH GOVERNMENT) out of "300 seats 116 were shared among 25 proprietors (one nobleman had 16) and that the government could count on 86 votes of members for proprietary seats, the owners of which let them out for titles, places or pensions, 12 votes of their own, 45 votes of placemen, and 32 of gentlemen who had promises or had avowed their expectations" (Massey, History of England, Vol. Ill, p. 264).
+
+Pitt would have given parliamentary reform and Catholic Emancipation to Ireland, but his
+
+No trace of objectivity remains here.
+
+[^1]: And what about the English Parliament of the time? Sir Jonah Barrington was JUDGE OF THE HIGH COURT OF ADMIRALTY IN IRELAND.
+
+[^2]: "liberal policy was fatally arrested and the world" (!) "was flung into dismay, despair of liberty and absolutist reaction, by the tremendous eruption of absurdity, cruelty, and ultimately of military vanity and rapacity, which Frenchmen imagine to be the grandest and most beneficent event in history" (p. 165).
+
+[^3]: "An alien and disaffected element incorporated in a nation can only be a source of internal division and weakness. It would be better in every point of view, that
+
+[^4]: •' The Old Pretender, James Francis Edward Stuart, Chevalier de St. George.— Ed. b See G. Smith, op. cit., p. 147.— Ed. 1 G. Smith, op. cit., p. 148. Smith has Modest Proposal instead of Maxims.— Ed.
+
+
+
+!! Done—! After 700 years of struggle! Federation, he declares, is impossible between Ireland and England (he does not speak of a real federation with a federal parliament responsible for federal affairs, but only of a personal union).
+
+"This dog-collar-union, two independent parliaments and two independent governments linked together by a nominal allegiance to the same crown must be an irony or a nuisance" and would end either in complete separation or in the rule of the English parliamentary government over Ireland too, as between 1782 and 1798, as a result of corruption and intrigue (p. 181).
+
+What about Sweden and Norway? And Austria-Hungary? 3 4 6
+
+"The course of events has left no basis whereon Irish nationality can be established." The Irish and the English are said to be composed of the same elements, although in different proportions "but what is of most importance and in fact almost decisive, the language of both islands is the same" (p. 183).
+
+Hence, the two are one nation and separation of any kind is absurd! As though the English language had not made the Irishman even more Irish!
+
+From p. 184 onwards [he deals with] "the agrarian outrages, of which the surplus population was the main cause"U*
+
+[^1]: GOLDWIN SMITH.
+
+[^2]: CONCLUSION (PASSAGES QUOTED WORD FOR WORD AND ADDENDA)
+
+[^3]: "The dampness of the climate, while it is the source of vegetable wealth and vegetable beauty, could not fail to relax the energies of the people and to throw them back in the race of nations for preeminence in things requiring physical exertions. We see this when we compare the early history of the Irish with that of the Scandinavians, braced to daring and enterprise by the climate of the North" (p. 4).
+
+[^4]: Edward III and Henry V fought the battles of Crécy, Poitiers, etc., in France,347
+
+[^5]: "on these famous fields where, in the overthrow of the French chivalry by peasant hands, feudalism found its grave!" (p. 65, see below p. 7l).b
+
+[^6]: Statute of Kilkenny:
+
+[^7]: " There is nothing peculiarly malignant in the attempt of that Statute to restore a sharp division between the English and the natives. The object of the framers was not to prevent the beneficial fusion of the two races into one nation, but to prevent the one which they very naturally and rightly thought the more civilised, from degenerating into the barbarism of the other; and at the same time to check the increase of the 'rebel' elements in the country the same legislators forbid, under
+
+[^8]: a After this paragraph there follows the note: "(For the end see p. 5)".— Ed. b See this volume, p. 292.— Ed.
+
+
+
+
+
+**[p. 292]**
+
+(Very kind!)
+
+"It sounds shocking that the killing of an Irishman by an Englishman should have been no felony and that it should have been a good plea to an indictment for murder that the murdered person was not an Englishman nor a member of one of the five 'bloods' or septs which had been admitted within the pale of English law. But nothing more is in fact implied in this than that the Irish were not under the English but under the native or Brehon jurisdiction. The existence of two races in the same country under different laws, and with different punishments for crimes, inconceivable as it appears now" (he does not know the Levant!),
+
+"appeared quite natural at a time when the distinction of races was far stronger and when law was the peculiar custom of the race, not a set of principles common to all mankind. It would have been the same in England had the Anglo-Saxons succeeded in obtaining from {William} the Conqueror 'the laws of Edward the Confessor'. One kingdom would then have contained two nations, ' the Normans and the Saxons, living under different penal codes. The rule of impunity held good for both sides. An Irishman who had murdered an Englishman would have been only fined for it by his Brehon. The Government having on one occasion desired a native chief to receive a sheriff into his territories, the chief consented, but at the same time desired the Government to say what sum of money, or eric, they set upon the sheriff's head, in order that, if he was killed, that sum might be duly assessed upon the sept" (p. 69).
+
+England as a government is said to have always been well disposed towards Ireland:
+
+But the bad Irish barons did not want this and it is they who frustrated the good intentions of the government (pp. 68, 69).
+
+(Certainly—in his mind!)
+
+Hence it had not found its grave as a result of those battles in France!
+
+[^1]: "The truth is that the Plantagenet Government, when it found time to attend to Ireland, intended not evil but good to the Irish peof>le (p. 68) The English Government was not unwilling to admit the Irishry to the English law. Five whole septs" (!!) "the five bloods were admitted collectively, and individual denization seems to have been freely granted" (pp. 69-70).
+
+[^2]: "The idea that the English Government deliberately excluded the Irish from the pale of humanity vanishes away" (p. 70).
+
+[^3]: "From the ruins of the feudal aristocracy which the Wars of the Roses had laid in the dust, arose the powerful monarchy of the Tudors" (p. 71).
+
+[^4]: "At no period of the struggle" (Henry VIII and Elizabeth) "unhappily could England put forth her whole power to strike, in mercy, a decisive blow" (p. 77).
+
+
+
+"Finally, there was corruption; corruption in the very vilest form; corruption which preferred war to peace because war held out hopes of lucre which peace threatened to destroy. The great events and discoveries of the Elizabethan era produced a love of adventure which broke forth in every direction, and varied in the dignity of its objects and its character, from the height of heroism to the depth of baseness. The eagles took wing for the Spanish main; the vultures descended upon Ireland. A daring use of his sword procured for the adventurer in the Spanish colonies romantic" (!) "wealth in the shape of ingots and rich bales; a dexterous use of intrigue, chicanery and the art of inciting to rebellion, procured for the sharper in Ireland wealth less romantic but more solid and lasting in the shape of confiscated lands" (p. 79).
+
+"The reign" (of James I) "began well, with a broad act of oblivion" (?). "Even the arch-rebel Tyrone was received into favour"
+
+(! after all, he had made his peace even before the death of Elizabeth!) (p. 94).
+
+By the judgment of the King's Bench349 (1605) which stated that Irish TENURE was unlawful, and introduced English law, "the chiefs gained a boon by having their demesne lands and their territorial rights finally made hereditary instead of elective" (p. 95).
+
+Ten years later living in exile and completely expropriated these chiefs (those of them that still lived in 1605) were able to ponder what a BOON it was!
+
+fomented civil war in England and Ireland, and the Irish officers who had returned from France and Spain also added fuel to it. Then came the Catholic rising
+
+[^1]: "There seems no reason to doubt that it was in honest pursuance of the same policy of civilising and conciliating" (!!) "the Irish, by giving them English institutions, that a Parliament more regular and comprehensive than any which had preceded, was called for all Ireland, without distinction of race or religion." (??) "It is true that the Government took active measures to obtain a majority, and that it created a number of rotten, or rather of sham boroughs. But it does not seem that freedom of election was otherwise" (!!) "interfered with" (!) (pp. 95-96) "It was necessary to create sham boroughs, not only to give the Government a majority, but also because real boroughs there were none" (!!!) (p. 96).
+
+[^2]: "It appears, to say the least, extremely doubtful whether the lands of Tyrone and Tyrconnel, on which the Ulster colony was planted, had been forfeited for any real offence and whether the plot in which these noblemen were alleged to have been engaged, was not invented by the teeming brain of officials desirous of sharing their estates. They fled, it is true, but not from justice; for justice, when the forfeiture of land was in prospect, there was none" (p. 100).
+
+[^3]: He asserts that in 1640 and 1641, Richelieu and the Pope3
+
+[^4]: "with that great massacre of the Protestants in Ulster which is connected with the name of Sir Phelim O'Neill.350 To doubt that there was a great massacre seems
+
+[^5]: a Urban VIII.— Ed.
+
+
+
+
+
+**[p. 294]**
+
+This is again very vague!
+
+"Under the Protectorate" (Cromwell) " the Protestant community at least (in Ireland) presented a picture of prosperity such as the island had never before seen" (??) (p. 114).
+
+This sycophant regards Macaulay as A GREAT WRITER.
+
+"It would be as easy to sing of the siege of Troy after Homer, as to write about the siege of Londonderry after Macaulay" (p. 120).
+
+While he advises the Irish (see Preface)
+
+"to pay more attention to general causes"
+
+so as to be able to explain away such infamies in an objective manner, he always attributes the actions of the Irish to petty parochial causes. Thus under James II:
+
+(That is their own land!).
+
+[^1]: "The Irish people, it has been justly observed, in entering upon the civil war, were moved, not by attachment to the House of Stuart or to its political principles, but, like the Highland Clans, by motives of their own probably the mass of James's party, though they were fighting for the Catholic religion, were fighting less for the Catholic religion than for that old and terrible subject of Irish civil wars, the land" (p. 121).
+
+[^2]: "Land had been the great source of contention and misery in Ireland throughout her history" (p. 125). Not the Englishmen's greed for land, but the land itself must be blamed for it. ITS CHITTY THAT'S DONE IT.
+
+[^3]: "Their descendants" (the descendants of Cromwell's landlords) "became probably the very worst Upper Class with which a country was ever afflicted. The habits of the Irish gentry grew beyond measure brutal and reckless, and the coarseness of their debaucheries would have disgusted the crew of Comus. Their drunkenness, their blasphemy, their ferocious duelling, left the squires of England far behind" (!). "If there was a grotesque side to their vices which mingles laughter to
+
+[^4]: a E. H. Clarendon, The History of the Rebellion and Civil Wars in Ireland, Begun in the Year 1641, Oxford, 1712.r-Ed. b J. Rushworth, Historical Collections of Private Passages of State, London, 1682.— Ed.
+
+
+
+"In 1778 the increasing spirit of toleration began sensibly to exert its power" and the worst PENAL LAWS were repealed. In "1778 Lord North proposed (somewhat under duress, it is true) large relaxations of the iniquitous and absurd restrictions on Irish trade two years later the same minister, taught wisdom by his American disasters, proposed and carried further concessions. Twenty years more, and Mr. Pitt, having come into power instinct with all the liberal ideas of the new era, extinguished one" (!) "source of misery and discord by giving Ireland a full measure of Free Trade"
+
+(that is with England!)
+
+"as an article of the Union" (!!) (pp. 158-59).
+
+The "nice spirit of toleration", the "liberal ideas of the new era", etc., have brought all this about. Not the Englishman's fear of the Americans and French! These are the "general causes" which have to be kept in mind, but by no means the real ones!
+
+"Among the phantoms of hatred and suspicion which arose from this field of carnage, was the horrible idea that the English Government had intentionally stimulated the Irish people into rebellion in order to pave the way for the Union. No evidence in support of this charge can be produced" (p. 176).
+
+And this when the English have been engaged in conquests throughout the century! Conclusion:
+
+Again fine "general causes"! As general as possible! Preface:
+
+[^1]: "A nation must be very shallow or very depraved which, in the meridian light of modern philosophy, can imagine that a mere extension of its territory, unsanctioned by nature and morality, can add to its greatness" (p. 179).
+
+[^2]: "The original source of the calamities of Ireland was the partial character of the Norman Conquest, which caused the conquerors instead of becoming an upper class, to remain a mere hostile settlement or Pale The next great source of mischief was the disruption of Christendom at the period of the Reformation and the terrible religious wars which ensued upon that disruption and into which both nations, in common with the other nations of Europe, were drawn. Then Ireland became a victim to the attempt of Louis XIV, which was in part a sequel of the religious wars, to destroy the liberty and religion of England through his vassals, the House of Stuart. Finally the French Revolution breaking out into anarchy, massacre and atheism, at the moment when the Government of England under Pitt had just entered on the path of reform and toleration, not only arrested political progress in this as in other cases, but involved Ireland in another civil war" (p. 193).
+
+[^3]: "It" (this book) "would serve a good purpose if it should fall into the hands of any popular writer on Irish history, and induce him to pay more attention than writers
+
+
+
+
+
+**[p. 296]**
+
+On Ireland's INDEPENDENCE, p. 180:
+
+"Independence would of course be feasible in itself if it could only be accompanied by geographical separation; but so close a neighbourhood would involve contact and contact would bring on collision"
+
+(hence as on the Continent where the countries are in direct contact?);
+
+"rivalry, jealousy, hostility would spring up all the more certainly because there would be between the two countries the memory of a former union and of a recent divorce; and Ireland, menaced by the power of England, would become the ward and the vassal of France, or some other foreign power which for its own purposes would constitute itself her protector."
+
+All this applies also to Russia and Poland, to Hungary and Austria and indeed between 1815 and 1859 to Austria and Italy, and to every case of subjugation. It is appropriate that England's former infamies have to serve as a pretext for the infamies committed at the present time.
+
+Federation in this case requires two partners of equal strength, "but it could not be naturally or usefully formed between two states one of which is far more powerful than the other, since in the Federal Council the vote of the more powerful would always prevail".
+
+[^1]: Written in November 1869
+
+[^2]: First published in Marx and Engels, Works, Second Russian Edition, Vol. 45, Moscow, 1975
+
+[^3]: Printed according to the manu- script
+
+
+
+
+
+**[p. 297]**
+
+F r e d e r i c k Engels
+
+VARIA ON THE HISTORY OF THE IRISH CONFISCATIONS
+
+16th Saeculum." Henry VIII
+
+1536. Parliament in Dublin introduces the OATH OF SUPREMACY to the King and he is given the privilege of taking the first-fruits of all ECCLESIASTICAL LIVINGS. Quite different in the doing, however, and the subsequent insurrections were directed, among other things, against the Oath. Refusal to take the OATH OF SUPREMACY was high treason in Ireland just as in England (Murphy, p. 249).b
+
+16th Saeculum. Edward VI and Mary
+
+as was usual in Ireland.
+
+This was the pattern for all subsequent confiscations under Elizabeth and James. The Irish were denied all rights against the
+
+[^1]: Confiscations in Queen's and King's Counties. During the reign of Edward VI, the O'Moores of Leix and the O'Connors of Offaley carried on a feud with some lords of the Pale,c
+
+[^2]: The government qualified this as rebellion. General Bellingham, later Lord Deputy, was sent against them and forced them to submit. They were advised to see the King and submit to him in person as O'Neill had done successfully in 1542.d
+
+[^3]: O'Moore and O'Connor, unlike O'Neill, were imprisoned and their estates confiscated. But that was not the last of the clans. The inhabitants declared that the land belonged to the clans, not to the chiefs, who therefore could not forfeit it, and were, at most, liable to forfeiting their private domains. They declined to move out. The government sent troops, and had^ the land cleared after unintermittent fighting and extermination of the population (Murphy, p. 255).
+
+[^4]: 11 Century.— Ed. b J. N. Murphy, Ireland, Industrial, Political, and Social, London, 1870, pp. 248, 249.— Ed.
+
+[^5]: c Ibid., p. 254.— Ed. d In Murphy's book no date is given.— Ed.
+
+
+
+
+
+**[p. 298]**
+
+By Acts in the 3rd and 4th years of the reign of Philip and Mary, c. 1 and 2, the LORD DEPUTY, the Earl of Sussex,3 was endowed with "full power and authority [] to give and to grant to all and every Their Majesties' subjects, English or Irish [], at his election and pleasure, such estates in fee simple, fee tail,354 leases for term of years, life or lives" in these two counties "as for the more sure planting or strength of the countries with good subjects shall be thought unto his wisdom and discretion meet and convenient" (Murphy, p. 256).
+
+16th Saeculum. Elizabeth
+
+English policy under Elizabeth: to keep Ireland in a state of division and strife.
+
+"Should we exert ourselves," the English Government averred, "in reducing Ireland to order and civility, it must soon acquire power, consequence and riches. The inhabitants will be thus alienated from England; they will cast themselves into the arms of some foreign power, or erect themselves into an independent and separate state. Let us rather connive at their disorders, for a weak and disordered people can never attempt to detach themselves from the Crown of England." Thus Sir Henry Sidney and Sir John Perrot, successive LORD DEPUTIES (the last-named the best that they ever had, held the post in 1584-87), describe this HORRID POLICY, against which they protest (Leland, Vol. II, p. 292 b and Murphy, p. 246). Perrot's intention of granting the Irish equal rights with the Anglo-Irish and obviating confiscations was blocked by the English party in Dublin.
+
+(Yet he it was who had O'Donnell's sonc brought aboard a ship, filled with drink and borne away.)
+
+See Holinshed, Chronicles0 (p. 460) on how Ireland was laid waste in this war. Half the population is said to have perished.
+
+[^1]: Tyrone's rebellion, among other things, against religious persecution: "He and other lords of Ulster entered into a secret combination, about this time, that they would defend the Roman Catholic religion that they would suffer no sheriffs nor garrisons to be within the compass of their territories, and that they would [] jointly resist all invasions of the English" (Camden).355 The conduct of Deputy Mountjoy in this war is described by Camden: "He made incursions on all sides, spoiled the corn, burnt all the houses and villages that could be found, and did so gall the rebels, that, pent in with garrisons and streightened more and more every day, they were reduced to live like wild beasts, skulking up and down the woods and deserts" (Murphy, p. 251).
+
+[^2]: a Thomas Radcliffe.— Ed. b Th. Leland, The History of Ireland from the Invasion of Henry II, Vols. I-III, London, 1773. Here and below quoted from Murphy.— Ed.
+
+[^3]: c Hugh O'Donnell, "Red Hugh".— Ed. d Holinshed, Chronicles of England, Scotland, and Ireland, Vol. VI, London, 1807.— Ed.
+
+
+
+
+
+**[p. 299]**
+
+Desmond was deprived of his estates in all counties of Munster except Clare, and also in Dublin. They were worth £7,000 per annum. The Irish Parliament of 1586 expropriated 140 landowners by confiscation in Munster alone under the Act of the 28th year of Elizabeth's reign, c. 7 and 8. Mac Geoghegan lists the names of the GRANTEES of Desmond's ESTATES a; some of these families are still, and up to 1847 nearly all were, in possession.
+
+(? probably cum grano salis).
+
+The annual Crown rent on these ESTATES was 2d to 3d per acre, with no indigenous Irish admitted as TENANTS and the government undertaking to keep adequate garrisons.
+
+Neither provision was observed. Some estates were abandoned by the GRANTEES and reoccupied by the Irish. Many of the UNDERTAKERS stayed in England and appointed AGENTS, "ignorant, negligent, and corrupt" (Leland, Vol. Ill, p. 311).
+
+17th Saeculum. James I
+
+Penal Laws against Catholics (Elizabeth, in the 2nd year of reign, 1560, c. 1, Irish [Statutes, Vol. I, p. 275])356 are applied more and more from the very beginning of the reign of James I, it becoming dangerous to practise [Catholicism].
+
+This in 1605 (see "Chronology"360).
+
+Carte says361 that all Irish settlers and the NATIVES who were allowed part of their land were exempted, but this was irrelevant
+
+[^1]: Under Elizabeth 2 c. 1, the FINE of 12d was imposed for every NON-ATTENDANCE AT PROTESTANT CHURCH and, in 1605, under James, imprisonment was added by RO.YAL PROCLAMATION alone and, hence, unlawfully. This did not help. Besides, in 1605 all Catholic priests were ordered out of Ireland in 40 days on pain of death.
+
+[^2]: SURRENDERS OF ESTATES AND REGRANTS (see Davies, 7b).357 These followed the pronouncement of TANISTRY and GAVELKIND358 as unlawful by the COURT OF KINGS BENCH 3 5 9 in the HILARY TERM in the third year of the reign of James I. A Royal Proclamation stipulated SURRENDER [of estates] and REGRANT under new valid titles. Most Irish chiefs came forward to receive incontestable title at last, but this was made conditional on their giving up the clan relationship in favour of the English LANDLORD-TENANT relationship (Murphy, p. 261).
+
+[^3]: PLANTATION OF ULSTER.According to Leland, Irish UNDERTENANTS and SERVANTS were TACITLY EXEMPTED from the OATH OF SUPREMACY, whereas all the other planters were compelled to take it.
+
+[^4]: •' Engels took the reference to Mac Geoghegan's History of Ireland (Dublin, 1844) from Murphy, pp. 257-58.— Ed.
+
+
+
+
+
+**[p. 300]**
+
+Carte estimates the number of English settlers in Ulster in 1641 at 20,000 and of Scottish settlers at 100,000 (Ormonde, Vol. I, p. I77).b
+
+Sir Arthur Chichester, LORD DEPUTY, was rewarded for his services in this PLANTATION with the territory of Innoshowen (?) "and all the lands possessed by O'Dogherty, a tract of country far exceeding the allotments generally made to nothern undertakers" (Leland, Vol. II, p. 438). As early as 1633 these ESTATES were valued at £10,000 per annum (Strafford's State Letters? Vol. II, p. 294). Chichester was the ancestor of Marquis of Donegal, who would have had £300,000 per-annum for his Belfast estate alone, if one of his ancestors had not surrendered it to others under long LEASES (Murphy, p. 265).
+
+T h e PLANTATION of Ulster culminated the first period, with a new means discovered for confiscation: DEFECTIVE TITLES. This is effective u n d e r James and Charles, until Cromwell renews the invasion. See extracts from Carte [Ormonde], 2 1 / b 3 6 2
+
+Another nice pretext for confiscation was that
+
+old Crown rents, long forgotten by Crown and landowners, were still due from many ESTATES. These were now pulled out and, wherever unpaid, the ESTATE was FORFEITED. Nor receipts existed, and that was enovigh (Murphy, p. 269).
+
+[^1]: Concerning the attempt to confiscate Connaught (see "Chronol- ogy", and O'Conor, Catholics),363 recall James' dirty trick:
+
+[^2]: when the people of Connaught SURRENDERED their titles to a specially appointed ROYAL COMMISSION in 1616 and had these RECONVEYED BY NEW PATENTS, THEY PAYING £3,000 FOR THEIR ENROLMENT IN CHANCERY, the titles were not registered. A new commission was named on this pretext in 1623 to declare them null and void by reason of deliberate default, an oversight that depended not on the landowners but the government. (See Carte, Ormonde, [Vol. I,] pp. 47 and 48.) In the meantime, James died.
+
+[^3]: A COURT OF WARDS for Ireland was established in 1614; Carte avers in Ormonde, Vol. I, p. 517, that no lawful BASIS existed for it as for that in England. Meant to bring up Catholic heirs in the Protestant religion and English customs. Its president was the good d Sir William Parsons, who had helped plan it.e
+
+[^4]: a In the manuscript the last two sentences are written in the right-hand, blank column, opposite the preceding sentence.— Ed.
+
+[^5]: b Th. Carte, An History of the Life of James, Duke of Ormonde, from his Birth in 1610, to his Death in 1688, London, 1736. For quoting this work Engels made use of Murphy's book and of his own excerpts from it.— Ed.
+
+[^6]: c Letters and Dispatches, with an Essay towards His Life by Sir G. Radcliffe, London, Vols. I-II, 1739.— Ed.
+
+[^7]: d The word "good" does not occur in Murphy.— Ed. e Quoted according to Murphy, pp. 269-70 and 277-78.— Ed.
+
+
+
+That the Irish insisted in the "GRACES" 3 6 4 that "three score years' possession" (of an ESTATE) "should conclude His Majesty's title" was quite understandable, for this was the "law of England" (Strafford, State Letters, Vol. I, p. 279) by the Act of the 21st year of James' reign (Murphy, p. 274).
+
+Yet English law applied to the Irish only in so far as it suited the [English] Government.
+
+Strafford wrote to the English Secretary of State on December 16, 1634, that in his Irish Parliament "the Protestants are the majority, and this may be of great use to confirm and settle His Majesty's title to the plantations of Connaught and Ormond; for this you may be sure of, all the Protestants are for plantations, all the others are against them; so as these, being the great number, you can want no help they can give you therein. Nay, in case there be no title to be made out to these countries in the crown, yet should not I despair, forth of reasons of state, and for the strength and security of the Kingdom, to have them passed to the King by an immediate Act of Parliament" (State Letters, Vol. I, p. 353).
+
+Outside Connaught, too, money was extorted continuously on
+
+p a i n of INQUIRY INTO TITLES.
+
+The O'Byrnes of Wicklow, for example, twice paid £15,000 to preserve a portion of their ESTATES, while the City of London paid £70,000 to prevent confiscation of its PLANTATIONS in Colrain and Derry for alleged breach of covenant (Leland, Vol. Ill, p. 39).
+
+[^1]: The COURT OF HIGH COMMISSION established by Wentworth in the year 1633, after the English model,365 "with the same formality and the same tremendous powers" (Leland, Vol. Ill, p. 29), and this naturally without Parliament's consent, in order-"to bring the people here to a conformity in religion, and, in the way to that, raise, perhaps, a good revenue to the Crown" (January 31, 1633, State Letters, Vol. I, p. 188). The Court saw to it that all newly-appointed officials, doctors, barristers, etc., and all those who "sued out livery of their estates" should take the OATH OF SUPREMACY,
+
+[^2]: which, as Macaulay observed, was A RELIGIOUS INQUISITION where that of the STAR CHAMBER was political.
+
+[^3]: Then the CASTLE CHAMBER, called STAR CHAMBER366 as in England, which, Lord Deputy Chichester said, was "the proper court to punish jurors who will not find a verdict for the King upon good evidence"
+
+[^4]: (oft-quoted passage from Desiderata Curiosa Hibemiae, Vol. I, p. 262 a).
+
+[^5]: It is said therein that the penalties there employed consisted in "imprisonment and loss of ears"; and "fines, pillory, boring through the tongue, marking on the forehead with an iron and other infamous punishments" were likewise applied, as is stated in the indictment of Strafford (Murphy, p. 279).
+
+[^6]: When Strafford went to Connaught in 1635, he took with him 4,000 HORSE "as good lookers on, while the plantations were settling" (Strafford, State Letters, Vol. I,
+
+[^7]: Quoted according to Murphy against p. 279.— Ed.
+
+
+
+
+
+**[p. 302]**
+
+By the 28th of Henry VIII, c. 5, 6 and 13, all recourse to the Pope's jurisdiction was prohibited and all Irish came under the Protestant ECCLESIASTICAL COURTS, whose verdict could be appealed against to the King alone. They took cognizance of all marriages, baptisms, burials, wills, and ADMINISTRATIONS, and punished RECUSANTS FOR NON-ATTENDANCE AT CHURCH under the 2nd of Elizabeth, c. 2, and also collected the tithes. Bishop Burnet (Life of Dr. Bedell, Bishop of Kilmore, p. 89)a said these courts "were often managed by a chancellor that bought his place, and so thought he had a right to all the profits he could make out of it. And their whole business seemed to be nothing but oppression and extortion The officers of the court thought they had a sort of right to oppress the natives, and that all was well got that was wrung from them they made it their business to draw people into trouble by vexatious suits, and to hold them so long in that, for 3d worth of the tithe of turf, they would be put to a £5 charge".
+
+In the "GRACES", which never materialised,
+
+Protestant clergymen were to have been forbidden "to keep private prisons of their own" for spiritual offences, so that offenders should be committed to the King's public gaols (Murphy, p. 281).
+
+About the Protestant clergy see Spenser, excerpt 5a.367
+
+Borlase and Parsons encouraged the rebellion everywhere. According to Lord Castlehaven's Memoirs,h they said: "The more rebels, the more confiscations." Leland (Vol. Ill, p. 161), too, observes that, as before, "extensive forfeitures were the favourite object of the chief governors and their friends".
+
+— so that is where the Prussians lifted it from.
+
+17th Saeculum. Cromwell
+
+[^1]: By that time, the Irish Royalist army was to have been 50,000 strong through reinforcement from England and Scotland.
+
+[^2]: See Carte, Ormonde, Vol. Ill, p. 61, for the instructions lo the army.368
+
+[^3]: The motto of the Kilkenny Confederates36" was: Pro deo, pro rege, et patria Hibernia unanimes1' (Borlase, Irish Rebellion, p. 128)(1
+
+[^4]: Drogheda MASSACRE.370 After a successful assault "quarter had been promised to all who should lay down their arms—a promise observed until all resistance was at an end. But at the moment that the city was completely reduced, Cromwell issued his fatal orders that the garrison should be put to the sword. His soldiers,
+
+[^5]: a G. Burnet, The Life of William Bedell, Bishop of Kilmore in Ireland.., London, 1685. Quoted according to Murphy's book, p. 280.— Ed.
+
+[^6]: h The Memoirs of James Touchet Earl of Castlehaven Quoted according to Murphy, p. 288.— Ed.
+
+[^7]: c For God, King and Ireland unanimous.— Ed. d Ed. Borlase, The History of the Execrable Irish Rebellion, London, 1680. Quoted from Murphy, p. 289.— Ed.
+
+
+
+
+
+**[p. 303]**
+
+Petty (Political Anatomy, Dublin edition of Petty's tracts, pp. 312-15)a estimates that 112,000 British and 504,000 Irish inhabitants of Ireland died in the war of 1641-52. In 1653, SOLDIERS' DEBENTURES371 were sold at 4/- to 5/- in the pound, so that with 20/- being the price [nominal] of 2 acres of land, and there being 8 million acres of good land in Ireland, all Ireland was purchasable for £1 million, though in 1641 it was worth £8 million. Petty estimates the value of the livestock in Ireland in 1641 at £4 million, and in 1652 at less than £500,000 so that Dublin had to get meat from Wales. Corn was 12/- per BARREL in 1641 and 50/- in 1652. The houses of Ireland, worth £2 million in 1641, were worth less than £500,000 in 1653.h
+
+Leland, too, admits in Vol. Ill, p. 166, that "the favourite idea of both the Irish Government and the English Parliament" (from 1642 onwards) "was the utter extermination of all the Catholics of Ireland".
+
+See Lingard (Vol. VII, 4th ed., p. 102, note) on the transportation of Irish as slaves to the West Indies (figures vary from 6,000 to 100,000). Of the 1,000 boys and 1,000 girls to be sent to Jamaica, the commissioners wrote in 1655: "Although we must use force in taking them up, yet it is so much for their own good and likely to be of such great advantage to the public, that you may have such number of them as you shall think fit" (Thurloe, Vol. IV, p. 23).d
+
+By the first ACT OF SETTLEMENT, the forfeiture of 2/3 of their estates had been pronounced against those who had borne arms against the Parliament and 1/3 of their estates against those who had resided in Ireland any time from October 1, 1649 to March 1, 1650 and had not manifested their CONSTANT GOOD AFFECTION to Parliament. The Parliament had power to give them, in lieu thereof, other lands to the proportion of value thereof. The second Act concerned resettlement
+
+[^1]: (see Prendergast,e Excerpts, VII, 1 a372).
+
+[^2]: Distribution of land to soldiers was limited to those who had served under Cromwell from 1649 (Murphy, p. 302).
+
+[^3]: See Carte, Ormonde, Vol. II, p. 301, about some cases of land surveying, especially by ADVENTURERS.373
+
+[^4]: According to Leland (Vol. Ill, p. 397), the Commissioners in Dublin and Athlone kept considerable domains for themselves.
+
+[^5]: A PLANTATION ACRE=1 ACRE 2 ROODS 19 PERCHES 5 YARDS and 2 x/4 FEET IMPERIAL STATUTE measure, or 121 PLANTATION acres=196 STATUTE ACRES (Murphy, p. 302).
+
+[^6]: a W. Petty, The Political Anatomy of Ireland In: Tracts; Chiefly Relating to Ireland, Dublin, 1769.— Ed.
+
+[^7]: b The last two paragraphs are excerpts from Murphy's book, pp. 292-94.— Ed c J. Lingard, A History of England, from the First Invasion by the Romans, Vols. I-VIII, London, 1819-30.— Ed.
+
+[^8]: d A Collection of the State Papers of John Thurloe, Esq.; Containing Authentic Memorials, Vols.I-VII, London, 1742. Quoted from Murphy's book, p. 298.— Ed.
+
+[^9]: e J. P. Prendergast, The Cromwellian Settlement of Ireland, London, 1865.— Ed.
+
+[^10]: 12-733
+
+
+
+
+
+**[p. 304]**
+
+A result of confiscations under Cromwell and Charles II.
+
+The 7,708,238 STATUTE ACRES confiscated by Cromwell were distributed finally, by 1675, as follows:
+
+STATUTE ACRES
+
+1) To Englishmen
+
+ADVENTURERS 787,326 SOLDIERS 2,385,915 "FORTY-NINE" OFFICERS 4 5 0 , 3 8 0 DUKE OF YORK 1 6 9 , 4 3 1 PROVISORS 477,873 DUKE OF ORMOND AND COLONEL BUTLER 2 5 7 , 5 1 6 BISHOPS'AUGMENTATIONS 3 1 , 5 9 6
+
+4,560,037
+
+2) To Irishmen
+
+DECREES OF INNOCENCE 1,176,520 PROVISORS 491,001 KING'S LETTERS OF RESTITUTION 4 6 , 3 9 8 NOMINEES IN POSSESSION 6 8 , 3 6 0 TRANSPLANTATION 5 4 1 , 5 3 0
+
+2,323,809
+
+[^1]: Remaining still unappropriated in 1675, being part of towns or land possessed by English or Irish without title or DOUBTFUL 824,392 [Total in] Statute acres 7,708,238 On "Forty-Nine" officers see O'Conor and Notes.374
+
+[^2]: THE DUKE OF YORK3 received a GRANT of all the lands handed over to the ATTAINTED REGICIDES.*3 "Provisors were persons in whose favour provisoes had been made by the Acts of Settlement [1662] and of Explanation. Nominees were the Catholics named by the King restored to their mansions and 2,000 acres contiguous."
+
+[^3]: At that time the profitable lands of Ireland = 2/3 of all land, or 12,500,000 STATUTE ACRES. Of the rest, considerable tracts were occupied without title by soldiers and ADVENTURERS. In 1675, the 12 l/2 million ACRES of arable land were distributed as follows:
+
+[^4]: "Granted to English Protestants of profitable land forfeited
+
+[^5]: under the Commonwealth 4,560,037 Previously possessed by English Protestant Colonists and by
+
+[^6]: the Church 3,900,000 Granted to the Irish 2,323,809
+
+[^7]: a James Stuart, future James II.— Ed. b The reference is to those who were associated with the execution of Charles I.— Ed.
+
+
+
+
+
+**[p. 305]**
+
+STATUTE ACRES 12,208,237"
+
+[This table] was compiled by Murphy3;
+
+the figure of 3,900,000 acres was taken from the ACCOUNT PUBLISHED BY THE CROMWELLIAN PROPRIETORS and the rest on the basis of the Grace Manuscript quoted by Lingard and the REPORT OF THE COMMISSIONERS TO THE ENGLISH HOUSE OF COMMONS, December 15, 1699. It accords with Petty (Political Anatomy), who wrote: "Of the whole 7,500,000 plantation acres of good land (in Ireland) the English and Protestants and the Church have this Christmas (1672) 5,140,000 (=8,352,500 statute acres) and the Irish have near half as much" (Murphy, pp. 314 and 315).
+
+(On the confiscations of William see p. 18.b)
+
+17th Saeculum. William III375
+
+By the ACTS OF SETTLEMENT AND EXPLANATION, 2,323,809 STATUTE ACRES were granted to the Irish, they having 600,000 previously in their possession, totalling 2,923,809
+
+[^1]: STATUTE
+
+[^2]: ACRES
+
+[^3]: Of these lands, 1,060,792 PLANTATION ACRES were escheated under William worth £211,623 6s 3d. per annum (REPORT OF THE COMMISSIONERS OF THE HOUSE OF COMMONS 1699) 1,723,787
+
+[^4]: STATUTE
+
+[^5]: ACRES
+
+[^6]: [There remain] 1,200,022 STATUTE ACRES
+
+[^7]: or as Murphy calculated0 (he probably erred when 1,240,022 subtracting?) STATUTE
+
+[^8]: ACRES
+
+[^9]: a J. N. Murphy, op. cit., pp. 313-15.— Ed. b P. 17 in the manuscript; it contains only the heading "17. Saeculum, Charles II, James II".— Ed.
+
+[^10]: c J. N. Murphy, op. cit., pp. 317-18.— Ed.
+
+[^11]: 12*
+
+
+
+
+
+**[p. 306]**
+
+RESTITUTED BY SPECIAL FAVOUR OF THE KING ON PARDONING (65 persons) 125,000 STATUTE ACRES
+
+the COURT OF CLAIMS RESTORED (792 persons) 388,500 STATUTE ACRES
+
+[Total] 513,500 STATUTE ACRES
+
+Making the total still in Irish hands 1,753,522 a
+
+STATUTE ACRES
+
+C o m p i l e d b y M u r p h y o n t h e basis of t h e REPORT OF THE
+
+COMMISSIONERS OF THE HOUSE OF COMMONS (ENGLISH) i n DECEMBER 1 6 9 9 .
+
+Written in March 1870 Printed according to the manu- script First published in Marx-Engels Archives, Russian edition, Vol. X, Moscow, 1948
+
+[^1]: a Engels points out that Murphy may have erred in his calculation by 40,000 acres, in which case the total would have been 1,713,522.— Ed.
+
+
+
+
+
+**[p. 307]**
+
+Frederick Engels
+
+PLAN FOR THE HISTORY OF IRELAND
+
+1. Natural conditions. 2. Old Ireland 3. English conquests.
+
+1) First invasion.
+
+2) PALE AND IRISHRY. 3) Subjugation and expropriation. 152a-1691. 4. English rule.
+
+1) PENAL LAWS. 1691-1780. 2) Rebellion and Union. 1780-1801. 3) Ireland in the United Kingdom.
+
+a) The period of the small peasants. 1801-1846. b) The period of extermination. 1846-1870.
+
+[^1]: First published in Marx-Engels Archives, Printed according to the manu- Russian edition, Vol. X, Moscow, 1948 script
+
+[^2]: a The last figure is missing in the manuscript.— Ed.
+
+
+
+
+
+**[p. 308]**
+
+Frederick Engels
+
+[PLAN OF CHAPTER TWO AND FRAGMENTS FOR THE HISTORY OF IRELAND]377
+
+Old Ireland I. Sources. 1) The ancients. 2) Irish literature, buildings and inscriptions. 3) Foreign sources: the Scandina- vians, St. Bernard, Giraldus.— 4) Later sources, especially late 16th century.a
+
+II a. Race and language. Legends about the invaders. Information from the ancients. What can be deduced about Irish literature from the laws, Gifaldus and later sources, b. The clan system, landownership, laws. Ill a. Introduction of Christianity. Ir[ish] missionaries and scholars. J. Scotus Erig[ena]. b. Danish period, etc., up to invasion. System of government at this time. Ad I [Ad II] a. Senchus Mor, XI.b Giraldus.— Spenser, Davies, Camden, Campion, etc., Ledwich.378
+
+b. N[ennius], Brit.c S[enchus] M[or], XI and orig[ina]l. Cf. also Ledwich.
+
+[^1]: a This paragraph is crossed out in the manuscript.— Ed. b Engels refers to his notebook containing excerpts from Senchus Mor.—Ed. c Nennius, Historia Britonum, London, 1819.— Ed.
+
+
+
+Hegel, Geschichte der Philosophie.— Danica. Tigernach (Tierna) the ANNALIST died in 1088 according to the Annals of the Four Masters.
+
+The Annals of the Four Masters compiled in the 17th century by M. O'Clary and 3 others from ancient Irish annals.b
+
+The Annals of Ulster exist in a manuscript dated 1215.
+
+Poet-chroniclers, mainly 9th-llth centuries.
+
+An eclipse of the sun correctly recorded by Irish chroniclers on May 3, 664 (in Tigernach).
+
+Irish chiefs of all ranks constantly waged war not only among themselves but also with their superior princes as well as the nominal king.
+
+The TANIST is believed to have been both chief commander and chief judge, that is very powerful against the king. His title (supreme king) Righ-damnha= rex in fieri,c but minor chiefs also had t h e i r TANISTS.
+
+[^1]: 1 J. Gordon, A History of the Rebellion in Ireland in 1789, Dublin, 1801; A History of Ireland, Dublin, 1805.— Ed.
+
+[^2]: b See This volume, p. 173.— Ed. c Future king.— Ed.
+
+
+
+The supremacy of the kings of Meath and the chroniclers' triennial national assembly in Tnamor (Tara) seems to have only existed on paper, it might have been enforced from time to time but always lapsed again.
+
+The land allocated to the chief of the clan was not divided (ditto that belonging to soldiers, priests, singers, chroniclers). The remaining land owned by the clan and could be divided up.
+
+With communal property the right of inheritance of illegitimate sons—in the whole clan—was unquestioned. Gavelkind: Davies (p. 136) describes the division of land "TO EACH ACCORDING TO HIS ANTIQUITY*' (i.e. his traditional rank in the clan),a which in Moore (Vol. I, p. 177)b has already been turned into SENIORITY!
+
+According to an obscure tradition the Milesians or Scots did not apparently practise any crafts until Tuathal died in A. D. 164; from then on, however, they did as a result of his [restoration] expulsion in 126 by the Plebeians (attacots-attach-tuatha translated by O'Reilly as Plebeians). In any case [from] at the time of the invasion all traces of the ruling race had disappeared although the families of the chiefs may have been Scottish. The first Plebeian war A. D. 90.— In both cases the legitimate Scottish family finally regained power.
+
+There are some Irish poems, believed to date back to the earliest days of the Milesians, which in the manuscript c have notes in between the lines. Without them they are incomprehensible, but
+
+[^1]: ;l J. Davies, Historical Tracts, London, 1786.— Ed. h Th. Moore, The History of Ireland, Vol. I, Paris, 1835.— Ed. ' Engels refers to the judicial collection Senchus Mor.—Ed.
+
+
+
+Hereditable positions in families (i.e. not all of them, only certain ones). Thus in Camden's time, and later too, the O'Cullinan family in Cork constantly had one or more doctors, and people used to say that if someone had resigned himself to death not even an O'Cullinan could cure him. Similarly with herolds, bards, musicians (and Seanachiesa). This natural consider- ing the land allocated to them.
+
+Slaves and slave trade.
+
+Johannes Scotus Erigena.
+
+The oldest Irish manuscripts late 9th century, and the oldest songs occur as SINGLE FRAGMENTS in the annals; these appear more frequently from the 6th century.
+
+In the BREHON LAWS all fines were expressed in livestock, that means there was still no money as yet.
+
+There are still numerous manuscripts in existence bearing on
+
+St. Bernard was never in Ireland.
+
+[^1]: the BREHON LAWS.
+
+[^2]: 11 Chroniclers.— Ed.
+
+
+
+Irish literature?—17th century, poetry, historical] and juridical literature], then completely suppressed due to the eradication of the Irish literary language—exists only in manuscript—publication is only just beginning—this is [possible] only with a downtrodden people. See Serbs, etc.
+
+The English have been able to reconcile people of the most diverse races to their rule. The Welsh, who cling so strongly to their nationality and their language, have been completely integrated into the British Empire. The Scottish Celts, although rebellious until 1745,380 and since then almost exterminated, first by the government and later by their own aristocracy, have no thought of rebellion. The French of the Channel Islands fought bitterly against France even during the Great Revolution. And even the Frisians of Heligoland,381 sold to England by Denmark, are content with their lot, and it will surely be a long time before the laurels of Sadowa and the achievements of the North-German Confederation382 arouse in them the agonised cry for unification with the great Fatherland. Only the Irish have proved too much for the English to cope with. The tremendous resilience of the Irish race is to blame for this. Despite the most savage suppression, shortly after each attempt to wipe them out the Irish stood stronger than ever before. Indeed, they drew their main strength from the foreign garrison imposed on them to subdue them. Within the lifetime of two generations, often of one, the foreigners had become more Irish than the Irish themselves, Hiberniores ipsis Hibernis; and the more they adopted the English language and forgot Irish, the more Irish they became.
+
+[^1]: a Ed. Wakefield, An Account of Ireland. Statistical and Political, Vols. I-II, London, 1812.— Ed.
+
+[^2]: b Engels refers to his notebook containing excerpts from Wakefield.— Ed.
+
+
+
+QUEENS EVIDENCE.— REWARDS FOR EVIDENCE. England is the only country where the state openly dares to bribe witnesses, be it by an offer of exemption from punishment, or by ready cash. That prices are fixed for the betrayal of the whereabouts of a victim of persecution is comprehensible, but that they say: who gives me evidence on the strength of which someone can be sentenced as the perpetrator of some crime or another— this infamy is something not only the Code,b but also Pr[ussian] common law have left to Eng[lish] law. That COLLATERAL EVIDENCE is required alongside that given by the informer changes nothing; as a rule there is evidence for somebody to be suspected, or else it is fabricated, and the informer only has to adjust his lies accordingly.
+
+Whether this pretty usage has its roots already in Eng[lish] legal proceedings is hard to say, but it is certain that it has received its development on Irish soil at the time of the Tories383 and the penal laws.
+
+On March 15, 1870, when the government sought to justify the removal of an Irish sheriff (Coote of Monaghan) by arguing that he had packed the jury panel, G. H. Moore, M. P. for Mayo, said in Parliamentc:
+
+As one instance out of many that might be cited, he would mention that though County Cork had a proportion of 500,000
+
+[^1]: * "If Capt. Coote had done all the things of which he had been accused, he had only followed the practice which, in political cases, had been habitually sanctioned by the Institute Executive."
+
+[^2]: a Macaulay, The History of England from the Accession of James the Second, London, 1862.— Ed.
+
+[^3]: b Code Napoléon, Paris, Leipzig, 1808.— Ed. c Moore spoke in the House of Commons on March 14, 1870. See The Times, No. 26699, March 15, 1870.— Ed.
+
+
+
+
+
+**[p. 314]**
+
+The German Legion of 1806-13 was also sent to Ireland. Thus, the good Hanoverians who refused to put up with French [bondage] rule, were used by the English to preserve English rule in Ireland!
+
+The agrarian murders in Ireland cannot be suppressed because and as long as they are the sole effective weapon against the extermination of the people by the landlords. They help, which is why they persist, and will persist, despite all coercive laws. Quantitatively they fluctuate, as do all social phenomena; at times they may even become epidemic, occurring on quite insignificant occasions. The epidemic can be suppressed, but not the disease itself.
+
+Dublin botanical gardens—total absence of protection for the flowers and yet no abuse on the part of the public as in England—Churchyard in Glasnevin like no other in England.
+
+THE ENGLISH LADY. There is no creature more superfluous and useless on earth. Custom, education and inclination exclude her from all the truly intellectual aspects of life, whereas THE FRIVOLITIES OF LIFE, or at the most dabbling with serious matters, make up the entire content of her life and are alone taken seriously by her.
+
+[^1]: Written in 1869-70 Printed according to the manu- script First published in Marx-Engels Archives, Russian edition, Vol. X, Moscow, 1948
+
+
+
+APPENDICES
+
+
+

@@ -1,0 +1,226 @@
+---
+Volume: 24
+Document_Title: "First Draft "
+Page_Range: "377-391"
+---
+
+# First Draft 
+
+
+
+**[p. 346]**
+
+Karl Marx
+
+[DRAFTS OF THE LETTER TO VERA ZASULICH]
+
+[FIRST DRAFT] s9«
+
+1) In dealing with the genesis of capitalist production I stated that it is founded on "the complete separation of the producer from the means of production" (p. 315, column I, French edition of Capital) and that "the basis of this whole development is the expropriation of the agricultural producer. To date this has not been accomplished in a radical fashion anywhere except in England But all the other countries of Western Europe are undergoing the same process" (I.e., column II).a
+
+I thus expressly limited the "historical inevitability" of this process399 to the countries of Western Europe. And why? Be so kind as to compare Chapter XXXII, where it says:
+
+The "process of elimination transforming individualised and scattered means of production into socially concentrated means of production, of the pigmy property of the many into the huge property of the few, this painful and fearful expropriation of the working people, forms the origin, the genesis of capital Private property, based on personal labour will be supplanted by capitalist private property, based on the exploitation of the labour of others, on wage labour" (p. 341, column II).b
+
+Thus, in the final analysis, it is a question of the transformation of one form of private property into another form of private property. Since the land in the hands of the Russian peasants has never been their private property, how could this development be applicable?
+
+[^1]: * Karl Marx, Le Capital, Paris, [1872-1875,] p. 315 (see Capital, Vol. I, Part VIII, "The So-Called Primitive Accumulation", Chapter XXVI: "The Secret of Primitive Accumulation", present edition, Vol. 35).— Ed.
+
+[^2]: b Ibid.
+
+
+
+W** <â-L5* «5^2 <*J*** *W - P V ^ V ^ Y * / \
+
+<\ i%war ft fh«i\ w V^ » M|i*^Uv^^* fcÄ** ^Tjfj V"*
+
+i»**»»
+
+1 -»gum»' v " " ' ^^«iuppp^"" -"-» w " ~ »• i V**k
+
+[^1]: k ^ i
+
+[^2]: tb» <*» *¥*"%
+
+[^3]: JS0»«i$5%V* c*-*
+
+[^4]: vr C»
+
+[^5]: -CSA*
+
+[^6]: A page of the first draft of Marx's letter to Vera Zasulich
+
+
+
+
+
+
+
+**[p. 349]**
+
+2) From the historical point of view the only serious argument put forward in favour of the fatal dissolution of the Russian peasants' commune is this: By going back a long way communal property of a more or less archaic type400 may be found throughout Western Europe; everywhere it has disappeared with increasing social progress. Why should it be able to escape the same fate in Russia alone? I reply: because in Russia, thanks to a unique combination of circumstances, the rural commune, still established on a nationwide scale, may gradually detach itself from its primitive features and develop directly as an element of collective production on a nationwide scale. It is precisely thanks to its contemporaneity with capitalist production that it may appropriate the latter's positive acquisitions without experiencing all its frightful misfortunes. Russia does not live in isolation from the modern world; neither is it the prey of a foreign invader like the East Indies.
+
+If the Russian admirers of the capitalist system denied the theoretical possibility of such a development, I would ask them this question: In order to utilise machines, steam engines, railways, etc., was Russia forced, like the West, to pass through a long incubation period in the engineering industry? Let them explain to me, too, how they managed to introduce in their own country, in the twinkling of an eye, the entire mechanism of exchange (banks, credit institutions, etc.), which it took the West centuries to devise?
+
+If at the time of emancipation the rural communes had first been placed in conditions of normal prosperity; if the immense public debt, mostly paid for at the expense of the peasants, with the other enormous sums provided through the agency of the State (and still at the expense of the peasants) to the "new pillars of society",401 transformed into capitalists,—if all this expenditure had been applied to further developing the rural commune, no one would today be envisaging the "historical inevitability" of the destruction of the commune: everyone would recognise in it the element of regeneration of Russian society and an element of superiority over the countries still enslaved by the capitalist regime.
+
+Another circumstance favouring the preservation of the Russian commune (by the path of development) is the fact that it is not only contemporaneous with capitalist production but has outlasted the era when this social system still appeared to be intact; that it now finds it, on the contrary, in Western Europe as well as in the United States, engaged in battle both with science, with the
+
+
+
+**[p. 350]**
+
+But then we would at least have to be familiar with these vicissitudes. We know nothing about them. In one way or another this commune perished in the midst of incessant wars, foreign and internal; it probably died a violent death. When the Germanic tribes came to conquer Italy, Spain, Gaul, etc.,402 the commune of the archaic type no longer existed. Yet its natural viability is demonstrated by two facts. There are sporadic examples which survived all the vicissitudes of the Middle Ages and have been preserved into our own day, for instance the district of Trier, in my native country. But more importantly, it imprinted its own characteristics so effectively on the commune which replaced it—a commune in which the arable land has become private property, whereas forests, pastures, common lands, etc., still remain communal property—that Maurer,c when analysing this commune of secon- dary formation, was able to reconstruct the archaic prototype. Thanks to the characteristic features borrowed from the latter, the new commune introduced by the Germanic peoples in all the countries they invaded was the sole centre of popular liberty and life throughout the Middle Ages.
+
+If we know nothing about the life of the commune or about the manner and time of its disappearance after the age of Tacitus, at least we know the starting point, thanks to Julius Caesar.d In his day the land was already shared out annually, but between the gentes and the tribes of the Germanic confederations, and not yet between the individual members of the commune. The rural commune in Germany is therefore descended from a more archaic
+
+[^1]: a The following passage is crossed out in the manuscript: "In a word, that it has turned into an arena of blatant antagonisms, of periodic crises, conflicts, disasters; that, increasingly blind, it reveals its incompetence; that it is a transitory system of production destined to be eliminated by the return of society".— Ed.
+
+[^2]: b L. H. Morgan, Ancient Society or Researches in the Lines of Human Progress from Savagery, through Barbarism to Civilisation, London, 1877, p. 552.— Ed.
+
+[^3]: c G. L. von Maurer, Einleitung zur Geschichte der Mark-, Hof-, Dorf- und Stadt-Verfassung und der öffentlichen Gewalt, Munich, 1854.— Ed.
+
+[^4]: d Gaius Julius Caesar, Commentarii de hello Gallico.—Ed
+
+
+
+
+
+**[p. 351]**
+
+To assess the possible outcomes from a purely theoretical point of view, that is to say, assuming normal conditions of life, I must now point out certain characteristic features which distin- guish the "agricultural commune" from the more archaic types.
+
+Firstly, previous primitive communities are all based on the natural kinship of their members; by breaking this strong but tight bond, the agricultural commune is better able to spread and to withstand contact with strangers.
+
+Next, in this form the house and its complement, the courtyard, are already the private property of the cultivator, whereas long before the introduction of agriculture the communal house was one of the material bases of previous communities.
+
+Finally, although arable land remains communal property, it is divided periodically between the members of the agricultural commune, so that each cultivator tills the fields assigned to him on his own account and appropriates as an individual the fruits thereof, whereas in more archaic communities production took place communally and only the yield was shared out. This primitive type of cooperative or collective production resulted, of course, from the weakness of the isolated individual, and not from the socialisation of the means of production. It is easy to see that the dualism inherent in the "agricultural commune" might endow it with a vigorous life, since on the one hand communal property and all the social relations springing from it make for its solid foundation, whereas the private house, the cultivation of arable land in parcels and the private appropriation of its fruits permit a development of individuality which is incompatible with conditions in more primitive communities.
+
+But it is no less evident that this very dualism might in time become a source of decay. Apart from all the influences of hostile surroundings, the mere gradual accumulation of chattels which begins with wealth in the form of cattle (even admitting wealth in the form of serfs), the increasingly pronounced role which the movable element plays in agriculture itself, and a host of other circumstances inseparable from this accumulation but which it would take me too long to go into here, will eat away at economic and social equality and give rise to a conflict of interests at the very heart of the commune, entailing first the conversion of arable land into private property and ending with the private appropria-
+
+
+
+**[p. 352]**
+
+This is why the "agricultural commune" occurs everywhere as the most recent type of the archaic form of societies, and why in the historical development of Western Europe, ancient and modern, the period of the agricultural commune appears as a period of transition from communal property to private property, as a period of transition from the primary form to the secondary one. But does this mean that in all circumstances the development of the "agricultural commune" must follow this path? Not at all. Its constitutive form allows this alternative: either the element of private property which it implies will gain the upper hand over the collective element, or the latter will gain the upper hand over the former. Both these solutions are a priori possible, but for either one to prevail over the other it is obvious that quite different historical surroundings are needed.3 All this depends on the historical surroundings in which it finds itself (see p. 10 V
+
+Russia is the sole European country where the "agricultural commune" has kept going on a nationwide scale up to the present day. It is not the prey of a foreign conqueror, as the East Indies, and neither does it lead a life cut off from the modern world. On the one hand, the common ownership of land allows it to transform individualist farming in parcels directly and gradually into collective farming, and the Russian peasants are already practising it in the undivided grasslands; the physical lie of the land invites mechanical cultivation on a large scale; the peasant's familiarity with the contract of artel403 facilitates the transition from parcel labour to cooperative labour; and, finally, Russian society, which has so long lived at his expense, owes him the necessary advances for such a transition.0 On the other hand, the
+
+[^1]: a This sentence was written by Marx on p. 8 of his manuscript with the indication of the place it referred to ("ad 5 *****"). A version of this sentence is also on p. 9 where it was not, probably by mistake, crossed out.— Ed.
+
+[^2]: b Marx is presumably referring to p. 10 of his manuscript, to the following passage: "The best proof that this development of the 'rural commune' the most archaic type—collective production and appropriation" (see this volume, p. 357).— Ed
+
+[^3]: c The following passage is crossed out in the manuscript: "Coming now to the agrarian commune in Russia, I discount for the time being all the miseries which overwhelm it. I consider only the capacity for further development which its constitutive form and its historical surroundings allow it."—Ed
+
+[^4]: d The following passage is crossed out in the manuscript: "Certainly, it would be necessary to begin by placing the commune in a normal state on its present basis, on the
+
+
+
+
+
+**[p. 353]**
+
+If the spokesmen of the "new pillars of society" were to deny the theoretical possibility of the suggested evolution of the modern rural commune, one might ask them: Was Russia forced to pass through a long incubation period in the engineering industry, as was the West, in order to arrive at the machines, the steam engines, the railways, etc.? One would also ask them how they managed to introduce in their own country in the twinkling of an eye the entire mechanism of exchange (banks, joint-stock com- panies, etc.), which it took the West centuries to devise?
+
+There is one characteristic of the "agricultural commune" in Russia which afflicts it with weakness, hostile in every sense. That is its isolation, the lack of connexion between the life of one commune and that of the others, this localised microcosm which is not encountered everywhere as an immanent characteristic of this type but which, wherever it is found, has caused a more or less centralised despotism to arise on top of the communes. The federation of Russian republics of the North proves that this isolation, which seems to have been originally imposed by the vast expanse of the territory, was largely consolidated by the political destinies which Russia had to suffer after the Mongol invasion.405
+
+Today it is an obstacle which could easily be eliminated. It would simply be necessary to replace the volost,406 the government body, with an assembly of peasants elected by the communes themselves, serving as the economic and administrative organ for their interests.
+
+One circumstance very favourable, from the historical point of view, to the preservation of the "agricultural commune" by the path of its further development is the fact that it is not only the contemporary of Western capitalist production and is thus able to appropriate its fruits without subjecting itself to its modus operandi,' but has outlasted the era when the capitalist system still appeared to be intact; that it now finds it, on the contrary, in Western Europe as well as in the United States, engaged in battle both with the working-class masses, with science, and with the very productive forces which it engenders—in a word, in a crisis which will end in its elimination, in the return of modern societies to a
+
+[^1]: other hand, since the peasant is everywhere the enemy of too many sudden changes."— Ed.
+
+[^2]: 25-1317
+
+
+
+
+
+**[p. 354]**
+
+It goes without saying that the evolution of the commune would be carried out gradually, and that the first step would be to place it in normal conditions on its present basis.
+
+Theoretically speaking, then, the Russian "rural commune" can preserve itself by developing its basis, the common ownership of land, and by eliminating the principle of private property which it also implies; it can become a direct point of departure for the economic system towards which modern society tends; it can turn over a new leaf without beginning by committing suicide; it can gain possession of the fruits with which capitalist production has enriched mankind, without passing through the capitalist regime, a regime which, considered solely from the point of view of its possible duration hardly counts in the life of society. But we must descend from pure theory to the Russian reality.3
+
+3) To expropriate the agricultural producers it is not necessary to chase them off their land, as was done in England and elsewhere; nor is it necessary to abolish communal property by means of an ukase. Go and seize from the peasants the product of their agricultural labour beyond a certain measure, and despite your gendarmerie and your army you will not succeed in chaining them to their fields! In the last years of the Roman Empire, the provincial decurions407—not peasants but landowners—fled from their houses, abandoning their lands, even selling themselves into slavery, all in order to get rid of a property which was no longer anything more than an official pretext for extorting money from them, mercilessly and pitilessly.
+
+From the time of the so-called emancipation of the peasants the Russian commune has been placed by the State in abnormal economic conditions and ever since then it has never ceased to overwhelm it with the social forces concentrated in its hands. Exhausted by its fiscal exactions, the commune became an inert thing, easily exploited by trade, landed property and usury. This oppression from without unleashed in the heart of the commune
+
+[^1]: a This paragraph is to be found on p. 10 of Marx's manuscript with the exact indication to transfer it to p. 7 ("ad p. 7"). On p. 7 of the manuscript the following passage is crossed out: "If we descend from theory to reality no one can conceal the fact that the Russian commune is today faced with a conspiracy of interests and powerful forces. Apart from its incessant exploitation by the State, which exists at the expense of the peasants, the establishment of a certain part of the capitalist system—finance, stock exchange, bank, railway construction speculation, com- merce".— Ed.
+
+
+
+
+
+**[p. 355]**
+
+In a word, the State has given its assistance to the precocious development of the technical and economic means most calculated to facilitate and precipitate the exploitation of the agricultural producer, that is to say, of the largest productive force in Russia, and to enrich the "new pillars of society".
+
+5) This combination of destructive influences, unless smashed by a powerful reaction, is bound to lead to the death of the rural commune.
+
+But one wonders why all these interests (including the large industries placed under government protection), seeing that they are doing so well out of the current state of the rural commune—why would they deliberately conspire to kill the goose that lays the golclen eggs? Precisely because they sense that this "current state" is no longer tenable, and that consequently the current method of exploiting it is now outdated. Already the poverty of the agricultural producer has affected the land, which is becoming barren. Good harvests succeed famines by turns. The average of the last ten years showed agricultural production not simply standing still but actually declining. Finally, for the first time Russia now has to import cereals instead of exporting them. So there is no time to lose. There must be an end to it. It is necessary to make an intermediate rural class of the more or less prosperous minority of the peasants, and turn the majority into proletarians, without mincing matters. To this end the spokesmen of the "new pillars of society" denounce the very wounds which they have inflicted on the commune as being as many natural symptoms of its decrepitude.
+
+Disregarding all the miseries which are at present overwhelming the Russian "rural commune", and considering only its constitu- tive form and its historical surroundings, it is first of all evident
+
+[^1]: a The passage from the words "At the expense of the peasants" till the end of the paragraph was transferred by Marx to page 7 of the manuscript from page 10 with a special mark ("ad p. 7").— Ed.
+
+[^2]: 25*
+
+
+
+
+
+**[p. 356]**
+
+As for the economic need, it will be felt by the "rural commune" itself from the moment it is placed in normal conditions, that is to say, as soon as the burdens weighing on it are removed and its cultivable land has assumed a normal extent. Gone are the days when Russian agriculture called for nothing but land and its parcel cultivator, armed with more or less primitive tools. These days have passed all the more swiftly as the oppression of the agricultural producer infects and lays waste his fields. What he needs now is cooperative labour, organised on a large scale. Moreover, will the peasant who lacks3 the necessary things for cultivating two or three dessiatines b be better off with ten times the number of dessiatines?
+
+But where are the tools, the manure, the agronomic methods, etc., all the means that are indispensable to collective labour, to come from? It is precisely this point which demonstrates the great superiority of the Russian "rural commune" over archaic com- munes of the same type. Alone in Europe it has kept going on a vast, nationwide scale. It thus finds itself in historical surroundings in which its contemporaneity with capitalist production endows it with all the conditions necessary for collective labour. It is in a position to incorporate all the positive acquisitions devised by the capitalist system without passing through its Caudine Forks. The physical lie of the land in Russia invites agricultural exploitation with the aid of machines, organised on a vast scale and managed by cooperative labour. As for the costs of establishment—the intellectual and material costs—Russian society owes this much to the "rural commune", at whose expense it has lived for so long and to which it must still look for its "element of regeneration".
+
+[^1]: a Crossed out in the manuscript: "the necessary capital, tools, horses and other necessary technical means for cultivating two or three dessiatines".— Ed
+
+[^2]: b Marx transliterated this Russian measure of land (=approximately 2.7 acres) in Latin characters.— Ed
+
+
+
+
+
+**[p. 357]**
+
+Since so many different interests, and especially those of the "new pillars of society" erected under the benign rule of Alexander II, have gained a good deal from the present state of the "rural commune", why would they deliberately plot to bring about its death? Why do their spokesmen denounce the wounds inflicted on it as so much irrefutable proof of its natural decrepitude? Why do they wish to kill the goose that lays the golden eggs?
+
+Simply because the economic facts, which it would take me too long to analyse here, have revealed the mystery that the current state of the commune is no longer tenable and that soon, by sheer force of circumstances, the current method of exploiting the mass of the people will no longer be in fashion. So new measures are needed—and the innovation stealthily introduced in widely differing forms always comes down to this: abolish communal property, make an intermediate rural class of the more or less prosperous minority of the peasants, and turn the majority into proletarians, without mincing matters.
+
+On the one hand, the "rural commune" has nearly been brought to the point of extinction; on the other, a powerful con- spiracy is keeping watch with a view to administering the final blow. To save the Russian commune, a Russian revolution is needed. For that matter, the holders of political and social power are do- ing their very best to prepare the masses for just such a disaster.
+
+And the historical situation of the Russian "rural commune" is unparalleled! Alone in Europe, it has kept going not merely as scattered debris such as the rare and curious miniatures in a state of the archaic type which one could still come across until quite recently in the West, but as the virtually predominant form of popular life covering an immense empire. If it possesses in the communal ownership of the soil the basis of collective appropria- tion, its historical surroundings, its contemporaneity with capitalist production, lend it all the material conditions of communal labour on a vast scale. It is thus in a position to incorporate all the positive acquisitions devised by the capitalist system without passing through its Caudine Forks. It can gradually replace parcel farming with large-scale agriculture assisted by machines, which
+
+
+
+**[p. 358]**
+
+But opposing it is landed property controlling almost half the land—and the best land, at that—not to mention the domains of the State. That is where the preservation of the "rural commune" by way of its further development merges with the general trend of Russian society, of whose regeneration it is the price.
+
+Even from the economic point of view alone, Russia can emerge from its agrarian cul-de-sac by developing its rural commune; it would try in vain to get out of it by capitalised farming on the English model, to which all the social conditions of the country are inimical.3
+
+In order to be able to develop, it needs above all to live, and there is no escaping the fact that at the moment the life of the "rural commune" is in jeopardy.
+
+Apart from the reaction of any other destructive element from hostile surroundings, the gradual growth of chattels in the hands of private families, e.g. their wealth in the form of cattle, and sometimes even slaves or serfs—this sort of private accumulation is, in itself, enough to eat away at primitive economic and social equality in the long run, and give rise in the very heart of the commune to a conflict of interests which first undermines the communal ownership of arable land and ends by removing that of the forests, pastures, common lands, etc., after first converting them into a communal appendage of private property.
+
+4) The history of the decline of primitive communities (it would be a mistake to place them all on the same level; as in geological formations, these historical forms contain a whole series of primary, secondary, tertiary types, etc.) has still to be written. All we have seen so far are some rather meagre outlines. But in any event the research has advanced far enough to establish that: (1) the vitality of primitive communities was incomparably greater
+
+[^1]: a This paragraph is taken from the third draft of the letter to Vera Zasulich where Marx indicated with a mark "ad 12D" the necessity of transferring this paragraph to p. 12 of the first draft, while on p. 12 he marked with D the exact place of insertion. Then the following text is crossed out on p. 12 of the manuscript: "Therefore it is only in the midst of a general uprising that the isolation of the rural commune, the lack of connexion between the life of one commune and that of the others, in a word the localised microcosm which deprives it of historical initiative, can be broken"—Ed
+
+
+
+When reading the histories of primitive communities written by bourgeois writers it is necessary to be on one's guard. They do not even shrink from falsehoods. Sir Henry Maine, for example, who was a keen collaborator of the British Government in carrying out the violent destruction of the Indian communes, hypocritically assures us that all the government's noble efforts to support the communes were thwarted by the spontaneous forces of economic laws!a
+
+5) You know perfectly well that today the very existence of the Russian commune has been jeopardised by a conspiracy of powerful interests; crushed by the direct extortions of the State, fraudulently exploited by the "capitalist" intruders, merchants, etc., and the land "owners", it is undermined, into the bargain, by the village usurers, by conflicts of interests provoked in its very heart by the situation prepared for it.
+
+To expropriate the agricultural producers it is not necessary to chase them off their land, as was done in England and elsewhere; nor is it necessary to abolish communal property by an ukase. On the contrary: go and seize the product of their agricultural labour beyond a certain point and, despite all the gendarmes at your command, you will not succeed in keeping them on the land! In the last years of the Roman Empire the provincial decurions— large landowners—left their lands, becoming vagabonds, even selling themselves into slavery, simply in order to get rid of a "property" which was no more than an official pretext for extorting money from them.
+
+At the same time as the commune is bled dry and tortured, its land rendered barren and poor, the literary lackeys of the "new pillars of society" ironically depict the wounds inflicted on it as so many symptoms of its spontaneous decrepitude. They allege that it is dying a natural death and they would be doing a good job by shortening its agony. As far as this is concerned, it is no longer a matter of solving a problem; it is simply a matter of beating an enemy. To save the Russian commune, a Russian revolution is needed. For that matter, the government and the "new pillars of
+
+[^1]: a H. S. Maine, Village-Communities in the East and West, London, 1871.— Ed.
+
+
+

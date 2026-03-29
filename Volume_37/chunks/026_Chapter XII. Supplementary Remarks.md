@@ -1,0 +1,106 @@
+---
+Volume: 37
+Document_Title: "Chapter XII. Supplementary Remarks "
+Page_Range: "212-219"
+---
+
+# Chapter XII. Supplementary Remarks 
+
+
+
+**[p. 202]**
+
+working day remains the same, and also the prices of all the necessary means of subsistence. In these circumstances a fall in wages is possible only if they stood higher than the normal price of labour, or if they are depressed below this price. The way in which the matter is modified if the rise or fall of wages is due to a change in value, and consequently the price of production of commodities usually consumed by the la- bourer, will be analysed at some length in the part dealing with ground rent. At this point, however, the following remarks are to be made once and for all:
+
+Should the rise or fall in wages be due to a change in the value of the necessities of life, a modification of the foregoing findings can take place only to the extent that commodities, whose change of price raises or lowers the variable capital, also go into the constant capital as constituent elements and therefore affect more than just the wages alone. But if they affect only wages, the above analysis contains all that needs to be said.
+
+In this entire chapter, the establishment of the general rate of profit and the average profit, and consequently, the transformation of val- ues into prices of production, are assumed as given. The question merely was, how a general rise or fall in wages affected the assumed prices of production of commodities. This is but a very secondary question compared with the other important points analysed in this part. But it is the only relevant question treated by Ricardo, and, as we shall see,32 he treated it one-sidedly and unsatisfactorily.
+
+C h a p t e r XII
+
+There are just two causes that can change the price of production of a commodity.
+
+First. A change in the general rate of profit. This can solely be due to a change in the average rate of surplus value, or, if the average rate of surplus value remains the same, to a change in the ratio of the sum of the appropriated surplus values to the sum of the advanced total social capital.
+
+If the change in the rate of surplus value is not due to a depression
+
+[^1]: SUPPLEMENTARY REMARKS
+
+[^2]: I. CAUSES IMPLYING A CHANGE IN THE PRICE OF PRODUCTION
+
+
+
+
+
+**[p. 203]**
+
+of wages below normal, or their rise above normal — and movements ofthat kind are to be regarded merely as oscillations — it can only oc- cur either through a rise, or fall, in the value of labour power, the one being just as impossible as the other unless there is a change in the productivity of the labour producing means of subsistence, i. e., in the value of commodities consumed by the labourer.
+
+Or, through a change in the proportion of the sum of appropriated surplus values to the advanced total capital of society. Since the change in this case is not caused by the rate of surplus value, it must be caused by the total capital, or rather its constant part. The mass of this part, technically considered, increases or decreases in proportion to the quantity of labour power bought by the variable capital, and the mass of its value thus increases or decreases with the increase or decrease of its own mass. It also increases or decreases, therefore, proportionately to the mass of the value of the variable capital. If the same labour sets more constant capital in motion, it has become more productive. If the reverse, then less productive. Thus, there has been a change in the productivity of labour, and there must have occurred a change in the value of certain commodities.
+
+The following law, then, applies to both cases: If the price of pro- duction of a commodity changes in consequence of a change in the general rate of profit, its own value may have remained unchanged. However, a change must have occurred in the value of other commod- ities.
+
+Second. The general rate of profit remains unchanged. In this case the price of production of a commodity can change only if its own value has changed. This may be due to more, or less, labour being required to reproduce the commodity in question, either because of a change in the productivity of labour which produces this commod- ity in its final form, or of the labour which produces those commodi- ties that go into its production. The price of production of cotton yarn may fall, either because raw cotton is produced cheaper than before, or because the labour of spinning has become more productive due to improved machinery.
+
+The price of production, as we have seen, = k + p, equal to cost price plus profit. This, however, = k-f-kp', in which k, the cost price, is a variable magnitude, which changes for different spheres of production and is everywhere equal to the value of the constant and variable capital consumed in the production of the commodity, and p' is the average rate of profit in percentage form. If k = 200,
+
+and p' = 20%, the price of production k + kp' = 200 + + 200- ~7^. = 200 + 40 = 240. This price of production may clearly remain the same, in spite of a change in the value of the commodities. All changes in the price of production of commodities are reduced, in the last analysis, to changes in value. But not all changes in the value of commodities need express themselves in changes in the price of production. The price of production is not determined by the value of any one commodity alone, but by the aggregate value of all com- modities. A change in commodity A may therefore be balanced by an opposite change in commodity B, so that the general relation remains the same.
+
+II. PRICE OF PRODUCTION OF COMMODITIES OF AVERAGE COMPOSITION
+
+We have seen how a deviation in prices of production from values arises from:
+
+1 ) adding the average profit instead of the surplus value contained in a commodity to its cost price;
+
+2) the price of production, which so deviates from the value of a commodity, entering into the cost price of other commodities as one of its elements, so that the cost price of a commodity may already contain a deviation from the value of the means of production con- sumed by it, quite aside from a deviation of its own which may arise through a difference between the average profit and the surplus value.
+
+It is therefore possible that even the cost price of commodities pro- duced by capitals of average composition may differ from the sum of the values of the elements which make up this component of their price of production. Suppose, the average composition is 80c + 20v. Now, it is possible that in the actual capitals of this composition 80c may be greater or smaller than the value of c, i. e., the constant capi- tal, because this c may be made up of commodities whose price of production differs from their value. In the same way, 20v might di- verge from its value if the consumption of the wage includes commod- ities whose price of production diverges from their value; in which case the labourer would work a longer, or shorter, time to buy them back (to replace them) and would thus perform more, or less, neces- sary labour than would be required if the price of production of such necessities of life coincided with their value.
+
+
+
+**[p. 205]**
+
+However, this possibility does not detract in the least from the cor- rectness of the theorems demonstrated which hold for commodities of average composition. The quantity of profit falling to these commodi- ties is equal to the quantity of surplus value contained in them. For instance, in a capital of the given composition 80c + 20v, the most important thing in determining surplus value is not whether these fig- ures are expressions of actual values, but how they are related to one another, i. e., whether v = -y of the total capital, and c = y . When- ever this is the case, the surplus value produced by v is, as was as- sumed, equal to the average profit. On the other hand, since it equals the average profit, the price of production = cost price 4- prof- it = k + p = k + s; i. e., in practice it is equal to the value of the com- modity. This implies that a rise or fall in wages would not change k + p any more than it would change the value of the commodities, and would merely effect a corresponding opposite movement, a fall or a rise, in the rate of profit. For if a rise or fall of wages were here to bring about a change in the price of commodities, the rate of profit in these spheres of average composition would rise above, or fall below, the level prevailing in other spheres. The sphere of average composi- tion maintains the same level of profit as the other spheres only so long as the price remains unchanged. The practical result is therefore the same as it would be if its products were sold at their real value. For if commodities are sold at their actual values, it is evident that, other conditions being equal, a rise, or fall, in wages will cause a cor- responding fall or rise in profit, but no change in the value of commod- ities, and that under all circumstances a rise or fall in wages can never affect the value of commodities, but only the magnitude of the surplus value.
+
+It has been said that competition levels the rates of profit of the dif- ferent spheres of production into an average rate of profit and thereby turns the values of the products of these different spheres into prices of production. This occurs through the continual transfer of capital from one sphere to another, in which, for the moment, the profit happens to lie above average. The fluctuations of profit caused by the cycle of fat and lean years succeeding one another in any given branch of industry within given periods must, however, receive due
+
+[^1]: III. THE CAPITALIST'S GROUNDS FOR COMPENSATING
+
+
+
+consideration. This incessant outflow and inflow of capital between the different spheres of production creates trends of rise and fall in the rate of profit, which equalise one another more or less and thus have a tendency to reduce the rate of profit everywhere to the same common and general level.
+
+This movement of capitals is primarily caused by the level of mar- ket prices, which lift profits above the general average in one place and depress them below it in another. Merchant's capital is left out of consideration as it is irrelevant at this point, for we know from the sudden paroxysms of speculation appearing in certain popular arti- cles that it can withdraw masses of capital from one line of business with extraordinary rapidity and throw them with equal rapidity into another. Yet with respect to each sphere of actual production — industry, agriculture, mining, etc.— the transfer of capital from one sphere to another offers considerable difficulties, particularly on ac- count of the existing fixed capital. Experience shows, moreover, that if a branch of industry, such as, say, the cotton industry, yields un- usually high profits at one period, it makes very little profit, or even suffers losses, at another, so that in a certain cycle of years the average profit is much the same as in other branches. And capital soon learns to take this experience into account.
+
+What competition does not show, however, is the determination of value, which dominates the movement of production; and the values that lie beneath the prices of production and that determine them in the last instance. Competition, on the other hand, shows: 1) the average profits, which are independent of the organic composition of capital in the different spheres of production, and therefore also of the mass of living labour appropriated by any given capital in any given sphere of exploitation; 2) the rise and fall of prices of production caused by changes in the level of wages, a phenomenon which at first glance completely contradicts the value relation of commodities; 3) the fluctuations of market prices, which reduce the average market price of commodities in a given period of time, not to the market value, but to a very different market price of production, which di- verges considerably from this market value. All these phenomena seem to contradict the determination of value by labour time as much as the nature of surplus value consisting of unpaid surplus labour. Thus everything appears reversed in competition. The final pattern of economic relations as seen on the surface, in their real existence and conse- quently in the conceptions by which the bearers and agents of these
+
+
+
+**[p. 207]**
+
+relations seek to understand them, is very much different from, and indeed quite the reverse of, their inner but concealed essential pattern and the conception corresponding to it.a
+
+Further. As soon as capitalist production reaches a certain level of development, the equalisation of the different rates of profit in indi- vidual spheres to general rate of profit no longer proceeds solely through the play of attraction and repulsion, by which market prices attract or repel capital. After average prices, and their corresponding market prices, become stable for a time it reaches the consciousness of the individual capitalists that this equalisation balances definite differ- ences, so that they include these in their mutual calculations. The dif- ferences exist in the mind of the capitalist and are taken into account as grounds for compensating.
+
+Average profit is the basic conception, the conception that capitals of equal magnitude must yield equal profits in equal time spans. This, again, is based on the conception that the capital in each sphere of production must share pro rata to its magnitude in the total surplus value squeezed out of the labourers by the total social capital; or, that every individual capital should be regarded merely as a part of the to- tal capital, and every capitalist actually as a shareholder in the total enterprise, each sharing in the total profit pro rata to the magnitude of his share of capital.
+
+This conception serves as a basis for the capitalist's calculations, for instance, that a capital whose turnover is slower than another's because its commodities take longer to be produced, or because they are sold in remoter markets, nevertheless charges the profit it loses in this way, and compensates itself by raising the price. Or else, that in- vestments of capital in lines exposed to greater hazards, for instance in shipping, are compensated by higher prices. As soon as capitalist production, and with it the insurance business, are developed, the hazards are, in effect, made equal for all spheres of production (cf. Corbetb); but the more hazardous lines pay higher insurance rates, and recover them in the prices of their commodities. In practice all this means that every circumstance, which renders one line of produc- tion— and all of them are considered equally necessary within cer- tain limits — less profitable, and another more profitable, is taken in-
+
+[^1]: a Cf. present edition, Vol. 33, p. 102. - h Th. Corbet, An Inquiry into the Causes and Modes of the Wealth of Individuals, London, 1841, pp. 100-02. Cf. present edition, Vol. 33, pp. 243 and 281.
+
+
+
+
+
+**[p. 208]**
+
+to account once and for all as valid ground for compensation, without always requiring the renewed action of competition to justify the motives or factors for calculating this compensation. The capitalist simply forgets — or rather fails to see, because competition does not point it out to him — that all these grounds for compensation mu- tually advanced by capitalists in calculating the prices of commodi- ties of different lines of production merely come down to the fact that they all have an equal claim, pro rata to the magnitude of their respec- tive capitals, to the common loot, the total surplus value. It rather seems to them that since the profit pocketed by them differs from the surplus value they squeezed out, these grounds for compensation do not level out their participation in the total surplus value, but create the profit itself, which seems to be derived from the additions made on one or another ground to the cost price of their commodities.
+
+In other respects the statements made in Chapter VII, p. 116,a
+
+concerning the capitalists' assumptions as to source of surplus value, apply also to average profit. The present case appears different only in so far as a saving in cost price depends on individual business acumen, alertness, etc., assuming the market price of commodities and the exploitation of labour to be given.
+
+[^1]: a See this volume, p. 137.
+
+
+

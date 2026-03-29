@@ -1,0 +1,88 @@
+---
+Volume: 18
+Document_Title: "An Inspection of English Volunteers "
+Page_Range: "562-572"
+---
+
+# An Inspection of English Volunteers 
+
+
+
+**[p. 535]**
+
+AN INSPECTION OF ENGLISH VOLUNTEERS47
+
+[Allgemeine Militär-Zeitung, No. 44, November 1, 1862]
+
+Two years have passed since you permitted me to report in your journal on the review of volunteers in Newton in August 1860.a It may be of interest to your readers to learn something further, after such a lapse of time, on the strength and tactical training of the English militia.
+
+On a suitable occasion, perhaps soon, I shall go into the strength and present organisation of the volunteers; I limit myself today to saying that the official effective strength of the volunteer army is 162,800 men, stronger, that is, than ever before, and I proceed at once to describe, by an example, the tactical training of this army.
+
+On August 2 Colonel Mc Murdo, Inspector General of all volunteers, held a review at Heaton Park, one hour from Manchester, of the contingent raised by that city. The troops consisted of the First, Second and Third Manchester "regiments" (6th, 28th and 40th Lancashire Corps) and the "regiments" raised by the suburbs of Ardwick and Salford (33rd and 56th Lanca- shire). Only three of these so-called "regiments" (the First and Third Manchester and the Ardwick Corps) were in battalion strength; the other two together made up a battalion; these battalions varied from 18 to 21 squads per company, each battalion was made up of eight companies and was about 400 strong on the average, including officers. Also present were the volunteer cavalry (32 men) and artillery (two amusette one- pounders lent by Mr. Whitworth and about 150 men, constituted as infantry to guard the guns), likewise from Manchester. In most
+
+[^1]: ;l See this volume, pp. 409-16.— Ed.
+
+
+
+of the battalions the infantry could have been stronger by 100-150 men, but the commanders seem to have seen to it that the untrained men stayed at home.
+
+The terrain (the southern portion of the park belonging to the Earl of Wilton, where horse races were previously held) is a hilly ridge dropping from west to east; it is bounded by valley bottoms on the right and left which, in front of the eastern foot of the hill, combine to form a flat meadow some 800 paces square. The brook running along the northern foot of the hill, beyond which the land rises again, limited the terrain on that side; in every other direction it was enclosed by the woods up against the park wall. The terrain is quite open in character except for fenced or free-standing shrubbery as well as isolated trees and a swampy place here and there.
+
+Colonel Mc Murdo's reviews, contrary to most usual reviews of volunteers, are always conducted without a programme prepared in advance and known to the troops; the gentlemen never know in advance what they will be called on to do. Accordingly, the manoeuvres they are ordered to perform are only such as are actually employed in face of the enemy, excluding any kind of tactical sophistication. Mc Murdo, the son-in-law of Sir Charles Napier, the conqueror of Sind,479 and his chief of staff in India, is no pedant but a thoroughly practical soldier, and all his actions with the volunteers prove that he is just the man for his present position.
+
+The brigade received the inspector in line, as usual. After the initial formalities, he had quarter-distance columns formed (the usual column in England for manoeuvres of bodies of troops outside the range of enemy fire), then had the ranks closed to centre and the front of the line of the column shifted forward to the right, so that the flat meadow mentioned above and the woods of the eastern wall of the park lay to the front. During these manoeuvres, which were executed rapidly and without disorder, the cavalry deployed in extended formation, went through the woods and opened fire on the supposed enemy, but soon drew back. Now the battalion on the right wing (6th Lancashire) was sent forward, four companies deployed and four in support; the next two battalions (the combined 28th and 56th Lancashire and the 33rd Lancashire) deployed, while the battalion on the left wing (40th Lancashire) remained in column formation and took up a position, along with the cavalry, 200 paces to the rear, as reserve. The two guns were placed on the edge of a hill on the right wing of the line of skirmishers. Until the order to advance
+
+
+
+**[p. 537]**
+
+was given, the skirmishers, the supporting troops and the deployed line lay flat on the ground. In this posture the brigade made a genuinely military impression such as one is not accustomed to find in usual volunteer manoeuvres; one could see that a real soldier was in command.
+
+The signal to advance and fire sounded for the line of skirmishers. The combat in loose order was not executed particularly well. The men, accustomed to deploying to a pattern on the open plain of their drill-ground, were much too anxiously concerned with their alignment to think of cover. Natural features and thickets were so much Greek to them. Besides, there were the fenced bushes, which were not to be entered and completely confused the men; one company remained halted before one such thicket in the narrow valley and fired into it with the utmost composure, while the rest of the line had long since gone around and was already beyond it. In addition, the line of skirmishers swung gradually all the way over to the left flank, so that the woods into which the cavalry had charged were attacked very little or not at all and the front of the deployed line was more and more exposed. Since the initial disposition and course of the manoeuvre did not seem in any way to call for this movement, I must presume that it was due to a misunderstanding. The artillery advanced, firing, with the right wing of the skirmishers, laid itself for the most part open; and if my field glasses did not deceive me, the wheels of the gun carriages were often tilted on the slope.
+
+The skirmishers were also reinforced for a moment by deployment of the supporting troops and then called back; the deployed line had gone forward in the meantime and opened fire by squads. The fire of the right wing, especially the 28th Lancashire, was very heavy and almost too fast; in the centre, at the right wing of the 33rd Lancashire, it was sluggish and interrupted by long pauses, and rather irregular on the left wing. Here one part of the line stood just behind an undulation of the ground almost twice the height of a man, but that did not stop them from rattling away at it merrily. Meanwhile, the 40th Lancashire had come up from its position in the reserve to 200 paces behind the line, and deployed; to the right of it, the reassembled 6th Lancashire spread out. Both let the left-wing sections of the companies swing back to the rear in order to make room for the passage through of the first line, now breaking off by companies in double files and falling back. I must say that I have never been able to take kindly to this manoeuvre prescribed
+
+
+
+**[p. 538]**
+
+The 6th and 40th Lancashire regiments for their part now opened up fire by squads, which was considerably more uniform and better sustained than that of the two other battalions. After perhaps four or five cartridges per man had been shot off—the artillery had kept up a continuous fire from the right wing of whatever unit formed the first line at the time—halt was sounded and this ended the first act of the manoeuvres. So far Colonel Mc Murdo had handled his brigade as a detached body engaged in independent combat with a supposed enemy; the positions and movements were all related to the opposite terrain held by the enemy. From this point on he drew up the four battalions in a single line, operating as the first line of a larger unit. The limited space no longer made it possible to take the terrain opposite into account, and in order to keep the men together in mass movement, there was no further deployment of skirmishers.
+
+At the beginning, the first line changed front forward to the left, which brought it into the prolongation of the above- mentioned northern valley. The other battalions deployed to the left of it and the entire line opened fire by squads. It was then extended more and more to the left, while from the right wing on the battalions broke off in companies one after another, marched behind the front to the left wing, and reformed there. After the left wing had in this way been shifted almost to the woods of the western wall of the park, the front was drawn back 90 degrees to
+
+[^1]: [Allgemeine Militär-Zeitung, No. 45, November 8, 1862]
+
+
+
+
+
+**[p. 539]**
+
+the right, with the left wing as pivot. With the exception of the battalion on the left wing, this manoeuvre was executed, as usual, by assembling the battalions in quarter-distance columns, marching along the line of the new direction and deploying, and was done very quickly and in perfect order, even though on a steep slope. As the battalions deployed again, I went right along the front of the 40th Lancashire Corps and saw each company come up into the line of direction, and I must say that our best-drilled continental troops of the line might have done this more elegantly and "smartly" but certainly not more calmly or quickly. In the course of the manoeuvre Colonel Mc Murdo expressed his appreciation out loud several times to the battalion. The 6th Lancashire Corps too deployed rapidly and in order; I have seen French troops of the line execute this manoeuvre much more carelessly.
+
+After some squad firing the brigade advanced in echelons from the left flank with 100 paces distance between the battalions, halted and formed a square at the double. This was not executed particularly well since the march through the thickets had separated the men to some extent. The battalions deployed again, advanced into alignment with the battalion on the left wing, each gave a salvo, which by and large was solid enough, and now the entire brigade advanced in a single line. I could wish that some of the officers, so numerous in Cermany, who hold that movements in line cannot be executed with young troops, could have seen the frontal march of this line of 640 squads. The terrain was as rugged as one could wish. The front ran across a hilly ridge that fell off rather steeply on three sides, the ground was full of holes and humps, and there were many single trees. None the less the line went forward several hundred paces in perfect order, fairly well aligned, in close order and without deviation, especially the two centre battalions (6th and 40th), and Colonel Mc Murdo, both on the spot and later to his staff officers, expressed his complete satisfaction with this manoeuvre. Finally he had the attack sounded, and now off they went, as volunteer troops do, running at top speed a hundred paces or so down the slope into the open field, more like a race than an attack. When the halt was sounded, the 40th Lancashire Corps was compact and in order, though poorly aligned, the Sixth not in such good order. On the wings, however, especially the left, things were very disorderly; the men were badly disarrayed, many had fallen, and one man in the front rank was wounded in the calf, since at that point part of the second rank had also fixed bayonets. This ended the
+
+manoeuvres; the troops formed up to defile, defiled and went home.
+
+I believe that an example like this will give the readers of the Allgemeine Militär-Zeitung a much more vivid picture of the character and the degree of training of these volunteers than any doctrinaire discussions. Although the number of troops concen- trated there was small, just for that reason it was possible to execute more practical manoeuvres than would otherwise be possible here with larger masses of volunteers; sufficient space for the latter is never to be found here. In addition, the battalions present constituted a very good average sample of the English volunteer corps: two of them, as will have been seen, were considerably more advanced than the other two and represented the consolidated battalions of the larger cities; the other two, which were more backward in their training if only because of their less homogeneous composition, were more representative of the units formed in the country and smaller towns. On the whole it can be said that the volunteers have adequately learned the principal battalion manoeuvres; they form columns and deploy, and they move in columns and in line with sufficient, and occasionally great assurance. On the other hand, it would be well to spare them the artificial marches and counter-marches still contained in the English regulations, as in so many others. Open-order combat, always the weak side of the English, is known to the volunteers only to the extent that it could be taught them on the drill-ground, but in this respect too there are significant differences among the various battalions. The errors that came to light in this inspection do not differ in any way, as we have seen, from the errors seen daily in the training exercises of our continental peacetime armies, even though those armies have the advantage of being led by officers who have grown grey on the field of manoeuvre. In this connection it should not be overlooked that the officers of the English volunteers are still the weak side of the entire corps, although here too considerable improvement can be seen. One who rejoices in the march past will find that the volunteers are further advanced in this art too than he would have expected. Finally, as to their performance on the firing range, they can beyond question bear comparison with any standing army in Europe and certainly have an average of more good shots per battalion than most troops of the line. All in all, the experiment is to be regarded, after three years, as completely successful. Almost without any expense to the Government, England has created an organised army of 163,000 men for the country's defence—an
+
+
+
+**[p. 541]**
+
+army that has gone so far in its training that, depending on the varying degree of training of the battalions, it needs only three to six weeks of encampment and exercises to become a thoroughly dependable field force. And in the worst of cases any attempt at invasion would be bound to give the English at least that much time!
+
+Written probably between August 2 and 8, Printed according to the newspaper 1862
+
+Translated from the German First published in the Allgemeine Militär- Zeitung, Nos. 44 and 45, November 1 and Published in English for the first 8, 1862 t i m e
+
+Signed: F. E.
+
+
+
+NOTES
+
+AND INDEXES
+
+
+

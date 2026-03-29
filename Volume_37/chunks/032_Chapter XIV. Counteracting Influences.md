@@ -1,0 +1,134 @@
+---
+Volume: 37
+Document_Title: "Chapter XIV. Counteracting Influences "
+Page_Range: "240-249"
+---
+
+# Chapter XIV. Counteracting Influences 
+
+increase of the invested capital, makes its appearance. According to the degree of this expansion the capitalist will be able to employ a part of his former labourers, actually perhaps all of them, or even more, under the new conditions, and hence to produce the same, or a greater, mass of profit.11
+
+C h a p t e r XIV
+
+COUNTERACTING INFLUENCES
+
+If we consider the enormous development of the productive forces of social labour in the last 30 years alone as compared with all preced- ing periods; if we consider, in particular, the enormous mass of fixed capital, aside from the actual machinery, which goes into the process of social production as a whole, then the difficulty which has hitherto troubled the economists, namely to explain the falling rate of profit, gives place to its opposite, namely to explain why this fall is not great- er and more rapid. There must be some counteracting influences at work, which cross and annul the effect of the general law, and which give it merely the characteristic of a tendency, for which reason we have referred to the fall of the general rate of profit as a tendency to fall. The following are the most general counterbalancing forces:
+
+The degree of exploitation of labour, the appropriation of surplus labour and surplus value, is raised notably by lengthening the work- ing day and intensifying labour. These two points have been compre- hensively treated in Book I as incidental to the production of absolute and relative surplus value. There are many ways of intensifying labour which imply an increase of constant, as compared to variable, capital, and hence a fall in the rate of profit, such as compelling a la- bourer to operate a larger number of machines. In such cases — and in most procedures serving the production of relative surplus val- ues— the same causes which increase the rate of surplus value, may also, from the standpoint of given quantities of invested total capital,
+
+[^1]: I. INCREASING INTENSITY OF EXPLOITATION
+
+[^2]: a Ibid., Vol. 33, pp. 35-36.
+
+
+
+
+
+**[p. 231]**
+
+involve a fall in the mass of surplus value. But there are other aspects of intensification, such as the greater velocities of machinery, which consume more raw material in the same time, but, so far as the fixed capital is concerned, wear out the machinery so much faster, and yet do not in any way affect the relation of its value to the price of the labour which sets it in motion. But notably, it is prolongation of the working day, this invention of modern industry, which increases the mass of appropriated surplus labour without essentially altering the proportion of the employed labour power to the constant capital set in motion by it, and which rather tends to reduce this capital relatively. Moreover, it has already been demonstrated — and this constitutes the real secret of the tendency of the rate of profit to fall that the manipulations to produce relative surplus value amount, on the whole, to transforming as much as possible of a cer- tain quantity of labour into surplus value, on the one hand, and employing as little labour as possible in proportion to the advanced capital, on the other, so that the same reasons which permit raising the intensity of exploitation rule out exploiting the same quantity of labour as before by the same capital. These are the counteracting tendencies, which, while effecting a rise in the rate of surplus value, also tend to decrease the mass of surplus value, and hence the rate of profit produced by a certain capital. Mention should also be made here of the widespread introduction of female and child labour, in so far as the whole family must now perform more surplus labour for capital than before, even when the total amount of their wages in- creases, which is by no means always the case.a — Everything that promotes the production of relative surplus value by mere improve- ment in methods, as in agriculture, without altering the magnitude of the invested capital, has the same effect. The constant capital, it is true, does not, in such cases, increase in relation to the variable, inas- much as we regard the variable capital as an index of the amount of labour power employed, but the mass of the product does increase in proportion to the labour power employed. The same occurs, if the productive power of labour (no matter, whether its product goes into the labourer's consumption or into the elements of constant capital) is freed from hindrances in communications, from arbitrary or other restrictions which have become obstacles in the course of time; from
+
+[^1]: a Cf. present edition, Vol. 30, pp. 332-35; Vol. 33, pp. 123-24; Vol. 34, pp. 24-25.
+
+
+
+
+
+**[p. 232]**
+
+fetters of all kinds, without directly affecting the ratio of variable to constant capital.
+
+It might be asked whether the factors that check the fall of the rate of profit, but that always hasten its fall in the last analysis, whether these include the temporary, but always recurring, elevations in sur- plus value above the general level, which keep occurring now in this and now in that line of production redounding to the benefit of those individual capitalists, who make use of inventions, etc., before these are introduced elsewhere. This question must be answered in the affirmative.
+
+The mass of surplus value produced by a capital of a given magni- tude is the product of two factors — the rate of surplus value multi- plied by the number of labourers employed at this rate. At a given rate of surplus value it therefore depends on the number of labourers, and it depends on the rate of surplus value when the number of labourers is given. Generally, therefore, it depends on the composite ratio of the absolute magnitudes of the variable capital and the rate of surplus value. Now we have seen that, on the average, the same factors which raise the rate of relative surplus value lower the mass of the employed labour power. It is evident, however, that this will occur to a greater or lesser extent, depending on the definite proportion in which this conflicting movement obtains, and that the tendency towards a re- duction in the rate of profit is notably weakened by a rise in the rate of absolute surplus value, which originates with the lengthening of the working day.
+
+We saw in the case of the rate of profit that a drop in the rate was generally accompanied by an increase in the mass of profit, due to the increasing mass of total capital employed. From the standpoint of the total variable capital of society, the surplus value it has produced is equal to the profit it has produced. Both the absolute mass and the rate of surplus value have increased; the one because the quantity of labour power employed by society has grown, and the other, because the intensity of exploitation of this labour has increased. But in the case of a capital of a given magnitude, e.g., 100, the rate of surplus value may increase, while the average mass may decrease; for the rate is determined by the proportion, in which the variable capital pro- duces value, while the mass is determined by the proportion of variable capital to the total capital.
+
+The rise in the rate of surplus value is a factor which determines the mass of surplus value, and hence also the rate of profit, for it takes
+
+
+
+**[p. 233]**
+
+place especially under conditions, in which, as we have previously seen, the constant capital is either not increased at all, or not proportionately increased, in relation to the variable capital. This factor does not abolish the general law. But it causes that law to act rather as a tendency, i. e., as a law whose absolute action is checked, retarded, and weakened, by counteracting circumstances. But since the same influences which raise the rate of surplus value (even a length- ening of the working time is a result of large-scale industry) tend to decrease the labour power employed by a certain capital, it follows that they also tend to reduce the rate of profit and to retard this reduction.3 If one labourer is compelled to perform as much labour as would rationally be performed by at least two, and if this is done under circumstances in which this one labourer can replace three, then this one labourer will perform as much surplus labour as was for- merly performed by two, and the rate of surplus value will have risen accordingly. But he will not perform as much as three had performed, and the mass of surplus value will have decreased accordingly. But this reduction in mass will be compensated, or limited, by the rise in the rate of surplus value. If the entire population is employed at a higher rate of surplus value, the mass of surplus value will increase, in spite of the population remaining the same. It will increase still more if the population increases. And although this is tied up with a relative reduction of the number of employed labourers in propor- tion to the magnitude of the total capital, this reduction is moderat- ed, or checked, by the rise in the rate of surplus value.
+
+Before leaving this point, it is to be emphasised once more that with a capital of a given magnitude the rate of surplus value may rise, while its mass is decreasing, and vice versa. The mass of surplus value is equal to the rate multiplied by the number of labourers; however, the rate is never calculated on the total, but only on the variable capital, actually only for every working day. On the other hand, with a given magnitude of capital value, the rate of profit can neither rise nor fall without the mass of surplus value also rising or falling.
+
+[^1]: a Ibid., Vol. 35, p. 408.
+
+
+
+
+
+**[p. 234]**
+
+II. DEPRESSION OF WAGES BELOW THE VALUE OK LABOUR POWER
+
+This is mentioned here only empirically, since, like many other things which might be enumerated, it has nothing to do with the gen- eral analysis of capital, but belongs in an analysis of competition, which is not presented in this work.l However, it is one of the most important factors checking the tendency of the rate of profit to fall.
+
+III. CHEAPENING OF ELEMENTS OF CONSTANT CAPITAL
+
+Everything said in Part I of this book about factors which raise the rate of profit while the rate of surplus value remains the same, or regardless of the rate of surplus value, belongs here. Hence also, with respect to the total capital, that the value of the constant capital does not increase in the same proportion as its material volume. For instance, the quantity of cotton worked up by a single European spin- ner in a modern factory has grown tremendously compared to the quantity formerly worked up by a European spinner with a spinning- wheel. Yet the value of the worked-up cotton has not grown in the same proportion as its mass. The same applies to machinery and oth- er fixed capital. In short, the same development which increases the mass of the constant capital in relation to the variable reduces the value of its elements as a result of the increased productivity of la- bour, and therefore prevents the value of constant capital, although it continually increases, from increasing at the same rate as its material volume, i.e., the material volume of the means of production set in motion by the same amount of labour power. In isolated cases the mass of the elements of constant capital may even increase, while its value remains the same, or even falls.
+
+The foregoing is bound up with the depreciation of existing capital (that is, of its material elements), which occurs with the development of industry. This is another continually operating factor which checks the fall of the rate of profit, although it may under certain circum- stances encroach on the mass of profit by reducing the mass of the cap- ital yielding a profit. This again shows that the same influences which tend to make the rate of profit fall, also moderate the effects of this tendency.
+
+
+
+**[p. 235]**
+
+IV. RELATIVE OVERPOPULATION
+
+Its propagation is inseparable from, and hastened by, the develop- ment of the productivity of labour as expressed by a fall in the rate of profit. The relative overpopulation becomes so much more apparent in a country, the more the capitalist mode of production is developed in it. This, again, is the reason why, on the one hand, the more or less imperfect subordination of labour to capital continues in many branches of production, and continues longer than seems at first glance compatible with the general stage of development. This is due to the cheapness and abundance of disposable or unemployed wage la- bourers, and to the greater resistance, which some branches of pro- duction, by their very nature, render to the transformation of manual work into machine production. On the other hand, new lines of pro- duction are opened up, especially for the production of luxuries, and it is these that take as their basis this relative overpopulation, often set free in other lines of production through the increase of their constant capital. These new lines start out predominantly with living labour, and by degrees pass through the same evolution as the other lines of production. In either case the variable capital makes up a considerable portion of the total capital and wages are below the average, so that both the rate and mass of surplus value in these lines of production are unusually high. Since the general rate of profit is formed by level- ling the rates of profit in the individual branches of production, how- ever, the same factor which brings about the tendency in the rate of profit to fall, again produces a counterbalance to this tendency and more or less paralyses its effects.
+
+Since foreign trade partly cheapens the elements of constant capi- tal, and partly the necessities of life into which the variable capital is converted, it tends to raise the rate of profit by increasing the rate of surplus value and lowering the value of constant capital. It generally acts in this direction by permitting an expansion of the scale of pro- duction. It thereby hastens the process of accumulation, on the one hand, but causes the variable capital to shrink in relation to the con- stant capital, on the other, and thus hastens a fall in the rate of profit. In the same way, the expansion of foreign trade, although the basis of the capitalist mode of production in its infancy, has become its own
+
+[^1]: V. FOREIGN TRADE
+
+
+
+
+
+**[p. 236]**
+
+product, however, with the further progress of the capitalist mode of production, through the innate necessity of this mode of production, its need for an ever-expanding market. Here we see once more the dual nature of this effect. (Ricardo has entirely overlooked this side of foreign trade.")
+
+Another question — really beyond the scope of our analysis ' be- cause of its special nature — is this: Is the general rate of profit raised by the higher rate of profit produced by capital invested in foreign, and particularly colonial, trade?
+
+Capitals invested in foreign trade can yield a higher rate of profit, because, in the first place, there is competition with commodities pro- duced in other countries with inferior production facilities, so that the more advanced country sells its commodities above their value even though cheaper than the competing countries. In so far as the labour of the more advanced country is here realised as labour of a higher specific weight, the rate of profit rises, because labour which has not been paid as being of a higher quality is sold as such. The same may obtain in relation to the country, to which commodities are exported and to that from which commodities are imported; namely, the latter may offer more objectified labour in natura than it receives, and yet thereby receive commodities cheaper than it could produce them. Just as a manufacturer who employs a new invention before it be- comes generally used, undersells his competitors and yet sells his com- modity above its individual value, that is, realises the specifically higher productiveness of the labour he employs as surplus labour. He thus secures a surplus profit. As concerns capitals invested in colonies, etc., on the other hand, they may yield higher rates of profit for the sim- ple reason that the rate of profit is higher there due to backward devel- opment, and likewise the exploitation of labour, because of the use of slaves, coolies, etc. It is hard to see why these higher rates of profit, real- ised by capitals invested in certain lines and sent home by them, should not, unless monopolies stand in the way, enter here into the equalisation of the general rate of profit and thus tend, pro tanto, to raise it.36) It is
+
+[^1]: 361 Adam Smith b was right in this respect, contrary to Ricardo, who said: "They contend that the equality of profits will be brought about by the general rise of profits; and I am of the opinion that the profits of the favoured trade will speedily submit to the general level." [Works, ed. by Mac Culloch, p. 73.)
+
+[^2]: a See D. Ricardo, On the Principles of Political Economy, and Taxation, 3rd edition, Ch. VII; cf. present edition, Vol. 32, pp. 73-74. - b An Inquiry into the Nature and Causes of the Wealth of Nations, Vol. I, London, 1776, Ch. 9.
+
+
+
+
+
+**[p. 237]**
+
+hard to see this in particular if these spheres of investment of capital are subject to the laws of'free competition. What Ricardo fancies, in contrast, is mainly this: with the higher prices realised abroad com- modities are bought there and sent home. These commodities are thus sold on the home market, so that the result can at best be but a temporary extra advantage for these favoured spheres of produc- tion over others. This illusion falls away as soon as it is divested of its money form. The favoured country recovers more labour in exchange for less labour, although this difference, this excess is pocketed, as in any exchange between labour and capital, by a certain class. Since the rate of profit is higher, therefore, because it is generally higher in a colonial country, it may, provided natural conditions are favourable, go hand in hand with low commodity prices. A lev- elling takes place but not a levelling to the old level, as Ricardo feels.
+
+This same foreign trade develops the capitalist mode of production in the home country, which implies the decrease of variable capital in relation to constant, and, on the other hand, causes overproduction in respect to foreign markets, so that in the long run it again has an opposite effect.
+
+We have thus seen in a general way that the same influences which produce a tendency in the general rate of profit to fall, also call forth countereffects, which hamper, retard, and partly paralyse this fall. The latter do not do away with the law, but impair its effect. Other- wise, it would not be the fall of the general rate of profit, but rather its relative slowness, that would be incomprehensible. Thus, the law acts only as a tendency. And it is only under certain circum- stances and only after long periods that its effects become strikingly pronounced.
+
+Before we go on, in order to avoid misunderstandings, we should recall two, repeatedly treated, points.
+
+First: The same process which brings about a cheapening of com- modities in the course of the development of the capitalist mode of production, causes a change in the organic composition of the social capital invested in the production of commodities, and consequently lowers the rate of profit. We must be careful, therefore, not to identify the reduction in the relative cost of an individual commodity, includ- ing that portion of it which represents wear and tear of machinery, with the rise in the value of the constant in relation to variable capi- tal, although, conversely, every reduction in the relative cost of the
+
+
+
+**[p. 238]**
+
+constant capital assuming the volume of its material elements remains the same, or increases, tends to raise the rate of profit, i. e., to reduce pro tanto the value of the constant capital in relation to the shrinking proportions of the employed variable capital.
+
+Second: The fact that the newly added living labour contained in the individual commodities, which taken together make up the prod- uct of capital, decreases in relation to the materials they contain and the means of labour consumed by them; the fact, therefore, that an ever-decreasing quantity of newly added living labour is objectified in them, because their production requires less labour with the develop- ment of the social productiveness—this fact does not affect the ratio, in which the living labour contained in the commodities breaks up into paid and unpaid labour. Quite the contrary. Although the total quantity of newly added living labour contained in the commod- ities decreases, the unpaid portion increases in relation to the paid portion, either by an absolute or a relative shrinking of the paid por- tion; for the same mode of production which reduces the total quan- tity of newly added living labour in a commodity is accompanied by a rise in the absolute and relative surplus value. The tendency of the rate of profit to fall is bound up with a tendency of the rate of surplus value to rise, hence with a tendency for the rate of labour exploitation to rise. Nothing is more absurd, for this reason, than to explain the fall in the rate of profit by a rise in the rate of wages, although this may be the case by way of an exception.3 Statistics is not able to make actual analyses of the rates of wages in different epochs and countries, until the conditions which shape the rate of profit are thoroughly understood. The rate of profit does not fall because labour becomes less productive, but because it becomes more productive. Both the rise in the rate of surplus value and the fall in the rate of profit are but specific forms through which growing productivity of labour is ex- pressed under capitalism.
+
+The foregoing five points may still be supplemented by the follow- ing, which, however, cannot be more fully treated for the present. With the progress of capitalist production, which goes hand in hand
+
+[^1]: VI. THE INCREASE OF STOCK CAPITAL
+
+[^2]: a See D. Ricardo, op. cit., pp. 120-21; cf. present edition, Vol. 32, p. 73.
+
+
+

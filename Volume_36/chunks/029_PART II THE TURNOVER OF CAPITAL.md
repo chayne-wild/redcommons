@@ -1,0 +1,8 @@
+---
+Volume: 36
+Document_Title: "PART II THE TURNOVER OF CAPITAL "
+Page_Range: "164-164"
+---
+
+# PART II THE TURNOVER OF CAPITAL 
+

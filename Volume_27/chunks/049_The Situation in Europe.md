@@ -1,0 +1,56 @@
+---
+Volume: 27
+Document_Title: "The Situation in Europe "
+Page_Range: "260-262"
+---
+
+# The Situation in Europe 
+
+
+
+**[p. 233]**
+
+(FROM A LETTE R T O PAU L LAFARGUE) ] 195
+
+London, Septembe r 2 , 189 1
+
+THE BRUSSEL S CONGRES S
+
+We hav e ever y reaso n t o be satisfie d wit h th e Brussel s Congress .
+
+It wa s righ t t o vot e fo r th e exclusio n o f th e anarchists : tha t i s where th e ol d Internationa l brok e off , tha t i s wher e th e ne w on e resumes. I t i s quit e simpl y th e confirmation , ninetee n year s later , of th e resolution s o f th e Hagu e Congress. 196
+
+No les s importan t wa s th e wa y th e doo r wa s throw n wid e ope n to th e Englis h TRADE S UNIONS. Th e ste p whic h show s ho w wel l th e situation ha s bee n understood . An d th e vote s whic h tie d th e TRADES UNION S t o "th e clas s struggl e an d th e abolitio n o f wage - labour" mea n tha t i t wa s no t a concessio n o n ou r part .
+
+The Domel a Nieuwenhui s inciden t ha s show n tha t th e Euro - pean worker s hav e finall y lef t behin d th e perio d o f th e domina - tion o f th e resoundin g phrase , an d tha t the y ar e awar e o f th e responsibilities incumben t o n them : the y ar e a clas s constitute d a s a part y o f "struggle" , a part y whic h reckon s wit h "facts" . An d th e facts ar e takin g a n increasingl y revolutionar y turn .
+
+In Russi a ther e i s alread y famine ; i n German y ther e wil l b e famine i n a fe w months ; th e othe r countrie s wil l suffe r less . This i s why: th e harves t defici t fo r 189 1 i s estimate d a t eleve n an d a hal f million hectolitre s o f whea t an d betwee n 8 7 an d 10 0 millio n hectolitres o f rye . Th e latte r defici t will , therefore , mainl y affec t the tw o rye-consumin g countries , Russi a an d Germany .
+
+This guarantee s u s peac e unti l th e sprin g o f 1892 . Russi a wil l not mak e a mov e befor e then ; so , exceptin g som e inconceivabl e foolishness o n th e par t o f Pari s o r Berlin , ther e wil l b e n o war .
+
+On th e othe r hand , wil l tsaris m surviv e thi s crisis ? I doub t it . There ar e to o man y rebe l element s i n th e bi g cities , an d particularly i n St . Petersburg , fo r the m no t t o attemp t t o seiz e thi s opportunity t o depos e tha t alcoholi c Alexande r III , o r a t th e ver y least t o plac e hi m unde r th e contro l o f a nationa l assembly . Perhaps h e himsel f wil l b e force d t o tak e th e initiativ e i n convening one . Russia—tha t i s t o say , th e governmen t an d th e
+
+[^1]: THE SITUATIO N I N EUROP E
+
+
+
+
+
+**[p. 234]**
+
+In German y th e governmen t wil l decid e to o late , a s usual , t o abolish or suspend the duty on corn. That will break the protectionis t majority i n th e Reichstag . Th e bi g landowners , th e "rurals", 197 wil l no longer want to uphold th e duties on industria l products , they will want t o bu y a s cheapl y a s possible . S o w e shal l probabl y se e a repetition o f wha t happene d a t th e tim e o f th e vot e o n th e Anti-Socialist La w 198; a protectionis t majority , b y itsel f divide d b y conflicting interest s arisin g ou t o f th e ne w situation , whic h find s i t impossible t o reac h agreemen t o n th e detail s o f a protectionis t system. Al l th e possibl e proposal s bein g onl y minorit y ones ; ther e will b e eithe r a reversio n t o th e fre e trad e system , whic h i s just a s impossible, o r dissolution , wit h th e ol d partie s an d th e ol d majorit y unseated an d replace d b y a ne w free-trad e majorit y oppose d t o th e present government . Tha t wil l mea n th e real , definitiv e en d o f th e Bismarck perio d an d o f politica l stagnatio n i n hom e affair s — I a m not speakin g her e of ou r part y but of parties which might "possibly " govern. Ther e wil l b e strif e betwee n th e lande d nobilit y an d th e bourgeoisie, an d betwee n th e industria l bourgeoisie , whic h i s protectionist, an d th e me n o f commerc e an d a fractio n o f th e industrial bourgeoisi e wh o ar e fre e traders . Th e stabilit y o f th e administration an d o f domesti c politic s wil l b e shattered , i n shor t there will be movement, struggle , life, and ou r part y will reap all the rewards. An d i f event s tak e thi s turn, ou r part y will be able to com e to powe r roun d abou t 1898 .
+
+There w e have it! I do not speak of the other countries because th e agricultural crisis does not affec t the m so severely. But if this crisis in agriculture were to unleash i n England th e industrial crisis which we have bee n awaitin g fo r twenty-fiv e years.. . The n we'l l see !
+
+F. Engels
+
+[^1]: First publishe d i n Le Socialiste, No. 51 , Printe d accordin g t o th e news - September 12 , 189 1 pape r
+
+[^2]: Translated fro m th e Frenc h
+
+[^3]: Published i n Englis h i n ful l fo r th e first tim e
+
+[^4]: a G . Plechanow , "Di e sozialpolitische Zuständ e Rußland s i m Jahr e 1890", Die Neue Zeit, Nos. 47-52, Vol. 2, 1890-91. — Ed.
+
+
+

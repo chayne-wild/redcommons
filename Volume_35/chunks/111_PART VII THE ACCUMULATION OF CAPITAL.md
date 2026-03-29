@@ -1,0 +1,8 @@
+---
+Volume: 35
+Document_Title: "PART VII THE ACCUMULATION OF CAPITAL "
+Page_Range: "577-577"
+---
+
+# PART VII THE ACCUMULATION OF CAPITAL 
+

@@ -1,0 +1,8 @@
+---
+Volume: 37
+Document_Title: "PART VII REVENUES AND THEIR SOURCES "
+Page_Range: "811-811"
+---
+
+# PART VII REVENUES AND THEIR SOURCES 
+

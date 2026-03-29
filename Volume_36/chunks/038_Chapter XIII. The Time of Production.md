@@ -1,0 +1,160 @@
+---
+Volume: 36
+Document_Title: "Chapter XIII. The Time of Production "
+Page_Range: "247-257"
+---
+
+# Chapter XIII. The Time of Production 
+
+
+
+**[p. 239]**
+
+the lapse of five years. But what is possible, within certain limits, is getting animals ready for their destination in less time by changing the way of treating them. This is precisely what Bakewell accom- plished. Formerly English sheep, like the French as late as 1855, were not fit for the butcher until four or five years old. According to the Bakewell system, sheep may be fattened when only one year old and in every case have reached their full growth before the end of the sec- ond year. By careful selection, Bakewell, a Dishley Grange farmer, re- duced the skeleton of sheep to the minimum required for their exist- ence. His sheep are called the New Leicesters.
+
+"The breeder can now send three to market in the same space of time that it former- ly took him to prepare one; and if they are not taller, they are broader, rounder, and have a greater development in those parts which give most flesh. [] Almost all their weight is pure meat" (Lavergne, The Rural Economy of England, etc., 1855, p. 20).
+
+The methods which shorten the working period are applicable in various branches of industry to a widely varying extent and do not eliminate the time differences of the various working periods. To stick to our illustration, the working period required for the building of a locomotive may be absolutely shortened by the employment of new machine-tools. But if at the same time the finished product turned out daily or weekly by a cotton-spinning mill is still more rapidly in- creased by improved processes, then the working period in machine- building, compared with that in spinning, has nevertheless grown re- latively in length.
+
+C h a p t e r XIII
+
+Working time is always production time, that is to say, time during which capital is held fast in the sphere of production. But vice versa, not all time during which capital is engaged in the process of produc- tion is necessarily working time.
+
+It is here not a question of interruptions of the labour process ne- cessitated by natural limitations of the labour power itself, although we have seen to what extent the mere circumstance that fixed capi- tal— factory buildings, machinery, etc.— lies idle during pauses in
+
+[^1]: THE TIME OF PRODUCTION
+
+
+
+
+
+**[p. 240]**
+
+the labour process,a became one of the motives for an unnatural pro- longation of the labour process and for day and night work. We are dealing here rather with interruptions independent of the length of the labour process, brought about by the very nature of the product and its fabrication, during which the subject of labour is for a longer or shorter time subjected to natural processes, must undergo physical, chemical and physiological changes, during which the labour process is entirely or partially suspended.
+
+For instance grape after being pressed must ferment awhile and then rest for some time in order to reach a certain degree of perfec- tion. In many branches of industry the product must pass through a drying process, for instance in pottery, or be exposed to certain con- ditions in order to change its chemical properties, as for instance in bleaching. Winter grain needs about nine months to mature. Be- tween the time of sowing and harvesting the labour process is almost entirely suspended. In timber-raising, after the sowing and the inci- dental preliminary work are completed, the seed requires about 100 years to be transformed into a finished product and during all that time it stands in comparatively very little need of the action of labour.
+
+In all these cases additional labour is drawn on only occasionally during a large portion of the time of production. The condition de- scribed in the previous chapter, where additional capital and labour must be supplied to the capital already tied up in the process of pro- duction, obtains here only with longer or shorter intervals.
+
+In all these cases therefore the production time of the advanced capi- tal consists of two periods: one period during which the capital is en- gaged in the labour process and a second period during which its form of existence — that of an unfinished product—-is abandoned to the sway of natural processes, without being at that time in the labour process. Nor does it matter in the least that these two periods of time may cross or wedge into one another here and there. The working period and the production period do not coincide in these cases. The production period is longer than the working period. But the product is not finished, not ready, hence not fit to be converted from the form of productive into that of commodity capital until the production period is completed. Consequently the length of the turnover period increases in proportion to the length of the production time that does not consist of working time. In so far as the production time in excess
+
+[^1]: a K.Marx, Capital, Vol. I, Ch. X, 4, 5 (see present edition, Vol. 35).
+
+
+
+
+
+**[p. 241]**
+
+of the working time is not fixed by natural laws given once and for all, such as govern the maturing of grain, the growth of an oak, etc., the period of turnover can often be more or less shortened by an artificial reduction of the production time. Such instances are the introduction of chemical bleaching instead of bleaching on the green and more ef- ficient drying apparatus. Or, in tanning, where the penetration of the tannic acid into the skins, by the old method, took from six to eigh- teen months, while the new method, by means of an air-pump, does it in only one and a half to two months (J. G. Courcelle-Seneuil, Traité théorique et pratique des entreprises industrielles, etc., Paris, 1857, 2-me éd. [p. 49] 4 6). The most magnificent illustration of an artificial ab- breviation of the time of production taken up exclusively with natural processes is furnished by the history of iron manufacture, more espe- cially the conversion of pig iron into steel during the last 100 years, from the puddling process discovered about 1780 to the modern Bes- semer process and the latest methods introduced since. The time of production has been brought down tremendously, but the investment of fixed capital has increased in proportion.
+
+A peculiar illustration of the divergence of the production time from the working time is furnished by the American manufacture of shoe-lasts. In this case a considerable portion of the unproductive costs arises from having to hold the timber at least eighteen months before it is dry enough to work, so as to prevent subsequent warping. During this time the wood does not pass through any other labour process. The period of turnover of the invested capital is therefore not determined solely by the time required for the manufacture of the lasts but also by the time during which it lies unproductive in the shape of drying wood. It stays 18 months in the process of production before it can enter into the labour process proper. This example shows at the same time that the times of turnover of different parts of the aggregate circulating capital may differ in consequence of condi- tions which do not arise within the sphere of circulation but owe their origin to the production process.
+
+The difference between production time and working time be- comes especially apparent in agriculture. In our moderate climates the land bears grain once a year. Shortening or lengthening the period of production (for winter grain it averages nine months) itself depends on the alternation of good and bad seasons, and for this reason cannot be accurately determined and controlled beforehand as in industry proper. Only such by-products as milk, cheese, etc., can steadily be
+
+
+
+**[p. 242]**
+
+produced and sold in comparatively short periods. On the other hand, working time data are as follows:
+
+"The number of working days in the various regions of Germany, with due regard to the climatic and other determining conditions, will for the three main working peri- ods presumably be: For the spring period, from the middle of March or beginning of April to the middle of May, about 50 to 60 working days; for the summer period, from the beginning of June to the end of August, 65 to 80; and for the autumn period, from the beginning of September to the end of October, or the middle or end of November, 55 to 75 working days. For the winter, only the jobs customary for that time, such as the hauling of manure, wood, market goods, building materials, etc., are to be noted" (F. Kirchhof, Handbuch der landwirthschaftlichen Betriebslehre, Dessau, 1852, S. 160).33
+
+The more unfavourable the climate, the more congested is the working period in agriculture, and hence the shorter is the time in which capital and labour are expended. Take Russia for instance. In some of the northern districts of that country field labour is possible only from 130 to 150 days throughout the year, and it may be imag- ined what a loss Russia would sustain if 50 out of the 65 millions of her European population remained without work during the six or eight months of the winter, when agricultural labour is at a standstill. Apart from the 200,000 peasants who work in the 10,500 factories of Russia, local domestic industries have everywhere developed in the villages. There are villages in which all the peasants have been for generations weavers, tanners, shoemakers, locksmiths, cutlers, etc. This is particularly the case in the gubernias of Moscow, Vladimir, Ka- luga, Kostroma, and Petersburg. By the way, this domestic industry is being pressed more and more into the service of capitalist produc- tion. The weavers for instance are supplied with warp and woof di- rectly by merchants or through middlemen. (Abbreviated from the Reports by H. M. Secretaries of Embassy and Legation, on the Man- ufactures, Commerce, etc., No. 8, 1865, pp. 86 and 87.) We see here that the divergence of the production period from the working period, the latter being but a part of the former, constitutes the na- tural basis for the combination of agriculture with subsidiary rural in- dustries, and that these subsidiary industries in turn offer points of vantage to the capitalist, who intrudes first in the person of the merchant. When capitalist production later accomplishes the separa- tion of manufacture and agriculture, the rural labourer becomes ever more dependent on merely casual accessory employment and his con-
+
+
+
+**[p. 243]**
+
+dition deteriorates thereby. For capital, as will be seen later, all differ- ences in the turnover are evened out. Not so for the labourer.
+
+In most branches of industry proper, of mining, transportation, etc., operations proceed evenly, the working time being the same year in year out and the outlay of capital passing daily into the circulation process being uniformly distributed, apart from such abnormal inter- ruptions as fluctuations of prices, business dislocations, etc. Likewise the return of the circulating capital or its renewal is evenly distribut- ed throughout the year, market conditions otherwise remaining the same. Yet there is in the course of the various periods of the year the greatest inequality in the outlay of circulating capital in such capital investments in which the working time constitutes only a part of the production time, while the return takes place only in bulk at a time fixed by natural conditions. If the scale of business is the same, i. e., if the amount of advanced circulating capital is the same, it must be ad- vanced in larger quantities at a time and for longer periods than in enterprises with continuous working periods. There is also a consider- ably greater difference here between the life of the fixed capital and the time in which it really functions productively. Due to the differ- ence between working time and production time, the time of employ- ment of the applied fixed capital is of course likewise continually interrupted for a longer or shorter time, for instance in agriculture in the case of labouring cattle, implements and machines. In so far as this fixed capital consists of draught animals, it requires continually the same, or nearly the same, expenditure for feed, etc., as it does dur- ing the time they work. In the case of dead stock non-use also brings on a certain amount of depreciation. Hence the product is in general increasing in price, since the transfer of value to it is not calculated according to the time during which the fixed capital functions but ac- cording to the time during which it depreciates in value. In branches of production such as these, the idling of the fixed capital, whether combined with current expenses or not, forms as much a condition of its normal employment as for instance the loss of a certain quantity of cotton in spinning; and in the same way the labour power expended unproductively but unavoidably in any labour process under normal technical conditions counts just as well as that expended produc- tively. Every improvement which reduces the unproductive expen- diture of instruments of labour, raw material, and labour power also reduces the value of the product.
+
+In agriculture we have a combination of both the longer working
+
+
+
+**[p. 244]**
+
+period and the great difference between working time and produc- tion time. Hodgskin rightly remarks:
+
+"The difference of time" //although he does not differentiate here between working time and production time// "required to complete the products of agriculture, and of other species of labour," is "the main cause of the great dependence of the agricultur- ists. They cannot bring their commodities to market in less time than a year. For that whole period they are obliged to borrow of the shoemaker, the tailor, the smith, the wheelwright, and the various other labourers, whose products they cannot dispense with, but which are completed in a few days or weeks. Owing to this natural circum- stance, and owing to the more rapid increase of the wealth produced by other labour than that of agriculture, the monopolisers of all the land, though they have also mono- polised legislation, have not been able to save themselves and their servants, the farm- ers, from becoming the most dependent class of men in the community" (Thomas Hodgskin, Popular Political Economy, London, 1827, p. 147, note).47
+
+All methods by which in agriculture on the one hand the expendi- tures for wages and instruments of labour are distributed more evenly over the entire year, while on the other the turnover is shortened by raising a greater variety of crops, thus making different harvests possi- ble throughout the year, require an increase of the circulating capital advanced in production, invested in wages, fertilisers, seed, etc. This is the case in the transition from the three-field system with fallow land to the system of crop rotation without fallow. It applies further- more to the cultures dérobées of Flanders.
+
+Apart from root crops, clover and other fodder plants are likewise used for this purpose.
+
+Take finally timber-growing.
+
+[^1]: "The root crops are planted in culture dérobée; the same field yields in succession first grain, flax, colza, for the wants of man, and after they are harvested root crops are sown for the maintenance of cattle. This system, which permits the keeping of horned cattle in the stables, yields a considerable amount of manure and thus becomes the pi- vot of crop rotation. More than a third of the cultivated area in sandy districts is taken up with cultures dérobées; it is just as if the cultivated area had been increased by one-third."
+
+[^2]: "Agriculture, being thus carried to a point where it turns into horticulture, na- turally requires a considerable investment of capital. This capital, estimated in England at 250 francs per hectare, must be almost 500 francs in Flanders, a figure which good farmers will undoubtedly consider far too low, judging by their own lands" (Essai sur l'économie rurale de la Belgique, par Emile de Laveleye, Bruxelles, 1863, pp. 59, 60, 63).48
+
+[^3]: "The production of timber differs from most of the other branches of production essentially in that here the forces of nature act independently and do not require the power of man or capital when the increase is natural. Even in places where forests are
+
+
+
+
+
+**[p. 245]**
+
+propagated artificially the expenditure of human and capital energy is inconsiderable compared with the action of the natural forces. Besides, a forest will still thrive in soils and on sites where grain no longer gets along or where its cultivation no longer pays. Furthermore forestry engaged in as a regular economy requires a larger area than grain culture, because small plots do not permit of proper forestry methods, largely prevent the enjoyment of the secondary uses to which the land can be put, make forest protection more difficult, etc. But the productive process extends over such long peri- ods that it exceeds the planning of an individual farm and in certain cases surpasses the entire span of a human life. The capital invested in the purchase of forest land"
+
+//in the case of communal production this capital becomes unne- cessary, the question then being simply what acreage the community can spare from its sowing and grazing area for forestry//
+
+"will not yield substantial returns until after a long period, and even then is turned over only partially. With forests producing certain species of trees the complete turn- over takes as much as 150 years. Besides, a properly managed timber-growing establish- ment itself demands a supply of standing timber which amounts to ten to forty times the annual yield. Unless a man has therefore still other sources of income and owns vast tracts of forest land, he cannot engage in regular forestry" (Kirchhof, p. 58).
+
+The long production time (which comprises a relatively small period of working time) and the great length of the periods of turn- over entailed make forestry an industry of little attraction to private and therefore capitalist enterprise, the latter being essentially private even if the associated capitalist takes the place of the individual capi- talist. The development of culture and of industry in general has ever evinced itself in such energetic destruction of forests that everything done by it conversely for their preservation and restoration appears infinitesimal.
+
+The following passage in the above quotation from Kirchhof is par- ticularly worthy of note:
+
+In other words, a turnover occurs once in ten to forty or more years. The same applies to stock raising. A part of the herd (supply of cattle) remains in the process of production, while another part is sold annually as a product. In this case only a part of the capital is turned over every year, just as in the case of fixed capital: machinery, labour- ing cattle, etc. Although this capital is a capital fixed in the process of production for a long time, and thus prolongs the turnover of the to- tal capital, it is not a fixed capital in the strict definition of the term.
+
+What is here called a supply — a certain amount of standing tim-
+
+[^1]: "Besides, a properly managed timber-growing establishment itself demands a sup- ply of standing timber which amounts to ten to forty times the annual yield."
+
+
+
+
+
+**[p. 246]**
+
+ber or livestock — exists relatively in the process of production (simul- taneously as instruments of labour and material of labour); in accor- dance with the natural conditions of its reproduction under proper management, a considerable part of this supply must always be avail- able in this form.
+
+A similar influence on the turnover is exerted by another kind of supply, which is productive capital only potentially, but which, ow- ing to the nature of this economy, must be accumulated in more or less considerable quantities and hence advanced for purposes of pro- duction for a long term, although it enters into the actual process of production only gradually. In this class belongs for instance manure before it is hauled to the field, furthermore grain, hay, etc., and such supplies of means of subsistence as are employed in the production of cattle.
+
+"A considerable part of the working capital is contained in the farm's supplies. But these may lose more or less of their value, if the precautionary measures necessary for their preservation in good condition are not properly observed. Lack of attention may even result in the total loss of a part of the produce supplies for the farm. For this rea- son, a careful inspection of the barns, feed and grain lofts, and cellars becomes indis- pensable, the store rooms must always be well closed, kept clean, ventilated, etc. The grain and other crops held in storage must be thoroughly turned over from time to time; potatoes and beets must be protected against frost, rain, and rot" (Kirchhof, p. 292). "In calculating one's own requirements, especially for the keeping of cattle, the distribution must be made according to the product obtained and its intended use. One must not only consider covering one's ordinary needs but also see to it that there is a proportionate reserve for extraordinary cases. If it is then found that the demand cannot be fully met by one's own production, it becomes necessary to reflect first whether the deficiency cannot be covered by other products (substitutes), or by the cheaper procurement of such in place of the deficient ones. For instance if there should happen to be a shortage of hay, this might be made good by roots and an admixture of straw. In general, the intrinsic value and market price of the various crops must always be kept in mind in such cases, and consumption regulated accordingly. If for instance oats are high, while peas and rye are relatively low, it will pay to substitute peas or rye for a part of the oats intended for horses and to sell the oats thus saved" (ibid., p. 300).
+
+It was previously stated, when discussing the formation of a sup- ply,21 that a definite quantity, big or small, of potential productive cap- ital is required, i.e., of means of production intended for use in pro- duction, which must be available in bigger or smaller quantities for the purpose of entering by and by into the productive process. The remark was incidentally made that, given a certain business or capi-
+
+[^1]: See this volume, pp. 141-47.
+
+
+
+
+
+**[p. 247]**
+
+talist enterprise of definite proportions, the magnitude of this produc- tive supply depends on the greater or lesser difficulties of its renewal, the relative nearness of markets of supply, the development of trans- portation and communication facilities, etc. All these circumstances affect the minimum of capital which must be available in the form of a productive supply, hence affect the length of time for which the cap- ital must be advanced and the amount of capital to be advanced at one time. This amount, which affects also the turnover, is determined by the longer or shorter time during which a circulating capital is tied up in the form of a productive supply as merely potential productive capital. On the other hand, inasmuch as this stagnation depends on the greater or smaller possibility of rapid replacement, on market conditions, etc., it arises itself out of the time of circulation, out of cir- cumstances that belong in the sphere of circulation.
+
+"Furthermore, all such implements and accessories as hand tools, sieves, baskets, ropes, wagon grease, nails, etc., must be the more available for immediate replace- ment, the less there is opportunity for purchasing them nearby without delay. Finally, the entire supply of implements must be carefully overhauled every winter, and new purchases or repairs found necessary must be provided for at once. Whether or not orie is to keep a great or small supply of articles of equipment is to be settled mainly by local conditions. Wherever there are no artisans or stores in the vicinity, it is necessary to keep larger supplies than in places where these are to be had on the spot or nearby. But if the necessary supplies are procured in large quantities at a time, then, other circum- stances being equal, one generally gets the benefit of cheaper purchases, provided an appropriate time has been chosen to make them. True, the rotating working capital is thereby shorn of a correspondingly larger sum, all at once, which cannot always be well spared in the business" (Kirchhof, p. 301).
+
+The difference between production time and working time admits of many variations, as we have seen. For the circulating capital it may be production time before it enters into the labour process proper (production of lasts); or it may be production time after it has passed through the labour process proper (wine, seed grain); or the production time is occasionally interrupted by working time (agricul- ture, timber-growing). A large portion of the product fit for circula- tion remains incorporated in the active process of production, while a much smaller part enters into annual circulation (timber-growing and cattle raising); the longer or shorter period of time for which a circulating capital must be invested in the form of potential produc- tive capital, hence also the larger or smaller amount of this capital to
+
+
+
+**[p. 248]**
+
+be advanced at one time, depends partly on the kind of productive process (agriculture), and partly on the proximity of markets, etc., in short, on circumstances pertinent to the sphere of circulation.
+
+We shall see later (Book III), what senseless theories Mac Culloch, James Mill, etc., arrived at as a result of the attempt to identify the production time diverging from working time with the latter, an at- tempt which in turn is due to a misapplication of the theory of value.
+
+The turnover cycle which we considered above is determined by the durability of the fixed capital advanced for the process of produc- tion. Since this cycle extends over a number of years, it comprises a series of either annual turnovers of fixed capital or of turnovers re- peated during the year.
+
+In agriculture such a cycle of turnovers arises out of the system of crop rotation.
+
+"The duration of the lease must in no ease be less than the time of completion of the adopted system of crop rotation. Hence one always calculates 3, 6, 9, etc., in the three- field system. In that system with clean fallow, a field is cultivated only four times in six years, being sown to winter and summer grain in the years of cultivation, and, if the properties of the soil require or permit it, to wheat and rye, barley and oats successive- ly. Every species of grain differs in its yield from the others on the same soil, every one of them has a different value and is sold at a different price. For this reason the yield of a field is different every year it is cultivated, and different in the first half of the rotation (the first three years) from that of the second. Even the average yield of one period of rotation is not equal to that of another, for fertility does not depend solely on the good quality of the soil, but also on the weather each year, just as prices depend on a multi- tude of changing conditions. If one now calculates the income from a field by taking into account the average fertility and the average prices for the entire six-year rotation period, one finds the total income of one year in either period of the rotation. But this is not so if the proceeds are calculated only for half of the time of rotation, that is to say, for three years; for then the total income figures would not coincide. It follows from the foregoing that a lease of land worked by the three-field system should run for at least six years. It is however always still more desirable for lessor and lessee that the duration of the lease should be a multiple of the duration of the lease" jjsidjj; "hence that it should be 12, 18, and ever more years instead of 6 years in a system of three fields and 14, 28 years instead of 7 in a system of seven fields" (Kirchhof, pp. 117, 118).
+
+//At this place the manuscript contains the note: "The English sys- tem of crop rotation. Give a note here."//
+
