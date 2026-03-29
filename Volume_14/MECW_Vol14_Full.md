@@ -1614,11 +1614,11 @@ Written on March 2, 1855 Reproduced from the New-York Daily Tribune First publis
 
 ---
 Volume: 14
-Document_Title: "16. K. Marx. The Buying of Commissions.- News from Aus tralia "
+Document_Title: "16. K. Marx. The Buying of Commissions.- News from Australia "
 Page_Range: "94-98"
 ---
 
-# 16. K. Marx. The Buying of Commissions.- News from Aus tralia 
+# 16. K. Marx. The Buying of Commissions.- News from Australia 
 
 
 
