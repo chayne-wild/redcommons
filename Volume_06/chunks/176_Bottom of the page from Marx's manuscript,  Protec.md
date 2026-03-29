@@ -1,0 +1,8748 @@
+---
+Volume: 6
+Document_Title: "Bottom of the page from Marx's manuscript, ' Protectionists', with drawings by Engels 578- "
+Page_Range: "108-608"
+---
+
+# Bottom of the page from Marx's manuscript, " Protectionists", with drawings by Engels 578- 
+
+
+
+**[p. 79]**
+
+The class newly forming itself beside the nobility and the peasants more or less dependent on it is not the bourgeoisie, which today rules in the civilised countries and is striving for mastery in Germany; it is the class of the petty bourgeoisie.
+
+The present political system of Germany is nothing more than a compromise between the nobility and the petty bourgeoisie, which amounts to resigning power into the hands of a third class: the bureaucracy. In the composition of this class the two high contracting parties participate according to their respective status; the nobility, which represents the more important branch of production, reserves to itself the higher positions, the petty bourgeoisie contents itself with the lower and only in exceptional circumstances puts forward candidates for the higher administra- tion. Where the bureaucracy is subjected to direct control, as in the constitutional states of Germany, the nobility and petty bourgeoisie share in it in the same way; and that here also the nobility reserves to itself the lion's share is easily understood. The petty bourgeoisie can never overthrow the nobility, nor make itself equal to it; it can do no more than weaken it. To overthrow the nobility, another class is required, with wider interests, greater property and more deter- mined courage: the bourgeoisie.
+
+In all countries the bourgeoisie emerges from the petty bourgeoi- sie with the development of world trade and large-scale industry, with the accompanying free competition and centralisation of property. The petty bourgeoisie represents inland and coastal trade, handicrafts, manufacture based on handwork—branches of industry which operate within a limited area, require little capital, have a slow turnover and give rise to only local and sluggish competition. The bourgeoisie represents world trade, the direct exchange of products of all regions, trade in money, large factory industry based on the use of machinery—branches of production which demand the greatest possible area, the greatest possible capital and the quickest possible turnover, and give rise to universal and stormy competition. The petty bourgeois represents local, the bourgeois general interests. The petty bourgeois finds his position sufficiently safeguarded if,
+
+
+
+**[p. 80]**
+
+What then is the attitude of the German bourgeoisie to the two classes that share political rule?
+
+While a rich and powerful bourgeoisie has been formed in England since the seventeenth and in France since the eighteenth century, one can speak of a German bourgeoisie only since the beginning of the nineteenth century. There were before then, it is true, a few rich shipowners in the Hanseatic towns, a few rich bankers in the interior, but no class of big capitalists, and least of all of big industrial capitalists. The creator of the German bourgeoisie was Napoleon. His continental system62 and the freedom of trade made necessary by its pressure in Prussia gave the Germans a manufacturing industry and expanded their mining industry. After a few years these new or expanded branches of production were already so important, and the bourgeoisie created by them so influential, that by 1818 the Prussian government saw that it was necessary to allow them protective tariffs. The Prussian Customs Act of 1818 was the first official recognition of the bourgeoisie by the government. It was admitted, though reluctantly and with a heavy heart, that the bourgeoisie had become a class indispensable for the country. The next concession to the bourgeoisie was the Customs Union.63 The admission of most of the German states into the Prussian customs system was no doubt originally occasioned simply by fiscal and political considerations, but no one benefited from it as much as did the German, more especially the Prussian, bourgeoisie. Although the Customs Union here and there brought a few small advantages to the nobility and petty bourgeoisie, on the whole it harmed both groups still more through the rise of the bourgeoisie, keener competition and the supplanting of the previous means of production. Since then the bourgeoisie, especially in Prussia, has developed rather quickly. Although its advance during the last thirty years has not been nearly as great as that of the English and French bourgeoisie, it has nevertheless established most branches of modern industry, in a few districts supplanted peasant or petty-bourgeois patriarchalism, concentrated capital to some extent, produced
+
+
+
+**[p. 81]**
+
+With the rise of the bourgeoisie and its growing influence coincides, indeed, the growing impotence of the hitherto official ruling classes. The nobility has become more and more impover- ished and encumbered with debts since the time of Napoleon. The buying free from corvée raised the production costs of corn for the nobility and exposed it to competition from a new class of inde- pendent small peasants—disadvantages which in the long run were far from being compensated for by the peasants overreaching themselves when they bought themselves free. Russian and Ameri- can competition limited the market for its corn, Australian and in some years South Russian that of its wool. And the more the pro- duction costs and competition increased, the more was exposed the incapacity of the nobility to work its estates profitably, and to apply the newest advances in agriculture. Like the French and English nobility of the last century, the German nobility employed the rising level of civilisation only to squander its fortune magnificently on pleasures in the big cities. Between the nobility and the bourgeoisie began that competition in social and intellectual education, in wealth and display, which everywhere precedes the political dominance of the bourgeoisie and ends, like every other form of competition, with the victory of the richer side. The provincial nobility turned into a Court nobility, only thereby to be ruined all the more quickly and surely. The three per cent revenues of the nobility went down before the fifteen per cent profit of the bourgeoisie, the three-per-centers resorted to mortgages, to credit banks for the nobility and so on, in order to be able to spend in accordance with their station, and only ruined themselves so much the quicker. The few landed gentry wise enough not to ruin themselves formed with the newly-emerging bourgeois landowners a new class of industrial landowners. This class carries on agriculture without feudal illusions and without the nobleman's nonchalance, as a business, an industry, with the bourgeois appliances of capital, expert knowledge and work. Such a class is so far from being incompatible with the rule of the bourgeoisie that in France it stands quite peacefully alongside it and participates according to its wealth in its rule. It constitutes the section of the bourg< oisie which exploits agriculture.
+
+
+
+**[p. 82]**
+
+The petty bourgeoisie was already in a weak position in relation to the nobility; still less can it hold out against the bourgeoisie. Next to the peasants, it is the most pathetic class that has ever meddled with history. With its petty local interests, it advanced no further even in its heyday (the later Middle Ages) than to local organisations, local struggles and local advances, to an existence on sufferance alongside the nobility, never to general, political, dominance. With the emergence of the bourgeoisie it loses even the appearance of historical initiative. Wedged in between nobility and bourgeoisie, under pressure alike from the political preponderance of the former and from the competition of the heavy capital of the latter, it split into two sections. The one, that of the richer and big-city petty bourgeoisie, joins the revolutionary bourgeoisie more or less timidly; the other, recruited from the poorer burghers, especially those of the small provincial towns, clings to the existing state of things and supports the nobility with the whole weight of its inertia. The more the bourgeoisie develops, the worse becomes the position of the petty bourgeoisie. Gradually this second section also realises that under existing conditions its ruin is certain, whereas under the rule of the bourgeoisie, alongside the probability of that ruin, it enjoys at least the possibility of advancing into the ranks of the bourgeoisie. The more certain its ruin, the more it ranges itself under the banner of the bourgeoisie. As soon as the bourgeoisie has come to power, the petty bourgeoisie splits again. It supplies recruits to every section of the bourgeoisie, and besides forms, between the bourgeoisie and the proletariat now emerging with its interests and demands, a chain of more or less radical political and socialist sects, which one can study more closely in the English or French Chamber of Deputies and the daily press. The more sharply the bourgeoisie penetrates into the undisciplined and poorly armed swarms of petty bourgeoisie with the heavy artillery of its capital, with the closed columns of its joint-stock companies, the more helpless the petty bourgeoisie becomes, the more disorderly its flight, until no other way of escape remains to it than either to muster behind the long files of the proletariat and to march under its banner—or to surrender to the bourgeoisie at its discretion. This diverting spectacle can be observed in England at every trade crisis, and in France at the present moment. In Germany we have only arrived at that phase when the petty bourgeoisie in a moment of despair and squeezed for money forms the heroic resolution to renounce the nobility and place its trust in the bourgeoisie.
+
+
+
+**[p. 83]**
+
+There remain the peasants and the propertyless classes. The peasants, among whom we include here only the small peasant tenants or proprietors, with the exclusion of the day labour- ers and farm labourers—the peasants form a similarly helpless class as do the petty bourgeoisie, from whom, however, they differ to their advantage through their greater courage. But they are similarly incapable of all historical initiative. Even their emancipation from the fetters of serfdom comes about only under the protection of the bourgeoisie. Where the absence of nobility and bourgeoisie allows them to rule, as in the mountain cantons of Switzerland and in Norway, pre-feudal barbarisms, local narrow-mindedness, and dull, fanatical bigotry, loyalty and rectitude rule with them. Where, as in Germany, the nobility continues to exist beside them, they are squeezed, just like the petty bourgeoisie, between the nobility and the bourgeoisie. To protect the interests of agriculture against the growing power of trade and industry, they must join with the nobility. To safeguard themselves against the overwhelming compe- tition of the nobility and especially the bourgeois landowners, they must join with the bourgeoisie. To which side they finally adhere depends upon the nature of their property. The big farmers of eastern Germany, who themselves exercise a certain feudal domi- nance over their farm labourers, are in all their interests too closely involved with the nobles to dissociate themselves from them in earnest. The small landowners in the west who have emerged from the breaking up of the estates of the nobility, and the small farmers in the east who are subject to patrimonial jurisdiction and still partly liable to corvée labour, are oppressed too directly by the nobles or stand too much in opposition to them not to adhere to the side of the bourgeoisie. That this is actually the case is proved by the Prussian provincial diets.
+
+Rule by the peasants is also, therefore, fortunately unthinkable. The peasants themselves think of it so little that they have for the greatest part already placed themselves at the disposal of the bourgeoisie.
+
+And the propertyless, in common parlance the working, classes? We shall soon speak of them at greater length64; for the moment it is sufficient to point to the division among them. This division into farm labourers, day labourers, handicraft journeymen, factory workers and lumpen proletariat, together with their dispersal over a
+
+
+
+**[p. 84]**
+
+So little is the mass of the workers in Germany prepared to assume the leadership in public matters.
+
+To summarise. The nobility is too much in decline, the petty bourgeoisie and peasants are, by their whole position in life, too weak, the workers are still far from sufficiently mature to be able to come forward as the ruling class in Germany. There remains only the bourgeoisie.
+
+The poverty of the German status quo consists chiefly in this: no single class has hitherto been strong enough to establish its branch of production as the national branch of production par excellence and thus to set itself up as the representative of the interests of the whole nation. All the estates and classes that have emerged in history since the tenth century: nobles, serfs, peasants subject to corvée labour, free peasants, petty bourgeoisie, journeymen, manufactory workers, bourgeoisie and proletarians, all exist alongside one another. Those among these estates and classes who in consequence of their prop- erty represent a branch of production, namely the nobles, free peasants, petty bourgeoisie and bourgeoisie, have participated in political rule in proportion to their number, their wealth, and their share in the total production of the country. The result of this division is that, as we have said, the nobility has got the lion's share, the petty bourgeoisie the smaller share, and that officially the bourgeoisie count only as petty bourgeoisie and the peasants as peasants do not count at all, because they, with the slight influence they possess, divide themselves between the other classes. This regime represented by the bureaucracy is the political summing-up
+
+
+
+**[p. 85]**
+
+How is this poverty to be overcome? Only one way is possible: one class must become strong enough to make the rise of the whole nation dependent upon its rise, to make the advancement of the interests of all other classes dependent upon the advancement and development of its interests. The interest of this one class must become for the time being the national interest, and this class itself must become for the time being the representative of the nation. From that moment, this class and with it the majority of the nation, finds itself in contradiction with the political status quo. The political status quo corresponds to a state of affairs which has ceased to exist: to the conflict of interests of the different classes. The new in- terests find themselves restricted, and even a part of the classes in whose favour the status quo was established no longer sees its own interests represented in it. The abolition of the status quo, peace- fully or by force, is the necessary consequence. In its place enters dominance by the class which for the moment represents the majority of the nation, and under whose rule a new development begins.
+
+
+
+**[p. 86]**
+
+Does this class, which can overthrow the status quo, exist now in Germany? It exists, although, compared with the corresponding class in England and France, in a perhaps very petty bourgeois way; but still it exists and, indeed, in the bourgeoisie.
+
+The bourgeoisie is the class which in all countries overthrows the compromise established between nobility and petty bourgeoisie in the bureaucratic monarchy, and thus to begin with conquers power for itself.
+
+The bourgeoisie is the only class in Germany which at least gives a great part of the industrial landowners, petty bourgeoisie, peasants, workers and even a minority among the nobles a share in its interests, and has united these under its banner.
+
+The party of the bourgeoisie is the only one in Germany that definitely knows with what it must replace the status quo; the only one that does not limit itself to abstract principles and historical deductions, but wishes to carry into effect very definite, concrete and immediately practicable measures; the only one which is at least organised to some extent on a local and provincial basis and has a sort of plan of campaign, in short, it is the party which fights first and foremost against the status quo and is directly interested in its overthrow.
+
+The party of the bourgeoisie is therefore the only one that at present has a chance of success.
+
+The only question then is: Is the bourgeoisie compelled by necessity to conquer political rule for itself through the overthrow of the status quo, and is it strong enough, given its own power and the weakness of its opponents, to overthrow the status quo?
+
+We shall see. The decisive section of the German bourgeoisie are the factory owners. On the prosperity of industry depends the prosperity of the whole domestic trade, of the Hamburg and Bremen and, to some extent, Stettin sea trade, of banking; on it depend the revenues of the railways, and with that the most significant part of the Stock Exchange business. Independent of industry are only the corn and wool exporters of the Baltic towns and the insignificant class of importers of foreign industrial products. The needs of the factory owners thus represent the needs of the whole bourgeoisie and of the classes at present dependent upon it.
+
+The factory owners are further divided into two sections: the one gives the initial processing to raw materials and sends them into
+
+
+
+**[p. 87]**
+
+to introduce newly invented techniques, to establish good communications, to obtain cheap machines and raw materials, to train skilled workers, requires an entire industrial system; it requires the interlocking of all branches of industry, sea-ports which are tributary to the industrial interior and carry on a flourishing trade. All this has long ago been proved by the economists. But such an industrial system requires also nowadays, when England is almost the only country that has no competition to fear, a complete protective system embracing all branches of industry threatened by foreign competition, and modifications to this system must always be made according to the position of industry. Such a system the existing Prussian Government cannot give, nor can all the governments of the Customs Union. It can only be set up and operated by the ruling bourgeoisie itself. And for this reason also the German bourgeoisie can no longer do without political power.
+
+Such a protective system, moreover, is all the more necessary in Germany, since there manufacture lies in its death throes. Without systematic tariff protection the competition of English machinery will kill manufacture, and the bourgeoisie, petty bourgeoisie and workers hitherto maintained by it will be ruined. Reason enough for the German bourgeoisie to ruin what remains of manufacture rather with German machines.
+
+Protective tariffs are therefore necessary for the German bourgeoisie and only by that bourgeoisie itself can they be introduced. If only for that reason, then, it must seize state power.
+
+But it is not only by insufficient tariffs that the factory owners are hindered in the complete utilisation of their capital; they are also hindered by the bureaucracy. If in the matter of customs legislation they meet with indifference from the government, in their relations with the bureaucracy they meet with its most direct hostility.
+
+The bureaucracy was set up to govern petty bourgeoisie and peasants. These classes, dispersed in small towns or villages, with interests which do not reach beyond the narrowest local boundaries, have necessarily the restricted horizons corresponding to their restricted mode of life. They cannot govern a large state, they can have neither the breadth of vision nor the knowledge to balance the different conflicting interests. And it was exactly at that stage of
+
+[^1]: a Here four pages of the manuscript are missing.—Ed.
+
+
+
+
+
+**[p. 88]**
+
+But the bureaucracy, which is a necessity for the petty bourgeoisie, very soon becomes an unbearable fetter for the bourgeoisie. Already at the stage of manufacture official supervision and interference become very burdensome; factory industry is scarcely possible under such control. The German factory owners have hitherto kept the bureaucracy off their backs as much as possible by bribery, for which they can certainly not be blamed. But this remedy frees them only from the lesser half of the burden; apart from the impossibility of bribing all the officials with whom a factory owner comes into contact, bribery does not free him from perquisites, honorariums to jurists, architects, mechanics, nor from other expenses caused by the system of supervision, nor from extra work and waste of time. And the more industry develops, the more "conscientious officials" appear—that is, officials who either from pure narrow-mindedness or from bureaucratic hatred of the bourgeoisie, pester the factory owners with the most infuriating chicaneries.
+
+The bourgeoisie, therefore, is compelled to break the power of this indolent and pettifogging bureaucracy. From the moment the state administration and legislature fall under the control of the bourgeoisie, the independence of the bureaucracy ceases to exist; indeed from this moment, the tormentors of the bourgeoisie turn into their humble slaves. Previous regulations and decrees, which served only to lighten the work of the officials at the expense of the industrial bourgeoisie, give place to new regulations which lighten the work of the industrialists at the expense of the officials.
+
+The bourgeoisie is all the more compelled to do this as soon as possible because, as we have seen, all its sections are directly concerned in the quickest possible increase of factory industry, and factory industry cannot possibly grow under a regime of bureau- cratic harassment.
+
+The subordination of the customs and the bureaucracy to the interest of the industrial bourgeoisie are the two measures with the implementation of which the bourgeoisie is most directly concerned. But that does not by any means exhaust its needs. The bourgeoisie is compelled to subject the whole system of legislation, administration and justice in almost all the German states to a thoroughgoing
+
+
+
+**[p. 89]**
+
+
+
+
+
+**[p. 90]**
+
+In short, if the petty bourgeois can content himself with opposing to the nobility and the bureaucracy his inert weight, with securing for himself influence on the official power through his vis inertiae* the bourgeois cannot do this. He must make his class dominant, his interests crucial, in legislation, administration, justice, taxation and foreign policy. The bourgeoisie must develop itself to the full, daily expand its capital, daily reduce the production costs of its commodities, daily expand its trade connections and markets, daily improve its communications, in order not to be ruined. The competition on the world market compels it to do so. And to be able to develop freely and to the full, what it requires is precisely political dominance, the subordination of all other interests to its own.
+
+That in order not to be ruined the German bourgeoisie requires political dominance now, we have shown above in connection with the question of protective tariffs and with its attitude to the bureaucracy.
+
+[^1]: a Force of inertia.— Ed.
+
+
+
+
+
+**[p. 91]**
+
+The prosperity of English industry in 1845 and the railway speculations to which it led had on this occasion a stronger effect on France and Germany than at any earlier lively period of business. The German factory owners did good business, which stimulated German business in general. The agricultural districts found a will- ing market for their corn in England. The general prosperity enlivened the money market, facilitated credit and attracted on to the market a large number of small amounts of capital, of which in Germany there were so many lying half idle. As in England and France, only somewhat later and in somewhat—a
+
+Written in March-April 1847 Printed according to the manu- script First published in Russian in: Marx and Engels, Works (first Russian edition), Published in English for the first Vol. V, Moscow, 1929 and in German in: time Marx/Engels, Gesamtausgabe, Erste Ab- teilung, Bd. 6, Berlin, 1932
+
+[^1]: a Here the manuscript breaks off.— Ed.
+
+
+
+Frederick Engels
+
+PROTECTIVE TARIFFS OR FREE TRADE SYSTEM
+
+From the instant that lack of money and credit forced the King of Prussia to issue the Letters Patent of February 3,65 no reasonable person could doubt any longer that the absolute monarchy in Germany and the "Christian-Germanic" management as it has hitherto existed, also known under the name of "paternal govern- ment", had, in spite of all bristling resistance and sabre-rattling speeches from the throne, abdicated for ever. The day had now dawned from which the bourgeoisie in Germany can date its rule. The Letters Patent themselves are nothing but an acknowledgement, though still wrapped in a great deal of Potsdam mist and fog, of the power of the bourgeoisie. A good deal of this mist and fog has already been blown away by a little weak puffing from the United Diet, and very soon the whole Christian-Germanic misty phantom will be dissolved into its nothingness.
+
+But as soon as the rule of the middle classes began, the first demand to be made was bound to be that the whole trade policy of Germany, or of the Customs Union,66 should be wrested from the incompetent hands of German princes, their ministers, and arro- gant, but in commercial and industrial matters utterly unimaginative and ignorant bureaucrats, and be made dependent upon and decided by those who possess both the necessary insight and the most immediate interest in the matter. In other words: the question of protective and differential tariffs or free trade must fall within the sole decision of the bourgeoisie.
+
+The United Diet in Berlin has shown the Government that the bourgeoisie knows what it needs; in the recent tariff negotiations it was made clear to the Spandau System of Government,67 in pretty plain and bitter words, that it is incapable of grasping, protecting and
+
+
+
+**[p. 93]**
+
+alone would have been sufficient to brand the foreheads of Holy-Alliance William3 and his ministers with the stamp of the crudest ignorance of, or the most culpable treachery against, the welfare of the nation. To the horror of his all-highest Majesty and his Excellencies a host of other things came up for discussion, in the course of which royal and ministerial capabilities and discernment—living as well as defunct—could feel anything but flattered.
+
+In the bourgeoisie itself, indeed, two different views dominate with regard to industry and trade. Nonetheless there is no doubt that the party in favour of protective, or, rather, differential tariffs is by far the most powerful, numerous and predominant. The bourgeoisie cannot, in fact, even maintain itself, cannot consolidate its position, cannot attain unbounded power unless it shelters and fosters its industry and trade by artificial means. Without protection against foreign industry it would be crushed and trampled down within a decade. It is quite easily possible that not even protection will help it much or for long. It has waited too long, it has lain too peacefully in the swaddling clothes in which it has been trussed so many years by its precious princes. It has been outflanked and overtaken on every side, it has had its best positions taken from it, while at home it peacefully let its knuckles be rapped and did not even have enough energy to rid itself of its partly imbecile, partly extremely cunning paternal schoolmasters and disciplinarians.
+
+Now a new page has been turned. The German princes can henceforth only be the servants of the bourgeoisie, only be the dot over the "i" of the bourgeoisie. In so far as there is still time and opportunity for the latter's rule, protection*for German industry and German trade is the only foundation on which it may rest. And what the bourgeoisie wants and must want of the German princes, it will also be able to achieve.
+
+There exists, however, alongside the bourgeoisie, a quite consider- able number of people called proletarians—the working and propertyless class.
+
+The question therefore arises: What does this class gain from the introduction of the protective system? Will it thereby receive more wages, be able to feed and clothe itself better, house itself more healthily, afford somewhat more time for recreation and education, and some means for the more sensible and careful upbringing of its children?
+
+[^1]: a Frederick William IV.— Ed.
+
+
+
+
+
+**[p. 94]**
+
+Among both parties there are still plenty of limited minds who more or less believe in the truth of their own words. The intelligent among them know very well that this is all vain delusion, merely calculated, furthermore, to deceive and win the masses.
+
+The intelligent bourgeois does not need to be told that whether the system in force is that of protective tariffs or free trade or a mixture of both, the worker will receive no bigger wage for his labour than will just suffice for his scantiest maintenance. From the one side as from the other, the worker gets precisely what he needs to keep going as a labour-machine.
+
+It might thus appear to be a matter of indifference to the proletarian, to the propertyless, whether the protectionists or the free traders have the last word.
+
+Since, however, as has been said above, the bourgeoisie in Germany requires protection against foreign countries in order to clear away the medieval remnants of a feudal aristocracy and the modern vermin by the Grace of God, and to develop purely and simply its own proper, innermost essence (!)—then the working class also has an interest in what helps the bourgeoisie to unimpeded rule.
+
+Not until only one class—the bourgeoisie—is seen to exploit and oppress, until penury and misery can no longer be blamed now on this estate, now on that, or simply on the absolute monarchy and its bureaucrats—only then will the last decisive battle break out, the battle between the propertied and the propertyless, between the bourgeoisie and the proletariat.
+
+Only then will the field of battle have been swept clean of all unnecessary barriers, of all that is misleading and accessory; the position of the two hostile armies will be clear and visible at a glance.
+
+With the rule of the bourgeoisie, the workers, compelled by circumstances, will also make the infinitely important advance that they will no longer come forward as individuals, as at the most a couple of hundreds or thousands, in rebellion against the established
+
+[^1]: a Exodus 3:8.— Ed.
+
+
+
+
+
+**[p. 95]**
+
+There can be no doubt as to the outcome of this battle. The bourgeoisie will and must fall to the ground before the proletariat, just as the aristocracy and the absolute monarchy have received their coup de grâce from the middle class.
+
+With the bourgeoisie, private property will at the same time be overthrown, and the victory of the working class will put an end to all class or caste rule for ever.
+
+Written at the beginning of June 1847
+
+First published in the Deutsche-Brüsseler Zeitung No. 46, June 10, 1847
+
+Printed according to the news- paper
+
+Published in English for the first time
+
+Frederick Engels
+
+DRAFT OF A COMMUNIST CONFESSION OF FAITH1
+
+Question 1: Are you a Communist? Answer: Yes. Question 2: What is the aim of the Communists? Answer: To organise society in such a way that every member of it
+
+can develop and use all his capabilities and powers in complete freedom and without thereby infringing the basic conditions of this society. Question 3: How do you wish to achieve this aim? Answer: By the elimination of private property and its replacement
+
+by community of property. Question 4: On what do you base your community of property? Answer: Firstly, on the mass of productive forces and means of
+
+subsistence resulting from the development of industry, agriculture, trade and colonisation, and on the possibility inherent in machinery, chemical and other resources of their infinite extension.
+
+Secondly, on the fact that in the consciousness or feeling of every individual there exist certain irrefutable basic principles which, being the result of the whole of historical development, require no proof. Question 5: What are such principles? Answer: For example, every individual strives to be happy. The
+
+happiness of the individual is inseparable from the happiness of all, etc. Question 6: How do you wish to prepare the way for your community of
+
+property? Answer: By enlightening and uniting the proletariat.
+
+Jen. _ -, , — • ^ 4<. é?*Z#L 4 ^
+
+[^1]: Beginning of Engels' manuscript, "Draft of a Communist Confession of Faith'
+
+
+
+
+
+
+
+**[p. 99]**
+
+
+
+[^1]: 5— 1826
+
+
+
+
+
+**[p. 100]**
+
+I. The class of the big capitalists, who in all advanced countries are in almost exclusive possession of the means of subsistence and those means (machines, facto- ries, workshops, etc.) by which these means of subsis- tence are produced. This is the bourgeois class, or the bourgeoisie. II. The class of the completely propertyless, who are compelled to sell their labour70 to the first class, the bourgeois, simply to obtain from them in return their means of subsistence. Since the parties to this trading in labour are not equal, but the bourgeois have the advantage, the propertyless must submit to the bad conditions laid down by the bourgeois. This class, dependent on the bourgeois, is called the class of the proletarians or the proletariat. Question 10: In what way does the proletarian differ from the slave? Answer: The slave is sold once and for all, the proletarian has to sell himself by the day and by the hour. The slave is the property of one master and for that very reason has a guaranteed subsistence, however wretched it may be. The proletarian is, so to speak, the slave of the entire bourgeois class, not of one master, and therefore has no guaranteed subsistence, since nobody buys his labour if he does not need it. The slave is accounted a thing and not a member of civil society. The proletarian is recognised as a person, as a member of civil society. The slave may, therefore, have a better subsistence than the proletarian but the latter stands at a higher stage of development. The slave frees himself by becoming a proletarian, abolishing from the totality of property relationships only the relationship of slavery. The proletarian can free himself only by abolishing property in general. Question 11: In what way does the proletarian differ from the serf? Answer: The serf has the use of a piece of land, that is, of an instrument of production, in return for handing over a greater or lesser portion of the yield. The proletarian works with instruments of production which belong to someone else who, in return for his labour, hands over to him a portion, determined by competition, of the products. In the case of the serf, the share of the labourer is determined by his own labour, that is, by himself. In the case of the proletarian it is determined by competition, therefore in the first place by the
+
+
+
+**[p. 101]**
+
+
+
+
+
+**[p. 102]**
+
+II. By employing workers in national workshops and fac- tories and on national estates.
+
+III. By educating all children at the expense of the state. Question 19: How will you arrange this kind of education during the period of transition? Answer: All children will be educated in state establishments from the time when they can do without the first maternal care. Question 20: Will not the introduction of community of property be accompanied by the proclamation of the community of women? Answer: By no means. We will only interfere in the personal relationship between men and women or with the family in general to the extent that the maintenance of the existing institution would disturb the new social order. Besides, we are well aware that the family relationship has been modified in the course of history by the property relationships and by pe-
+
+
+
+**[p. 103]**
+
+In the name and on the mandate of the Congress. Secretary: President: Heide b Karl Schillc
+
+London, June 9, 1847
+
+[^1]: Written by Engels Printed according to the photocopy of the manuscript First published in the book Gründungs- dokumente des Bundes der Kommunisten (Juni bis September 1847), Hamburg, 1969
+
+[^2]: a Here the text written in Engels' hand ends.—Ed. b Alias of Wilhelm Wolff in the League of the Just.—Ed. c Alias of Karl Schapper in the League of the Just.—Ed.
+
+
+
+
+
+Karl Marx
+
+THE POVERTY OF PHILOSOPHY
+
+ANSWER TO THE PHILOSOPHY OF POVERTY BY M. PROUDHON 71
+
+
+
+[^1]: Written in the first half of 1847
+
+[^2]: First published separately in Paris and Brussels in 1847
+
+[^3]: Printed according to the edition of 1847 with the author's changes and the changes in the German edition of 1885 and the French edition of 1896
+
+[^4]: Translated from the French
+
+
+
+
+
+**[p. 1847]**
+
+DE
+
+LA PHILOSOPHIE
+
+RÉPONSE A
+
+LA PHILOSOPHIE DE LA MISÈRE
+
+DEM.PROÜDM.
+
+pat ®atl $katp.
+
+PARIS. \ BRUXELLES. A. FRANK, \ C. G. VOGLER,
+
+[^1]: 69, nie Richelieu S 2, petite ruede I» Madeleine.
+
+[^2]: Cover of the first edition of Marx's The Poverty of Philosophy
+
+
+
+
+
+FOREWORD
+
+M. Proudhon has the misfortune of being peculiarly misunder- stood in Europe. In France, he has the right to be a bad economist, because he is reputed to be a good German philosopher. In Germany, he has the right to be a bad philosopher, because he is reputed to be one of the ablest of French economists. Being both a German and an economist at the same time, we desire to protest against this double error.
+
+The reader will understand that in this thankless task we have often had to abandon our criticism of M. Proudhon in order to criticise German philosophy, and at the same time to give some observations on political economy.
+
+Karl Marx
+
+Brussels, June 15, 1847
+
+M. Proudhon's work is not just a treatise on political economy, an ordinary book; it is a bible. "Mysteries", "Secrets Wrested from the Bosom of God", "Revelations"—it lacks nothing. But as prophets are discussed nowadays more conscientiously than profane writers, the reader must resign himself to going with us through the arid and gloomy erudition of "Genesis", in order to ascend later, with M. Proudhon, into the ethereal and fertile realm of super-socialism. (See Proudhon, Philosophie de la misère, Prologue, p. Ill, line 20.)
+
+CHAPTER I
+
+A SCIENTIFIC DISCOVERY
+
+§1. THE OPPOSITION BETWEEN USE VALUE AND EXCHANGE VALUE
+
+"The capacity of all products, whether natural or industrial, to contribute to man's subsistence is specifically termed use value; their capacity to be given in exchange for one another, exchange value How does use value become exchange value? The genesis of the idea of" (exchange) "value has not been noted by economists with sufficient care. It is necessary, therefore, for us to dwell upon it. Since a very large number of the things I need occur in nature only in moderate quantities, or even not at all, I am forced to assist in the production of what I lack. And as I cannot set my hand to so many things, I shall propose to other men, my collaborators in various functions, to cede to me a part of their products in exchange for mine." (Proudhon, tome I, chap. II, [pp. 33-34].)
+
+M. Proudhon undertakes to explain to us first of all the double nature of value, the "distinction in value" [I 34], the process by which use value is transformed into exchange value. It is necessary for us to dwell with M. Proudhon upon this act of transubstantiation. The following is how this act is accomplished, according to our author.
+
+A very large number of products are not to be found in nature, they are products of industry. If man's needs go beyond nature's spontaneous production, he is forced to have recourse to industrial production. What is this industry in M. Proudhon's view? What is its origin? A single individual, feeling the need for a very great number of things, "cannot set his hand to so many things". So many needs to satisfy presuppose so many things to produce—there are no products without production. So many things to produce presup- pose at once more than one man's hand helping to produce them. Now, the moment you postulate more than one hand helping in production, you at once presuppose a whole production based on the division of labour. Thus need, as M. Proudhon presupposes it, itself presupposes the whole division of labour. In presupposing the
+
+
+
+**[p. 112]**
+
+But M. Proudhon prefers to go the roundabout way. Let us follow him in all his detours, which always bring us back to his starting point.
+
+In order to emerge from the condition in which everyone produces in isolation and to arrive at exchange, "I turn to my collaborators in various functions," says Mr. Proudhon. I myself, then, have collaborators, all with different functions. And yet, for all that, I and all the others, always according to M. Proudhon's supposition, have got no farther than the solitary and hardly social position of the Robinsons. The collaborators and the various functions, the division of labour and the exchange it implies, are already to hand.
+
+To sum up: I have certain needs which are founded on the division of labour and on exchange. In presupposing these needs, M. Proudhon has thus presupposed exchange, exchange value, the very thing of which he purposes to "note the genesis with more care than other economists".
+
+M. Proudhon might just as well have inverted the order of things, without in any way affecting the accuracy of his conclusions. To explain exchange value, we must have exchange. To explain exchange, we must have the division of labour. To explain the division of labour, we must have needs which render necessary the division of labour. To explain these needs, we must "presuppose" them, which is not to deny them—contrary to the first axiom in M. Proudhon's prologue: "To presuppose God is to deny Him." (Prologue, p. I.)
+
+How does M. Proudhon, who assumes the division of labour as the known, manage to explain exchange value, which for him is always the unknown?
+
+"A man" sets out to "propose to other men, his collaborators in various functions", that they establish exchange, and make a distinction between use value and exchange value. In accepting this proposed distinction, the collaborators have left M. Proudhon no other "care" than that of recording the fact, of marking, of "noting" in his treatise on political economy "the genesis of the idea of value". But he has still to explain to us the "genesis" of this proposal, to tell us at last how this single individual, this Robinson, suddenly had the idea of making "to his collaborators" a proposal of the type known and how these collaborators accepted it without the slightest protest.
+
+
+
+**[p. 113]**
+
+That is a sample of the "historical and descriptive method" [I 30] of M. Proudhon, who professes a superb disdain for the "historical and descriptive methods" of the Adam Smiths and Ricardos.
+
+Exchange has a history of its own. It has passed through different phases.
+
+There was a time, as in the Middle Ages, when only the superfluous, the excess of production over consumption, was exchanged.
+
+There was again a time, when not only the superfluous, but all products, all industrial existence, had passed into commerce, when the whole of production depended on exchange. How are we to explain this second phase of exchange—marketable value at its second power?
+
+M. Proudhon would have a reply ready-made: Assume that a man has "proposed to other men, his collaborators in various functions", to raise marketable value to its second power.
+
+Finally, there came a time when everything that men had considered as inalienable became an object of exchange, of traffic and could be alienated. This is the time when the very things which till then had been communicated, but never exchanged; given, but never sold; acquired, but never bought—virtue, love, conviction, knowledge, conscience, etc.—when everything finally passed into commerce. It is the time of general corruption, of universal venality, or, to speak in terms of political economy, the time when every- thing, moral or physical, having become a marketable value, is brought'to the market to be assessed at its truest value.
+
+How, again, can we explain this new and last phase of ex- change—marketable value at its third power?
+
+M. Proudhon would have a reply ready-made: Assume that a person has "proposed to other persons, his collaborators in various functions", to make a marketable value out of virtue, love, etc., to raise exchange value to its third and last power.
+
+We see that M. Proudhon's "historical and descriptive method" is applicable to everything, it answers everything, explains everything. If it is a question above all of explaining historically "the genesis of an economic idea", it postulates a man who proposes to other men, his collaborators in various functions, that they perform this act of genesis and that is the end of it.
+
+
+
+**[p. 114]**
+
+"Economists have very well brought out the double character of value, but what they have not pointed out with the same precision is its contradictory nature; this is where our criticism begins It is a small thing to have drawn attention to this surprising contrast between use value and exchange value, in which economists have been wont to see only something very simple: we must show that this alleged simplicity conceals a profound mystery into which it is our duty to penetrate In technical terms, use value and exchange value stand in inverse ratio to each other." [I 36, 38]
+
+If we have thoroughly grasped M. Proudhon's thought the following are the four points which he sets out to establish:
+
+1. Use value and exchange value form a "surprising contrast", they are in opposition to each other.
+
+2. Use value and exchange value are in inverse ratio, in contradiction, to each other.
+
+3. Economists have neither observed nor recognised either the opposition or the contradiction.
+
+4. M. Proudhon's criticism begins at the end. We, too, shall begin at the end, and, in order to clear the economists from M. Proudhon's accusations, we shall let two sufficiently well-known economists speak for themselves.
+
+Sismondi founded on the opposition between use value and exchange value his principal doctrine, according to which diminu- tion in revenue is proportional to the increase in production.
+
+Lauderdale founded his system on the inverse ratio of the two kinds of value, and his doctrine was indeed so popular in Ricardo's time that the latter could speak of it as of something generally known.
+
+[^1]: Sismondi: "It is the opposition between use value and exchange value to which commerce has reduced everything, etc." (Etudes,3 t. II, p. 162, Brussels edition.)
+
+[^2]: Lauderdale: "In proportion as the riches of individuals are increased by an augmentation of the exchange value, the national wealth" (use value) "is generally diminished; and in proportion as the mass of individual riches is diminished, by the diminution of the exchange value, its opulence is generally increased." (Recherches sur
+
+[^3]: la nature et l'origine de la richesse publique; traduit par Lagentie de Lavaïsse, Paris, 1808 [p. 33; cf. Eng. ed., p. 50].)
+
+[^4]: "It is through confounding the ideas of exchange value and riches" (use value) "that it has been asserted, that by diminishing the quantity of commodities, that is to say, of the necessaries, conveniences, and enjoyments of human life, riches may be increased." (Ricardo, Des principes de l'économie politique, traduit par Constancio,
+
+[^5]: a Simonde de Sismondi, Études sur l'économie politique.—Ed.
+
+
+
+
+
+**[p. 115]**
+
+We have just seen that the economists before M. Proudhon had "drawn attention" to the profound mystery of opposition and contradiction. Let us now see how M. Proudhon in his turn explains this mystery after the economists.
+
+The exchange value of a product falls as the supply increases, the demand remaining the same; in other words, the more abundant a product is relatively to the demand, the lower is its exchange value, or price. Vice versa: The weaker the supply relatively to the demand, the higher rises the exchange value or the price of the product supplied; in other words, the greater the scarcity in the products supplied, relatively to the demand, the higher the prices. The exchange value of a product depends upon its abundance or its scarcity, but always in relation to the demand. Take a product that is more than scarce, unique of its kind if you will: this unique product will be more than abundant, it will be superfluous, if there is no demand for it. On the other hand, take a product multiplied into millions, it will always be scarce if it does not satisfy the demand, that is, if there is too great a demand for it.
+
+These are what we should almost call truisms, yet we have had to repeat them here in order to render M. Proudhon's mysteries comprehensible.
+
+What caps M. Proudhon's difficulty? That he has simply forgotten about demand, and that a thing can be scarce or abundant only insofar as it is in demand. The moment he leaves out demand, he identifies exchange value with scarcity and use value with abundance. In reality, in saying that things "whose utility is nil and scarcity extreme are of incalculable price", he is simply declaring that exchange value is merely scarcity. "Scarcity extreme and utility nil" means pure scarcity. "Incalculable price" is the maximum of exchange value, it is pure exchange value. He equates these two terms. Therefore exchange value and scarcity are equivalent terms. In arriving at these
+
+[^1]: "So that, following up the principle to its ultimate consequences, one would come to the conclusion, the most logical in the world, that the things whose use is indispensable and whose quantity is unlimited should be had for nothing, and those whose utility is nil and whose scarcity is extreme should be of incalculable price. To cap the difficulty, these extremes are impossible in practice: on the one hand, no human product could ever be unlimited in magnitude; on the other, even the scarcest things must perforce be useful to a certain degree, otherwise they would be quite valueless. Use value and exchange value are thus inexorably bound up with each other, although by their nature they continually tend to be mutually exclusive." (Tome I, p. 39.)
+
+
+
+
+
+**[p. 116]**
+
+After having equated exchange value and scarcity, use value and abundance, M. Proudhon is quite astonished not to find use value in scarcity and exchange value, nor exchange value in abundance and use value; and seeing that these extremes are impossible in practice, he can do nothing but believe in mystery. Incalculable price exists for him, because buyers do not exist, and he will never find any buyers, so long as he leaves out demand.
+
+On the other hand, M. Proudhon's abundance seems to be something spontaneous. He completely forgets that there are people who produce it, and that it is to their interest never to lose sight of demand. Otherwise, how could M. Proudhon have said that things which are very useful must have a very low price, or even cost nothing? On the contrary, he should have concluded that abun- dance, the production of very useful things, should be restricted if their price, their exchange value, is to be raised.
+
+The old vine-growers of France in petitioning for a law to forbid the planting of new vines; the Dutch in burning Asiatic spices, in uprooting clove trees in the Moluccas, were simply trying to reduce abundance in order to raise exchange value. During the whole of the Middle Ages this same principle was acted upon, in limiting by laws the number of journeymen a single master could employ and the number of implements he could use. (See Anderson, History of Commerce.*)
+
+After having represented abundance as use value and scarcity as exchange value—nothing indeed is easier than to prove that abundance and scarcity are in inverse ratio—M. Proudhon identifies use value with supply and exchange value with demand. To make the antithesis even more clear-cut, he substitutes a new term, putting "estimation value" for exchange value. [I 32] The battle has now shifted its ground, and we have on one side utility (use value, supply), on the other, estimation (exchange value, demand).
+
+Who is to reconcile these two contradictory forces? What is to be done to bring them into harmony with each other? Is it possible to find in them even a single point of comparison?
+
+[^1]: A. Anderson, An Historical and Chronological Deduction of the Origin of Commerce from the Earliest Accounts to the Present Time (Marx gives the title in French).— Ed.
+
+
+
+
+
+**[p. 117]**
+
+M. Proudhon goes on to develop this antithesis.
+
+"In my capacity as a free buyer, I am judge of my needs, judge of the suitability of an object, judge of the price I am willingto pay for it. On the other hand, in your capacity as a free producer, you are master of the means of execution, and in consequence, you have the power to reduce your expenses." (Tome I, p. 41.)
+
+And as demand, or exchange value, is identical with estimation, M. Proudhon is led to say:
+
+"It is proved that it is man's free will that gives rise to the opposition between use value and exchange value. How can this opposition be removed, so long as free will exists? And how can the latter be sacrificed without sacrificing man?" (Tome I, p. 41.)
+
+Thus there is no possible way out. There is a struggle between two as it were incommensurable powers, between utility and estimation, between the free buyer and the free producer.
+
+Let us look at things a little more closely. Supply does not represent exclusively utility, demand does not represent exclusively estimation. Does not the demander also supply a certain product or the token representing all products, viz., money; and as supplier, does he not represent, according to M. Proudhon, utility or use value?
+
+Again, does not the supplier also demand a certain product or the token representing all products, viz., money? And does he not thus become the representative of estimation, of estimation value or of exchange value?
+
+Demand is at the same time a supply, supply is at the same time a demand. Thus M. Proudhon's antithesis, in simply identifying supply and demand, the one with utility, the other with estimation, is based only on a futile abstraction.
+
+What M. Proudhon calls use value is called estimation value by other economists, and with just as much right. We shall quote only Storch (Cours d'économie politique, Paris, 1823 [tome I], pp. 48 and 49).
+
+According to him, needs are the things for which we feel the need; values are things to which we attribute value. Most things have value only because they satisfy needs engendered by estimation. The estimation of our needs may change; therefore the utility of things, which expresses only a relation of these things to our needs, may also change. Natural needs themselves are continually changing. Indeed, what could be more varied than the objects which form the staple food of different peoples!
+
+
+
+**[p. 118]**
+
+In final analysis, supply and demand bring together production and consumption, but production and consumption based on individual exchanges.
+
+The product supplied is not useful in itself. It is the consumer who determines its utility. And even when its quality of being useful is admitted, it does not exclusively represent utility. In the course of production, it has been exchanged for all the costs of production, such as raw materials, wages of workers, etc., all of which are marketable values. The product, therefore, represents, in the eyes of the producer, a sum total of marketable values. What he sup- plies is not only a useful object, but also and above all a marketable value.
+
+As to demand, it will only be effective on condition that it has means of exchange at its disposal. These means are themselves products, marketable values.
+
+In supply and demand, then, we find, on the one hand, a product which has cost marketable values, and the need to sell; on the other, means which have cost marketable values, and the desire to buy.
+
+M. Proudhon opposes the free buyer to the free producer. To the one and to the other he attributes purely metaphysical qualities. It is this that makes him say: "It is proved that it is man's free will that gives rise to the opposition between use value and exchange value." [141]
+
+The producer, the moment he produces in a society founded on the division of labour and on exchange (and that is Mr. Proudhon's hypothesis), is forced to sell. M. Proudhon makes the producer master of the means of production; but he will agree with us that his means of production do not depend on free will. Moreover, many of these means of production are products which he gets from the outside, and in modern production he is not even free to produce the amount he wants. The actual degree of development of the productive forces compels him to produce on such or such a scale.
+
+The consumer is no freer than the producer. His estimation depends on his means and his needs. Both of these are determined by his social position, which itself depends on the whole social organisation. True, the worker who buys potatoes and the kept woman who buys lace both follow their respective estimations. But the difference in their estimations is explained by the difference in
+
+
+
+**[p. 119]**
+
+Is the entire system of needs founded on estimation or on the whole organisation of production? Most often, needs arise directly from production or from a state of affairs based on production. World trade turns almost entirely round the needs, not of individual consumption, but of production. Thus, to choose another example, does not the need for lawyers suppose a given civil law which is but the expression of a certain development of property, that is to say, of production?
+
+It is not enough for M. Proudhon to have eliminated the elements just mentioned from the relation of supply and demand. He carries abstraction to the extreme limits when he fuses all producers into one single producer, all consumers into one single consumer, and sets up a struggle between these two chimerical personages. But in the real world, things happen otherwise. The competition among the suppliers and the competition among the demanders form a necessary part of the struggle between buyers and sellers, of which marketable value is the result.
+
+After having eliminated the cost of production and competition, M. Proudhon can as he likes reduce the formula of supply and demand to an absurdity.
+
+One might as well say that exchange is merely a "ceremonial form" for introducing the consumer to the object of consumption. One might as well say that all economic relations are "ceremonial forms" serving immediate consumption as go-betweens. Supply and demand are neither more nor less relations of a given production than are individual exchanges.
+
+What, then, does all M. Proudhon's dialectic consist in? In the substitution for use value and exchange value, for supply and demand, of abstract and contradictory notions like scarcity and abundance, utility and estimation, one producer and one consumer, both of them knights of free will.
+
+And what was he aiming at? At arranging for himself a means of introducing later on one of the elements he had set aside, the cost of production, as the synthesis of use value and exchange value. And it is thus that in his eyes the cost of production constitutes synthetic value or constituted value.
+
+[^1]: "Supply and demand," he says, "are merely two ceremonial forms that serve to bring use value and exchange value face to face, and to lead to their reconciliation. They are the two electric poles which, when connected, must produce the phenomenon of affinity called exchange." (Tome I, pp. 49 and 50.)
+
+
+
+
+
+**[p. 120]**
+
+"Value" (marketable value) "is the corner-stone of the economic structure." [I 32] "Constituted" value is the corner-stone of the system of economic contradictions.
+
+What then is this "constituted value" which is all M. Proudhon has discovered in political economy?
+
+Once utility is admitted, labour is the source of value. The measure of labour is time. The relative value of products is determined by the labour time required for their production. Price is the monetary expression of the relative value of a product. Finally, the constituted value of a product is purely and simply the value which is constituted by the labour time incorporated in it.
+
+Just as Adam Smith discovered the division of labour, so he, M. Proudhon, claims to have discovered "constituted value". This is not exactly "something unheard of", but then it must be admitted that there is nothing unheard of in any discovery of economic science. M. Proudhon, who appreciates to the full the importance of his own invention, seeks nevertheless to tone down the merit thereof "in order to reassure the reader as to his claims to originality, and to win over minds whose timidity renders them little favourable to new ideas". [I 52] But in assessing the contribution made by each of his predecessors to the understanding of value, he is forced to confess openly that the largest portion, the lion's share, falls to himself.
+
+Here, in a nutshell, is the history of the discovery of synthetic value: Adam Smith—vague intuition; J. B. Say—antinomy; M. Proudhon—constituting and "constituted" truth. And let there be no mistake about it: all the other economists, from Say to Proudhon, have merely been trudging along in the rut of antinomy.
+
+Posterity, so abruptly invoked, will begin by getting muddled over the chronology. It is bound to ask itself: are not Ricardo and his
+
+[^1]: "The synthetic idea of value had been vaguely perceived by Adam Smith But with Adam Smith this idea of value was entirely intuitive. Now, society does not change its habits merely on the strength of intuitions: its decisions are made only on the authority of facts. The antinomy had to be stated more palpably and more clearly: J. B. Say was its chief interpreter." [I 66]
+
+[^2]: "It is incredible that for the last forty years so many men of sense should have fumed and fretted at such a simple idea. But no, values are compared without there being any point of comparison between them and with no unit of measurement; this, rather than embrace the revolutionary theory of equality, is what the economists of the nineteenth century are resolved to uphold against all comers. What will posterity say about it?" (Tome I, p. 68.)
+
+
+
+
+
+**[p. 121]**
+
+
+
+[^1]: "Utility then is not the measure of exchangeable value, although it is absolutely essential to it." (Tome I, p. 3 of Principes de l'économie politique, etc., traduit de l'anglais par F. S. Constancio, Paris, 1835 [Eng. ed., p. 2].)
+
+[^2]: "Possessing utility, commodities derive their exchangeable value from two sources: from their scarcity, and from the quantity of labour15 required to obtain them. There are some commodities, the value of which is determined by their scarcity alone. No labour can increase the quantity of such goods, and therefore their value cannot be lowered by an increased supply. Some rare statues and pictures, etc. are all of this description. Their value varies with the varying wealth and inclinations of those who are desirous to possess them." (Tome I, pp. 4 and 5, I. c. [Eng. ed., p. 2].) "These commodities, however, form a very small part of the mass of commodities daily exchanged in the market. By far the greatest part of those goods which are the objects of desire, are procured by labour; and they may be multiplied, not in one country alone, but in many, almost without any assignable limit, if we are disposed to bestow the labour necessary to obtain them." (Tome I, p. 5, I. c. [Eng. ed., p. 3].) "In speaking then of commodities, of their exchangeable value, and of the laws which regulate their relative prices, we mean always such commodities only as can be increased in quantity by the exertion of human industry, and on the production of which competition operates without restraint." (Tome I, p. 5 [Eng. ed., p. 3].)
+
+[^3]: a D. Ricardo, On the Principles of Political Economy, and Taxation, London, 1817.— Ed.
+
+[^4]: b The 1847 edition did not have the words "of labour", which were added in the copy with corrections in Marx's hand.—Ed.
+
+
+
+
+
+**[p. 122]**
+
+"That this" (i. e., labour time) "is really the foundation of the exchangeable value of all things, excepting those which cannot be increased by human industry, is a doctrine of the utmost importance in political economy; for from no source do so many errors, and so much difference of opinion in that science proceed, as from the vague ideas which are attached to the word value." (Tome I, p. 8 [Eng. ed., p. 4].) "If the quantity of labour realised in commodities regulate their exchangeable value, every increase of the quantity of labour must augment the value of that commodity on which it is exercised, as every diminution must lower it." (Tome I, p. 8 [Eng. ed., p. 4].)
+
+Ricardo goes on to reproach Smith:
+
+1. "With having himself erected another standart measure of value than labour, sometimes the value of corn, at other times the quantity of labour an object can command in the market," etc. (Tome I, pp. 9 and 10 [cf. Eng. ed., p. 5].)
+
+2. "With having admitted the principle without qualification and at the same time restricted its application to that early and rude state of society, which precedes both the accumulation of stock and the appropriation of land. " (Tome I, p. 21 r)
+
+Ricardo endeavours to prove that the ownership of land, that is, rent, cannot change the relative value of commodities and that the accumulation of capital has only a passing and fluctuating effect on the relative values determined by the comparative quantity of labour expended on their production. In support of this thesis, he gives his famous theory of rent, analyses capital, and ultimately finds nothing in it but accumulated labour. Then he develops a whole theory of wages and profits, and proves that wages and profits rise and fall in inverse ratio to each other, without affecting the relative value of the product. He does not neglect the influence that the accumulation of capital and its different aspects (fixed capital and circulating capital), as also the rate of wages, can have on the proportional value of products. In fact, these are the chief problems with which Ricardo is concerned.
+
+[^1]: "Economy in the use of labour never fails to reduce the relative value* of a commodity, whether the saving be in the labour necessary to the manufacture of the
+
+[^2]: * Ricardo, as is well known, determines the value of a commodity by "the quantity of labour necessary for its production". Owing, however, to the prevailing form of ex- change in every mode of production based on production of commodities, includ- ing therefore the capitalist mode of production, this value is not expressed directly in quantities of labour but in quantities of some other commodity. The value of a commodity expressed in a quantity of some other commodity (whether money or not) is termed by Ricardo its relative value. F. E. [Note to the German edition, 1885. The copy with corrections in Marx's hand has here a marginal note: nota ("la valeur relative")]
+
+[^3]: a A. Smith, An Inquiry into the Nature and Causes of the Wealth of Nations.— Ed. b In the third edition of Ricardo's book (London, 1821) this part of the text is omitted.—Ed.
+
+
+
+
+
+**[p. 123]**
+
+Lord Lauderdale had developed the variations of exchange value according to the law of supply and demand, or of scarcity and abundance relatively to demand. In his opinion the value of a thing can increase when its quantity decreases or when the demand for it increases; it can decrease owing to an increase of its quantity or owing to the decrease in demand. Thus the value of a thing can change through eight different causes, namely, four causes that apply to the thing itself, and four causes that apply to money or to any other commodity which serves as a measure of its value. Here is Ricardo's refutation:
+
+We shall leave it to the reader to make the comparison between this simple, clear, precise language of Ricardo's and M. Proudhon's rhetorical attempts to arrive at the determination of relative value by labour time.
+
+Ricardo shows us the real movement of bourgeois production, which constitutes value. M. Proudhon, leaving this real movement out of account, "fumes and frets" in order to invent new processes and to achieve the reorganisation of the world on a would-be new formula, which formula is no more than the theoretical expression of the real movement which exists and which is so well described by Ricardo. Ricardo takes present-day society as his starting point to demonstrate to us how it constitutes value—M. Proudhon takes constituted value as his starting point to constitute a new social world
+
+[^1]: "Commodities which are monopolised, either by an individual, or by a company, vary according to the law which Lord Lauderdale has laid down: they fall in proportion as the sellers augment their quantity, and rise in proportion to the eagerness of the buyers to purchase them; their price has no necessary connexion with their natural value: but the prices of commodities, which are subject to competition, and whose quantity may be increased in any moderate degree, will ultimately depend, not on the state of demand and supply, but on the increased or diminished cost of their production." (Tome II, p. 259 [Eng. ed., p. 465].)
+
+
+
+
+
+**[p. 124]**
+
+— A certain quantity of labour is equivalent to the product created by this same quantity of labour.
+
+— Each day's labour is worth as much as another day's labour; that is to say, if the quantities are equal, one man's labour is worth as much as another man's labour: there is no qualitative difference. With the same quantity of labour, one man's product can be given in exchange for another man's product. All men are wage workers getting equal pay for an equal labour time. Perfect equality rules the exchanges.
+
+Are these conclusions the strict, natural consequences of value "constituted" or determined by labour time?
+
+If the relative value of a commodity is determined by the quantity of labour required to produce it, it follows naturally that the relative value of labour, or wages, is likewise determined by the quantity of labour needed to produce the wages. Wages, that is, the relative value or the price of labour, are thus determined by the labour time needed to produce all that is necessary for the maintenance of the worker.
+
+[^1]: "Diminish the cost of production of hats, and their price will ultimately fall to their new natural price, although the demand should be doubled, trebled, or quadrupled. Diminish the cost of subsistence of men, by diminishing the natural price of the food and
+
+[^2]: a See this volume, pp. 144-60.—Ed.
+
+
+
+
+
+**[p. 125]**
+
+Doubtless, Ricardo's language is as cynical as can be. To put the cost of manufacture of hats and the cost of maintenance of men on the same plane is to turn men into hats. But do not make an outcry at the cynicism of it. The cynicism is in the facts and not in the words which express, the facts. French writers like MM. Droz, Blanqui, Rossi and others take an innocent satisfaction in proving their superiority over the English economists, by seeking to observe the etiquette of a "humanitarian" phraseology; if they reproach Ricardo and his school for their cynical language, it is because it annoys them to see economic relations exposed in all their crudity, to see the mysteries of the bourgeoisie unmasked.
+
+To sum up: Labour, being itself a commodity, is measured as such by the labour time needed to produce the labour-commodity. And what is needed to produce this labour-commodity? Just enough labour time to produce the objects indispensable to the constant maintenance of labour, that is, to keep the worker alive and in a condition to propagate his race. The natural price of labour is no other than the minimum wage.* If the current rate of wages rises above the natural price, it is precisely because the law of value posed as a principle by M. Proudhon happens to be counterbalanced by the consequences of the varying relations of supply and demand. But the minimum wage is nonetheless the centre towards which the current rates of wages gravitate.
+
+Thus relative value, measured by labour time, is inevitably the formula of the present enslavement of the worker, instead of being, as M. Proudhon would have it, the "revolutionary theory" of the emancipation of the proletariat.
+
+Let us see now to what extent the application of labour time as a
+
+[^1]: * The thesis that the "natural", i.e., normal, price of labour power coincides with the minimum wage, i.e., with the equivalent in value of the means of subsistence absolutely indispensable for the life and procreation of the worker, was first put forward by me in Outlines of a Critique of Political Economy (Deutsch-Französische Jahrbücher, Paris, 1844) and in The Condition of the Working Class in England. As seen here, Marx at that time accepted the thesis. Lassalle took it over from both of us. Although, however, in reality wages have a constant tendency to approach the minimum, the above thesis is nevertheless incorrect. The fact that labour power is regularly and on the average paid below its value cannot alter its value. In Capital, Marx has put the above thesis right (Section on the Buying and Selling of Labour Power) and also (Chapter 25: The General Law of Capitalist Accumulation) analysed the circumstances which permit capitalist production to depress the price of labour power more and more below its value. F. E. [Note to the German edition, 1885.]
+
+
+
+
+
+**[p. 126]**
+
+Let us take a particular product, for example, linen. This product, as such, contains a definite quantity of labour. This quantity of labour will always be the same, whatever the reciprocal position of those who have collaborated to create this product.
+
+Let us take another product: broadcloth, which has required the same quantity of labour as the linen.
+
+If there is an exchange of these two products, there is an exchange of equal quantities of labour. In exchanging these equal quantities of labour time, one does not change the reciprocal position of the producers, any more than one changes anything in the situation of the workers and manufacturers among themselves. To say that this exchange of products measured by labour time results in an equality of payment for all the producers is to suppose that equality of participation in the product existed before the exchange. When the exchange of broadcloth for linen has been accomplished, the producers of broadcloth will share in the linen in a proportion equal to that in which they previously shared in the broadcloth.
+
+M. Proudhon's illusion is brought about by his taking for a consequence what could be at most but a gratuitous supposition.
+
+Let us go further. Does labour time, as the measure of value, suppose at least that the days are equivalent, and that one man's day is worth as much as another's? No.
+
+Let us suppose for a moment that a jeweller's day is equivalent to three days of a weaver; the fact remains that any change in the value of jewels relative to that of woven materials, unless it be the transitory result of the fluctuations of demand and supply, must have as its cause a reduction or an increase in the labour time expended in the production of one or the other. If three working days of different workers be related to one another in the ratio of 1:2:3, then every change in the relative value of their products will be a change in this same proportion of 1:2:3. Thus values can be measured by labour time, in spite of the inequality of value of different working days; but to apply such a measure we must have a comparative scale of the different working days: it is competition that sets up this scale.
+
+Is your hour's labour worth mine? That is a question which is decided by competition.
+
+Competition, according to an American economist, determines how many days of simple labour are contained in one day's
+
+
+
+**[p. 127]**
+
+In the automatic workshop, one worker's labour is scarcely distinguishable in any way from another worker's labour: workers can only be distinguished one from another by the length of time they take for their work. Nevertheless, this quantitative difference becomes, from a certain point of view, qualitative, in that the time they take for their work depends partly on purely material causes, such as physical constitution, age and sex; partly on purely negative moral causes, such as patience, imperturbability, diligence. In short, if there is a difference of quality in the labour of different workers, it is at most a quality of the last kind, which is far from being a distinctive peculiarity. This is what the state of affairs in modern industry amounts to in the last analysis. It is upon this equality, already realised in automatic labour, that M. Proudhon wields his smoothing-plane of "equalisation", which he means to establish universally in "time to come"!
+
+All the "equalitarian" consequences which M. Proudhon deduces from Ricardo's doctrine are based on a fundamental error. He confounds the value of commodities measured by the quantity of labour embodied in them with the value of commodities measured by "the value of labour". If these two ways of measuring the value of commodities merged into one, it could be said indifferently that the relative value of any commodity is measured by the quantity of labour embodied in it; or that it is measured by the quantity of labour it can buy; or again that it is measured by the quantity of labour which can acquire it. But this is far from being so. The value of labour74 can no more serve as a measure of value than the value of any other
+
+
+
+**[p. 128]**
+
+If a muida of corn cost two days' labour instead of one, it would have twice its original value: but it would not set in operation double the quantity of labour, because it would contain no more nutritive matter than before. Thus the value of the corn, measured by the quantity of labour used to produce it, would have doubled; but measured either by the quantity of labour it can buy or by the quantity of labour with which it can be bought, it would be far from having doubled. On the other hand, if the same labour produced twice as many clothes as before, their relative value would fall by half; but, nevertheless, this double quantity of clothing would not thereby be reduced to disposing over only half the quantity of labour, nor could the same labour command double the quantity of clothing; for half the clothes would still go on rendering the worker the same service as before.
+
+Thus it is going against economic facts to determine the relative value of commodities by the value of labour. It is moving in a vicious circle, it is to determine relative value by a relative value which itself needs to be determined.
+
+It is beyond doubt that M. Proudhon confuses the two measures, measure by the labour time needed for the production of a commodity and measure by the value of the labour.
+
+Thus, according to him, a certain quantity of labour embodied in a product is equivalent to the worker's payment, that is, to the value of labour. It is the same reasoning that makes him confuse cost of production with wages.
+
+What are wages? They are the value of labour. Adam Smith takes as the measure of value, now the labour time needed for the production of a commodity, now the value of labour. Ricardo exposes this error by showing clearly the disparity of these two ways of measuring. M. Proudhon outdoes Adam Smith in error by identifying the two things which the latter had merely put in juxtaposition.
+
+It is in order to find the proper proportion in which workers should share in the products, or, in other words, to determine the
+
+[^1]: "Any man's labour," he says, "can buy the value it represents." [181]
+
+[^2]: "What are wages? They are the cost price of corn, etc., the integral price of all things. Let us go still further. Wages are the proportionality of the elements which compose wealth." TI 1101
+
+[^3]: a An old French measure equivalent to 18 hectolitres.— Ed.
+
+
+
+
+
+**[p. 129]**
+
+"Say and the economists after him have observed that labour being itself subject to valuation, being a commodity like any other commodity, it is moving in a vicious circle to treat it as the principle and the determining cause of value In so doing, these economists, if they will allow me to say so, show a prodigious carelessness. Labour is said to have value not as a commodity itself, but in view of the values which it is supposed to contain potentially. The value of labour is a figurative expression, an anticipation of the cause for the effect. It is a fiction of the same stamp as the productivity of capital. Labour produces, capital has value By a sort of ellipsis one speaks of the value of labour Labour like liberty is a thing vague and indeterminate by nature, but defined qualitatively by its object, that is to say, it becomes a reality by the product." [I 61]
+
+We have seen that M. Proudhon makes the value of labour the "determining cause" of the value of products to such an extent that for him wages, the official name for the "value of labour", form the integral price of all things. That is why Say's objection troubles him. In labour-commodity, which is a grim reality, he sees nothing but a grammatical ellipsis. Thus the whole of existing society, founded on labour-commodity, is henceforth founded on a poetic licence, a figurative expression. If society wants to "eliminate all the draw- backs" that assail it, well, let it eliminate all the ill-sounding terms, change the language; and to this end it has only to apply to the Academy for a new edition of its dictionary. After all that we have just seen, it is easy for us to understand why M. Proudhon, in a work on political economy, has to enter upon long dissertations on etymology and other parts of grammar. Thus he is still learnedly discussing the antiquated derivation of servus* from servarè*. These
+
+[^1]: "But is there any need to dwell on this? The moment the economist" (read M. Proudhon) "changes the name of things, vera rerum vocabula, he is implicitly confessing his impotence and proclaiming himself not privy to the cause." (Proudhon, tome I, p. 188.)
+
+[^2]: a A slave, servant.— Ed. To preserve.— Ed.
+
+
+
+
+
+**[p. 130]**
+
+Labour,8 inasmuch as it is bought and sold, is a commodity like any other commodity, and has, in consequence, an exchange value. But the value of labour, or labour as a commodity, produces as little as the value of wheat, or wheat as a commodity, serves as food.
+
+Labour has more or less "value," according to whether food commodities are more or less dear, whether the supply and demand of hands exist to such or such a degree, etc., etc.
+
+Labour is not a "vague thing"; it is always some definite labour, it is never labour in general that is sold and bought. It is not only labour which is qualitatively defined by the object; but also the object which is determined by the specific quality of labour.
+
+Labour, insofar as it is sold and bought, is itself a commodity. Why is it bought? "In view of the values it is supposed to contain potentially." But if a certain thing is said to be a commodity, there is no longer any question as to the reason why it is bought, that is, as to the utility to be derived from it, the application to be made of it. It is a commodity as an object of traffic. All M. Proudhon's arguments are limited to this: labour is not bought as an immediate object of consumption. No, it is bought as an instrument of production, as a machine would be bought. As a commodity, labour has value and does not produce. M. Proudhon might just as well have said that there is no such thing as a commodity, since every commodity is acquired merely for some utilitarian purpose, and never as a commodity in itself.
+
+In measuring the value of commodities by labour, M. Proudhon vaguely glimpses the impossibility of excluding labour from this same measure, insofar as labour has a value, labour-commodity. He has a misgiving that it is turning the minimum wage into the natural and normal price of immediate labour, that it is accepting the existing state of society. So, to get away from this fatal consequence, he faces about and asserts that labour is not a commodity, that it cannot have value. He forgets that he himself has taken the value of labour as a measure, he forgets that his whole system rests on labour-commodity, on labour which is bartered, sold, bought, exchanged for produce, etc., on labour, in fact, which is an immediate source of income for the worker. He forgets everything.
+
+[^1]: a In the copy with corrections in Marx's hand and the one presented in 1876 to N. Utina after the word "travail" ("labour") is added "la force du travail" ("labour power"). The same addition is made in the 1896 French edition.—Ed.
+
+
+
+
+
+**[p. 131]**
+
+Et propter vitam vivendi perdere causas?
+
+We now come to a new definition of "constituted value".
+
+"Value is the proportional relation of the products which constitute wealth." [I 62]
+
+Let us note in the first place that the simple phrase "relative or exchange value" implies the idea of some relation in which products are exchanged reciprocally. By giving the name "proportional relation" to this relation, no change is made in the relative value, except in the expression. Neither the depreciation nor the enhance- ment of the value of a product destroys its quality of being in some "proportional relation" with the other products which constitute wealth.
+
+Why then this new term, which introduces no new idea?
+
+"Proportional relation" suggests many other economic relations, such as proportionality in production, the correct proportion between supply and demand, etc., and M. Proudhon is thinking of all that when he formulates this didactic paraphrase of marketable value.
+
+In the first place, the relative value of products being determined by the comparative amount of labour used in the production of each of them, proportional relations, applied to this special case, stand for the respective quota of products which can be manufactured in a given time, and which in consequence are given in exchange for one another.
+
+Let us see what advantage M. Proudhon draws from this proportional relation.
+
+Everyone knows that when supply and demand are evenly balanced, the relative value of any product is accurately determined by the quantity of labour embodied in it, that is to say, that this relative value expresses the proportional relation precisely in the sense we have just attached to it. M. Proudhon inverts the order of things. Begin, he says, by measuring the relative value of a product by the quantity of labour embodied in it, and supply and demand will infallibly balance one another. Production will correspond to consumption, the product will always be exchangeable. Its current price will express exactly its true value. Instead of saying like everyone else: when the weather is fine, a lot of people are to be seen going out for a walk, M. Proudhon makes his people go out for a walk in order to be able to ensure them fine weather.
+
+[^1]: a And for the sake of life to lose the reasons for living (Juvenal, Satires, VIII).— Ed.
+
+
+
+
+
+**[p. 132]**
+
+Products will in future be exchanged in the exact ratio of the labour time they have cost. Whatever may be the proportion of supply to demand, the exchange of commodities will always be made as if they had been produced proportionately to the demand. Let M. Proudhon take it upon himself to formulate and lay down such a law, and we shall relieve him of the necessity of giving proofs. If, on the other hand, he insists on justifying his theory, not as a legislator, but as an economist, he will have to prove that the time needed to create a commodity indicates exactly the degree of its utility and marks its proportional relation to the demand, and in consequence, to the total amount of wealth. In this case, if a product is sold at a price equal to its cost of production, supply and demand will always be evenly balanced; for the cost of production is supposed to express the true relation between supply and demand.
+
+Actually, M. Proudhon sets out to prove that the labour time needed to create a product indicates its correct proportional relation to needs, so that the things whose production costs the least time are the most immediately useful, and so on, step by step. The mere production of a luxury object proves at once, according to this doctrine, that society has spare time which allows it to satisfy a need for luxury.
+
+M. Proudhon finds the very proof of his thesis in the observation that the most useful things cost the least time to produce, that society always begins with the easiest industries and successively "starts on the production of objects which cost more labour time and which correspond to a higher order of needs". [I 57]
+
+M. Proudhon borrows from M. Dunoyer the example of extractive industry—fruit-gathering, pasturage, hunting, fishing, etc. —which is the simplest, the least costly of industries, and the one by which man began "the first day of his second creation". [I 78] The first day of his first creation is recorded in Genesis, which shows us God as the world's first manufacturer.
+
+Things happen in quite a different way from what M. Proudhon imagines. The very moment civilisation begins, production begins to be founded on the antagonism of orders, estates, classes, and finally on the antagonism of accumulated labour and immediate labour. No antagonism, no progress. This is the law that civilisation has followed up to our days. Till now the productive forces have been developed by virtue of this system of class antagonisms. To say now that, because all the needs of all the workers were satisfied, men could
+
+
+
+**[p. 133]**
+
+The price of food has almost continuously risen, while the price of manufactured and luxury goods has almost continuously fallen. Take the agricultural industry itself: the most indispensable objects, like corn, meat, etc., rise in price, while cotton, sugar, coffee, etc., continually fall in a surprising proportion. And even among comestibles proper, the luxury articles, like artichokes, asparagus, etc., are today relatively cheaper than foodstuffs of prime necessity. In our age, the superfluous is easier to produce than the necessary. Finally, at different historical epochs, the reciprocal price relations are not only different, but opposed to one another. In the whole of the Middle Ages, agricultural products were relatively cheaper than manufactured products; in modern times they are in inverse ratio. Does this mean that the utility of agricultural products has diminished since the Middle Ages?
+
+The use of products is determined by the social conditions in which the consumers find themselves placed, and these conditions themselves are based on class antagonism.
+
+Cotton, potatoes and spirits are objects of the most common use. Potatoes have engendered scrofula; cotton has to a great extent driven out flax and wool, although wool and flax are, in many cases, of greater utility, if only from the point of view of hygiene; finally, spirits have got the upper hand of beer and wine, although spirits used as an alimentary substance are everywhere recognised to be poison. For a whole century, governments struggled in vain against the European opium; economics prevailed, and dictated its orders to consumption.
+
+Why are cotton, potatoes and spirits the pivots of bourgeois society? Because the least amount of labour is needed to produce them, and, consequently, they have the lowest price. Why does the minimum price determine the maximum consumption? Is it by any chance because of the absolute utility of these objects, their intrinsic utility, their utility insomuch as they correspond, in the most useful manner, to the needs of the worker as a man, and not of the man as a worker? No, it is because in a society founded on poverty the poorest
+
+[^1]: 6*
+
+
+
+
+
+**[p. 134]**
+
+To say now that because the least costly things are in greater use, they must be of greater utility, is saying that the wide use of spirits, because of their low cost of production, is the most conclusive proof of their utility; it is telling the proletarian that potatoes are more wholesome for him than meat; it is accepting the present state of affairs; it is, in short, making an apology, with M. Proudhon, for a society without understanding it.
+
+In a future society, in which class antagonism will have ceased, in which there will no longer be any classes, use will no longer be determined by the minimum time of production; but the time of production3 devoted to an articleb will be determined by the degree of its social utility.
+
+To return to M. Proudhon's thesis; since the labour time necessary for the production of an article is not the expression of its degree of utility, the exchange value of this same article, determined beforehand by the labour time embodied in it, can never regulate the correct relation of supply to demand, that is, the proportional relation in the sense M. Proudhon attributes to it at the moment.
+
+It is not the sale of a given product at the price of its cost of production that constitutes the "proportional relation" of supply to demand, or the proportional quota of this product relatively to the sum total of production; it is the variations in demand and supply that show the producer what amount of a given commodity he must produce in order to receive at least the cost of production in exchange. And as these variations are continually occurring, there is also a continual movement of withdrawal and application of capital in the different branches of industry.
+
+[^1]: "It is only in consequence of such variations that capital is apportioned precisely, in the requisite abundance and no more, to the production of the different commodities which happen to be in demand. With the rise or fall of price, profits are elevated above, or depressed below their general level, and capital is either encouraged to enter into, or is warned to depart from, the particular employment in which the variation has taken place."—"When we look to the markets of a large town, and observe how regularly they are supplied both with home and foreign commodities, in the quantity
+
+[^2]: The 1896 French edition has "production sociale".—Ed. b In the copy with corrections in Marx's hand and the one presented to N. Utina the words "à un objet" are replaced by "aux différents objets". This change was also made in the 1896 French edition.— Ed.
+
+[^3]: c The word "sociale", which is not in the 1847 edition, was added in the copy with corrections in Marx's hand and the one which he presented to N. Utina and also in the 1896 French edition.— Ed.
+
+
+
+
+
+**[p. 135]**
+
+If M. Proudhon admits that the value of products is determined by labour time, he should equally admit that it is the fluctuating movement alone that3 makes labour time the measure of value. There is no ready constituted "proportional relation", but only a constituting movement.
+
+We have just seen in what sense it is correct to speak of "proportion" as of a consequence of value determined by labour time. We shall see now how this measure by time, called by M. Proudhon the "law of proportion", becomes transformed into a law of disproportion.
+
+Every new invention that enables the production in one hour of that which has hitherto been produced in two hours depreciates all similar products on the market. Competition forces the producer to sell the product of two hours as cheaply as the product of one hour. Competition implements the law according to which the relative value of a product is determined by the labour time needed to produce it. Labour time serving as the measure of marketable value becomes in this way the law of the continual depreciation of labour. We will say more. There will be depreciation not only of the commodities brought into the market, but also of the instruments of production and of whole plants. This fact was already pointed out by Ricardo when he said:
+
+Sismondi goes further. He sees in this "value constituted" by labour time the source of all the contradictions of modern industry and com- merce.
+
+[^1]: "By constantly increasing the facility of production, we constantly diminish the value of some of the commodities before produced." (Tome II, p. 59 [Eng. ed., p. 321] >
+
+[^2]: "Mercantile value," he says, "is always determined in the long run by the quantity of labour needed to obtain the thing evaluated: it is not what it has actuallv cost, but what it would cost in future with, perhaps, perfected means; and this quantity, al- though difficult to evaluate, is always faithfully established by competition It is on
+
+[^3]: a In the copy with corrections in Marx's hand the words "in societies founded on individual exchanges" are added here and then struck out; in the copy presented to N. Utina this addition was made except for the word "individual".— Ed.
+
+
+
+
+
+**[p. 136]**
+
+It is important to emphasise the point that what determines value is not the time taken to produce a thing, but the minimum time it could possibly be produced in, and this minimum is ascertained by competition. Suppose for a moment that there is no more competition and consequently no longer any means to ascertain the minimum of labour necessary for the production of a commodity; what will happen? It will suffice to spend six hours' work on the production of an object, in order to have the right, according to M. Proudhon, to demand in exchange six times as much as he who has taken only one hour to produce the same object.
+
+Instead of a "proportional relation", we have a disproportional relation, at any rate if we insist on sticking to relations, good or bad.
+
+The continual depreciation of labour is only one side, one consequence of the evaluation of commodities by labour time. The excessive raising of prices, overproduction and many other features of industrial anarchy have their explanation in this mode of evaluation.
+
+But does labour time used as a measure of value give rise at least to the proportional variety of products that so fascinates M. Proudhon?
+
+On the contrary, monopoly in all its monotony follows in its wake and invades the world of products, just as to everybody's knowledge monopoly invades the world of the instruments of production. It is only in a few branches of industry, like the cotton industry, that very rapid progress can be made. The natural consequence of this progress is that the products of cotton manufacture, for instance, fall rapidly in price: but as the price of cotton goes down, the price of flax must go up in comparison. What will be the outcome? Flax will be replaced by cotton. In this way, flax has been driven out of almost the whole of North America. And we have obtained, instead of the proportional variety of products, the dominance of cotton.
+
+What is left of this "proportional relation"? Nothing but the pious wish of an honest man who would like commodities to be produced in proportions which would permit of their being sold at an honest price. In all ages good-natured bourgeois and philanthropic economists have taken pleasure in expressing this innocent wish.
+
+
+
+**[p. 137]**
+
+Let us hear what old Boisguillebert says:
+
+"The price of commodities," he says, "must always be proportionate; for it is such mutual understanding alone that can enable them to exist together so as to give themselves to one another at any moment" (here is M. Proudhon's continual exchangeabili- ty) "and reciprocally give birth to one another As wealth, then, is nothing but this continual intercourse between man and man, craft and craft, etc., it is a frightful blindness to go looking for the cause of misery elsewhere than in the cessation of such traffic brought about by a disturbance of proportion in prices." (Dissertation sur la nature des richesses, Daire ed. [pp. 405, 408].)
+
+Let us listen also to a modern economist:
+
+"The great law as necessary to be affixed to production, that is, the law of proportion,* which alone can preserve the continuity of value The equivalent must be guaranteed All nations have attempted, at various periods of their history, by instituting numerous commercial regulations and restrictions, to effect, in some degree, the object here explained But the natural and inherent selfishness of man has urged him to break down all such regulations Proportionate production *' is the realisation of the entire truth of the Science of Social Economy." (W. Atkinson, Principles of Political Economy, London, 1840, pp. 170-95.)
+
+Fuit Troja.b This correct proportion between supply and demand, which is beginning once more to be the object of so many wishes, ceased long ago to exist. It has passed into the stage of senility. It was possible only at a time when the means of production were limited, when exchange took place within very restricted bounds. With the birth of large-scale industry this correct proportion had to come to an end, and production is inevitably compelled to pass in continuous succession through vicissitudes of prosperity, depression, crisis, stagnation, renewed prosperity, and so on.
+
+Those who, like Sismondi, wish to return to the correct proportion of production, while preserving the present basis of society, are reactionary, since, to be consistent, they must also wish to bring back all the other conditions of industry of former times.
+
+What kept production in correct, or more or less correct, proportions? It was demand that dominated supply, that preceded it. Production followed close on the heels of consumption. Large-scale industry, forced by the very instruments at its disposal to produce on an ever-increasing scale, can no longer wait for demand. Production precedes consumption, supply compels demand.
+
+In existing society, in industry based on individual exchange, anarchy of production, which is the source of so much misery, is at the same time the source of all progress.
+
+Thus, one or the other:
+
+[^1]: a In the original the English term is given in parentheses after the French.— Ed. Troy is no more (Virgil, Aeneid, 2, 325).— Ed.
+
+
+
+
+
+**[p. 138]**
+
+Either you want the correct proportions of past centuries with present-day means of production, in which case you are both reactionary and Utopian.
+
+Or you want progress without anarchy: in which case, in order to preserve the productive forces, you must abandon individual exchange.
+
+Individual exchange is consistent only with the small-scale industry of past centuries and its corollary of "correct proportion", or else with large-scale industry and all its train of misery and anarchy.
+
+After all,3 the determination of value by labour time—the formula M. Proudhon gives us as the regenerating formula of the future—is therefore0 merely the scientific expression of the economic relations of present-day society, as was clearly and precisely demonstrated by Ricardo long before M. Proudhon.
+
+But does the " equalitarian" application of this formula at least belong to M. Proudhon? Was he the first to think of reforming society by transforming all men into immediate workers exchanging equal amounts of labour? Is it for him to reproach the Commu- nists—these people devoid of all knowledge of political economy, these "obstinately foolish men", these "paradise dreamers"—with not having found, before him, this "solution of the problem of the proletariat"?
+
+Anyone who is in any way familiar with the trend of political economy in England cannot fail to know that almost all the socialists in that country have, at different periods, proposed the equalitarian application of the Ricardian theory. We could quote for M. Proudhon: Hodgskin, Political Economy, 182775; William Thompson, An Inquiry into the Principles of the Distribution of Wealth Most Conducive to Human Happiness, 1824; T. R. Edmonds, Practical Moral and Political Economy, 1828, etc., etc., and four pages more of etc. We shall content ourselves with listening to an English Communist, Mr. Bray. We shall give the decisive passages in his remarkable work, Labour's Wrongs and Labour's Remedy, Leeds, 1839, and we shall dwell some time upon it, firstly, because Mr. Bray is still little known in France, and, secondly, because we think that we have discovered in him the key to the past, present and future works of M. Proudhon.
+
+[^1]: a In the 1847 edition this sentence begins with the words: "D'après tout ce que nous venons de dire." In the copy with corrections in Marx's hand and the one presented to N. Utina "D'après" is changed to "Après" and the rest of the phrase is crossed out; this correction was reproduced in the 1896 French edition.— Ed.
+
+[^2]: The word "therefore" ("done") is not in the 1847 edition; it was added in the copy with corrections in Marx's hand and the one presented to N. Utina; this addition is reproduced in the 1896 French edition.— Ed.
+
+
+
+
+
+**[p. 139]**
+
+"Not only are the greatest advantages, but strict justice also, on the side of a system of equality Every man is a link, and an indispensable link, in the chain of effects—the beginning of which is but an idea, and the end, perhaps, the production of a piece of cloth. Thus, although we may entertain different feelings towards the several parties, it does not follow that one should be better paid for his labour than another. The inventor will ever receive, in addition to his just pecuniary reward, that which genius only can obtain from us—the tribute of our admiration
+
+[^1]: "From the very nature of labour and exchange, strict justice requires that all exchangers should be not only mutually, but that thev should likewise be equally, benefited. Men have only two things which they can exchange with each other, namely, labour, and the produce of labour If a just svstem of exchanges were acted upon, the value of all articles would be determined by the entire cost of production; and equal values should always exchange for equal values fi If, lor instance, it takes a hatter one
+
+[^2]: 3 In the original the end of the phrase beginning with the words "the institution of property " is given in English in parentheses after the French.— Ed.
+
+[^3]: In the original this phrase is given in English in parentheses after the French.— Ed.
+
+[^4]: ' In the original the words "and to the consequent rise of inequality of possessions" are given in English in parentheses after the French.— Ed.
+
+[^5]: d Bray has here: "misgovernment".— Ed.
+
+[^6]: In the original the words "the offspring of inequality of possessions" are given in English in parentheses after the French.— Ed.
+
+[^7]: ' In the original the words "all exchangers should be" to the end of the sentence are given in English in parentheses after the French.— Ed.
+
+[^8]: 8 In the original this sentence is given in English in parentheses after the French.— Ed.
+
+
+
+
+
+**[p. 140]**
+
+" the gain of the employer will never cease to be the loss of the employed—until the exchanges between the parties are equal; and exchanges never can be equal while society is divided into capitalists and producers—the last living upon their labour and the first bloating upon the profit of that labour
+
+[^1]: "It is plain," continues Mr. Bray, "that, establish whatever form of government we will we may talk of morality and brotherly love no reciprocity can exist where there are unequal exchanges Inequality of exchanges, as being the cause of inequality of possessions, is the secret enemy that devours us." d (Bray, pp. 51 and 52.)
+
+[^2]: "It has been deduced, also, from a consideration of the intention and end of society, not only that all men should labour, and thereby become exchangers, but that equal values should always exchange for equal values — and that, as the gain of one man ought never to be the loss of another, value should ever be determined by cost of production. But we have seen, that, under the present arrangements of society the gain of the capitalist and the rich man is always the loss of the workman — that this result will invariably take place, and the poor man be left entirely at the mercy of the rich man, under any and every form of government, so long as there is inequality of exchanges—and that equality of exchanges can be ensured only under social arrangements in which labour is universal If exchanges were equal, would the wealth of the present capitalists gradually go from them to the working classes." (Bray, pp. 53-55.)
+
+[^3]: a In the original the words from "the workmen" to "half a year" are given in English in parentheses after the French.— Ed.
+
+[^4]: In the original the words "nothing for something" are given in English in parentheses after the French.— Ed.
+
+[^5]: c In the original this phrase is given in parentheses in English after the French.— Ed.
+
+[^6]: d In the original the words from "no reciprocity" to "devours us" are given in English in parentheses after the French.— Ed.
+
+
+
+
+
+**[p. 141]**
+
+"So long as this system of unequal exchanges is tolerated, the producers will be almost as poor and as ignorant and as hardworked as they are at present, even if every governmental burthen be swept away and all taxes be abolished nothing but a total change of system — an equality of labour and exchanges — can alter this state of things and guarantee true equality of rights The producers have but to make an effort — and by them must every effort for their own redemption be made — and their chains will be snapped asunder for ever As an end, the political equality is there a failure as a means, also, it is there a failure.3
+
+"Where equal exchanges are maintained, the gain of one man cannot be the loss of another; for every exchange is then simply a transfer, and not a sacrifice, of labour and wealth. Thus, although under a social system based on equal exchanges, a parsimonious man may become rich, his wealth will be no more than the accumulated produce of his own labour. He may exchange his wealth, or he may give it to others but a rich man cannot continue wealthy for any length of time after he has ceased to labour. Under equality of exchanges, wealth cannot have, as it now has, a procreative and apparently self-generating power, such as replenishes all waste from consumption; for, unless it be renewed by labour, wealth, when once consumed, is given up for ever. That which is now called profit and interest cannot exist as such in connection with equality of exchanges; for producer and distributor would be alike remunerated, and the sum total of their labour would determine the value of the article created and brought to the hands of the consumer.
+
+"The principle of equal exchanges, therefore, must from its very nature ensure universal labour." (Bray, pp. 67, 88, 89, 94, 109-10.)
+
+After having refuted the objections of the economists to commu- nism, Mr. Bray goes on to say:
+
+[^1]: "If, then, a changed character be essential to the success of the social system of community in its most perfect form—and if, likewise, the present system affords no circumstances and no facilities for effecting the requisite change of character and preparing man for the higher and better state desired — it is evident that these things must necessarily remain as they are, or else some preparatory step must be discovered and made use of — some movement partaking partly of the present and partly of the desired system" (the system of community), "some intermediate resting-place, to which society may go with all its faults and its follies, and from which it may move forward, imbued with those qualities and attributes without which the system of community and equality cannot as such have existence." (Bray, p. 134.)
+
+[^2]: "The whole movement would require only co-operation in its simplest form Cost of production would in every instance determine value; and equal values would always exchange for equal values. If one person worked a whole week, and another worked only half a week, the first would receive double the remuneration of the last; but this extra pay of the one would not be at the expense of the other, nor would the loss incurred by the last man fall in any way upon the first. Each person would exchange the wages he individually received for commodities of the same value as his respective wages; and in no case could the gain of one man or one trade be a loss to another man or another trade. The labour of every individual would alone determine his gains or his losses
+
+[^3]: "By means of general and local boards of trade b the quantities of the various
+
+[^4]: a In the original this sentence is given in English in parentheses after the French.— Ed.
+
+[^5]: b In the original the last three words are given in English in parentheses after the French.— Ed.
+
+
+
+
+
+**[p. 142]**
+
+commodities required for consumption — the relative value of each in regard to each other — the number of hands required in various trades and descriptions of labour — and all other matters connected with production and distribution, could in a short time be as easily determined for a nation as for an individual company under the present arrangements Individuals would compose families, and families towns, as under the existing system The present distribution of people in towns and villages, bad as it is, would not be directly interfered with Under this joint-stock system, the same as under that now existing, every individual would be at liberty to accumulate as much as he pleased, and to enjoy such accumulations when and where he might think proper The great productive section of the community is divided into an indefinite number of smaller sections, all working, producing and exchanging their products on a footing of the most perfect equality And the joint-stock modification (which is nothing but a concession to present-day society in order to obtain communism), by being so constituted as to admit of individual property in productions in connection with a common property in productive powers — making every individual dependent on his own exertions, and at the same time allowing him an equal participation in every advantage afforded by nature and art — is fitted to take society as it is, and to prepare the way for other and better changes." (Bray, pp. 158, 160, 162, [163], 168, [170 and] 194.)
+
+We only need to reply in a few words to Mr. Bray who without us and in spite of us has managed to supplant M. Proudhon, except that Mr. Bray, far from claiming the last word on behalf of humanity, proposes merely measures which he thinks good for a period of transition between existing society and a community regime.
+
+One hour of Peter's labour exchanges for one hour of Paul's labour. That is Mr. Bray's fundamental axiom.
+
+Let us suppose Peter has twelve hours' labour before him, and Paul only six. Peter will be able to make with Paul an exchange of only six for six. Peter will consequently have six hours' labour left over. What will he do with these six hours' labour?
+
+Either he will do nothing — in which case he will have worked six hours for nothing; or else he will remain idle for another six hours to get even; or else, as a last resource, he will give these six hours' labour, which he has no use for, to Paul into the bargain.
+
+What in the end will Peter have earned more than Paul? Some hours of labour? No! He will have gained only hours of leisure; he will be forced to play the loafer for six hours. And in order that this new right to loaf might be not only relished but sought after in the new society, this society would have to find in idleness its highest bliss, and to look upon labour as a heavy shackle from which it must break free at all costs. And again, to return to our example, if only these hours of leisure that Peter has gained in excess of Paul were really a gain! Not in the least. Paul, beginning by working only six hours, attains by steady and regular work a result that Peter secures only by beginning with an excess of work. Everyone will want to be
+
+
+
+**[p. 143]**
+
+Well, then! What has the exchange of equal quantities of labour brought us? Overproduction, depreciation, excess of labour followed by unemployment; in short, economic relations such as we see in present-day society, minus the competition of labour.
+
+No! We are wrong! There is still an expedient which may save this new society, the society of Peters and Pauls. Peter will consume by himself the product of the six hours' labour which he has left. But since he has no longer to exchange in order to have produced, he has no need to produce in order to exchange; and the whole hypothesis of a society founded on the exchange and division of labour will fall to the ground. Equality of exchange will have been saved by the simple fact that exchange will have ceased to be: Paul and Peter will arrive at the position of Robinson.
+
+Thus, if all the members of society are supposed to be immediate workers, the exchange of equal quantities of hours of labour is possible only on condition that the number of hours to be spent on material production is agreed on beforehand. But such an agree- ment negates individual exchange.
+
+We still come to the same result, if we take as our starting point not the distribution of the products created but the act of production. In large-scale industry, Peter is not free to fix for himself the time of his labour, for Peter's labour is nothing without the co-operation of all the Peters and all the Pauls who make up the workshop. This explains very well the dogged resistance which the English factory owners put up to the Ten Hours Bill. They knew only too well that a two hours' reduction of labour granted to women and children76 would carry with it an equal reduction of working hours for adult men. It is in the nature of large-scale industry that working hours should be equal for all. What is today the result of capital and the competition of workers among themselves will be tomorrow, if you sever the relation between labour and capital, an actual agreement based upon the relation between the sum of productive forces and the sum of existing needs.
+
+But such an agreement is a condemnation of individual exchange, and we are back again at our first conclusion!
+
+In principle, there is no exchange of products—but there is the exchange of the labour which co-operates in produc- tion. The mode of exchange of products depends upon the mode of exchange of the productive forces. In general, the form of ex- change of products corresponds to the form of production. Change the latter, and the former will change in consequence. Thus
+
+
+
+**[p. 144]**
+
+But the honest conscience refuses to see this obvious fact. So long as one is a bourgeois, one cannot but see in this relation of antagonism a relation of harmony and eternal justice, which allows no one to gain at the expense of another. For the bourgeois, individual exchange can exist without any antagonism of classes. For him, these are two quite unconnected things. Individual exchange, as the bourgeois conceives it, is far from resembling individual exchange as it is practised.
+
+Mr. Bray turns the illusion of the respectable bourgeois into an ideal he would like to attain. In a purified individual exchange, freed from all the elements of antagonism he finds in it, he sees an " equalitariari, relation which he would like society to adopt.
+
+Mr. Bray does not see that this equalitarian relation, this corrective ideal that he would like to apply to the world, is itself nothing but the reflection of the actual world; and that therefore it is totally impossible to reconstitute society on the basis of what is merely an embellished shadow of it. In proportion as this shadow takes on substance again, we perceive that this substance, far from being the transfiguration dreamt of, is the actual body of existing society.*
+
+A) Money
+
+Thus gold and silver are the first applications of "value constituted" by M. Proudhon. And as M. Proudhon constitutes the
+
+[^1]: § 3. APPLICATION OF THE LAW OF THE PROPORTIONALITY OF VALUE
+
+[^2]: "Gold and silver were the first commodities to have their value constituted." fl 69]
+
+[^3]: * Mr. Bray's theory, like all theories, has found supporters who have allowed themselves to be deluded by appearances. Equitable-labour-exchange bazaars have been set up in London, Sheffield, Leeds and many other towns in England. These bazaars have all ended in scandalous failures after having absorbed considerable capital. The taste for them has gone for ever. You are warned, M. Proudhon! [Note by Marx. The copy with corrections in Marx's hand has "Nota!" in the margin opposite this note.]
+
+[^4]: It is known that Proudhon did not take this warning to heart. In 1849 he himself made an attempt with a new Exchange Bank in Paris. The bank, however, failed before it had got going properly: a court case against Proudhon had to serve to cover its collapse. F. E. [Note to the German edition, 1885.]
+
+
+
+
+
+**[p. 145]**
+
+value of products determining it by the comparative amount of labour embodied in them, the only thing he had to do was to prove that variations in the value of gold and silver are always explained by variations in the labour time taken to produce them. M. Proudhon has no intention of doing so. He speaks of gold and silver not as commodities, but as money.
+
+His only logic, if logic it be, consists in juggling with the capacity of gold and silver to be used as money for the benefit of all the commodities which have the property of being evaluated by labour time. Decidedly there is more naïveté than malice in this jugglery.
+
+A useful product, being evaluated by the labour time needed to produce it, is always acceptable in exchange. Witness, cries M. Proudhon, gold and silver, which exist in my desired conditions of "exchangeability"! Gold and silver, then, are value which has reached a state of constitution: they are the incorporation of M. Proudhon's idea. He could not have been happier in his choice of an example. Gold and silver, apart from their capacity of being commodities, evaluated like other commodities in labour time, have also the capacity of being the universal agents of exchange, of being money. By now considering gold and silver as an application of "value constituted" by labour time, nothing is easier than to prove that all commodities whose value is constituted by labour time will always be exchangeable, will be money.
+
+A very simple question occurs to M. Proudhon. Why have gold and silver the privilege of typifying "constituted value"?
+
+By formulating the question in these terms, M. Proudhon has already presupposed the existence of money. The first question he should have asked himself was, why, in exchanges as they are actually constituted, it has been necessary to individualise exchangeable value, so to speak, by the creation of a special agent of exchange. Money is not a thing, it is a social relation. Why is the money relation a production relation like any other economic relation, such as the division of labour, etc.? If M. Proudhon had properly taken account of this relation, he would not have seen in money an exception, an element detached from a series unknown or needing reconstruction.
+
+[^1]: "The special function which usage has devolved upon the precious metals, that of serving as a medium for trade, is purely conventional^ and any other commodity could, less conveniently perhaps, but just as authentically, fulfil this function. Economists recognise this, and cite more than one example. What then is the reason for this universal preference for metals as money? And what is the explanation of this specialisation of the functions of silver — which has no analogy in political economy? Is it possible to reconstruct the series from which money seems to have broken away, and hence to trace it back to its true principle?" [I 68, 69]
+
+
+
+
+
+**[p. 146]**
+
+He would have realised, on the contrary, that this relation is a link, and, as such, closely connected with a whole chain of other economic relations; that this relation corresponds to a definite mode of production neither more nor less than does individual exchange. What does he do? He starts off by detaching money from the actual mode of production as a whole, and then makes it the first member of an imaginary series, of a series to be reconstructed.
+
+Once the necessity for a specific agent of exchange, that is, for money, has been recognised, all that remains to be explained is why this particular function has devolved upon gold and silver rather than upon any other commodity. This is a secondary question, which is explained not by the chain of production relations, but by the specific qualities inherent in gold and silver as substances. If all this has made economists for once "go outside the domains of their own science, to dabble in physics, mechanics, history and so on" [I 69], as M. Proudhon reproaches them with doing, they have merely done what they were compelled to do. The question is no longer within the domain of political economy.
+
+"What no economist," says M. Proudhon, "has either seen or understood is the economic reason which has determined, in favour of the precious metals, the favour they enjoy." [I 69]
+
+This economic reason which nobody — with good ground in- deed— has seen or understood, M. Proudhon has seen, understood and bequeathed to posterity.
+
+To say that, of all commodities, gold and silver were the first to have their value constituted, is to say, after all that has gone before, that gold and silver were the first to attain the status of money. This is M. Proudhon's great revelation, this is the truth that none had discovered before him.
+
+If, by these words, M. Proudhon means that of all commodities gold and silver are the ones whose time of production was known the earliest, this would be yet another of the suppositions with which he
+
+[^1]: "What nobody else has noticed is that, of all commodities, gold and silver were the first to have their value attain constitution. In the patriarchal period, gold and silver were still bartered and exchanged in ingots but even then they showed a visible tendency to become dominant and received a marked preference. Little by little the sovereigns took possession of them and affixed their seal to them: and of this sovereign consecration was born money, that is, the commodity par excellence, which, notwithstanding all the shocks of commerce, retains a definite proportional value and makes itself accepted for all payments The distinguishing characteristic of gold and silver is due, I repeat, to the fact that, thanks to their metallic properties, to the difficulties of their production, and above all to the intervention of state authority they early won stability and authenticity as commodities." [I 69, 70]
+
+
+
+
+
+**[p. 147]**
+
+But, after all that, how can M. Proudhon go on talking about the constitution of a value, since a value is never constituted all alone? It is constituted, not by the time needed to produce it all alone, but in relation to the quota of each and every other product which can be created in the same time. Thus the constitution of the value of gold and silver presupposes an already completed constitution of a number of other products.
+
+It is then not the commodity that has attained, in gold and silver, the status of "constituted value", it is M. Proudhon's "constituted value" that has attained, in gold and silver, the status of money.
+
+Let us now make a closer examination of these economic reasons which, according to M. Proudhon, have bestowed upon gold and silver the advantage of being raised to the status of money sooner than other products, thanks to their having passed through the constitutive phase of value.
+
+These economic reasons are: the "visible tendency to become dominant", the "marked preference" even in the "patriarchal period" [I 69], and other circumlocutions about the actual fact — which increase the difficulty, since they multiply the fact by multiplying the incidents which M. Proudhon brings in to explain the fact. M. Proudhon has not yet exhausted all the so-called economic reasons. Here is one of sovereign, irresistible force:
+
+Thus the whim of sovereigns is for M. Proudhon the highest reason in political economy.
+
+Truly, one must be destitute of all historical knowledge not to know that it is the sovereigns who in all ages have been subject to economic conditions, but they have never dictated laws to them. Legislation, whether political or civil, never does more than proclaim, express in words, the will of economic relations.
+
+Was it the sovereign who took possession of gold and silver to make them the universal agents of exchange by affixing his seal to them? Or was it not, rather, these universal agents of exchange which took possession of the sovereign and forced him to affix his seal to them and thus give them a political consecration?
+
+The impress which was and is still given to silver is not that of its
+
+[^1]: "Money is born of sovereign consecration: the sovereigns took possession of gold and silver and affixed their seal to them." fl 69]
+
+
+
+
+
+**[p. 148]**
+
+"The sole intrinsic value of a silver mark," says Voltaire, with his habitual good sense, "is a mark of silver, half a pound weighing eight ounces. The weight and the standard alone form this intrinsic value." (Voltaire, Systeme de Law.3)
+
+But the question: how much is an ounce of gold or silver worth, remains nonetheless. If a cashmere from the Grand Colbert stores bore the trade mark pure wool, this trade mark would not tell you the value of the cashmere. There would still remain the question: how much is wool worth?
+
+"Philip I, King of France," says M. Proudhon, "mixes with Charlemagne's Tours pound a third of alloy, imagining that, having the monopoly of the manufacture of money, he could do what is done by every tradesman who has the monopoly of a product. What was actually this debasement of the currency for which Philip and his successors have been so much blamed? It was perfectly sound reasoning from the point of view of commercial practice, but very unsound economic science, viz., to suppose that, as supply and demand regulate value, it is possible, either by producing an artificial scarcity or by monopolising manufacture, to increase the estimation and consequently the value of things; and that this is true of gold and silver as of corn, wine, oil or tobacco. But Philip's fraud was no sooner suspected than his money was reduced to its true value, and he himself lost what he had thought to gain from his subjects. The same thing has happened as a result of every similar attempt." [I 70-71]
+
+It has been proved times without number that, if a prince takes into his head to debase the currency, it is he who loses. What he gains once at the first issue he loses every time the falsified coinage returns to him in the form of taxes, etc. But Philip and his successors were able to protect themselves more or less against this loss, for, once the debased coinage was put into circulation, they hastened to order a general re-minting of money on the old footing.
+
+And besides, if Philip I had really reasoned like M. Proudhon, he would not have reasoned well "from the commercial point of view". Neither Philip I nor M. Proudhon displays any mercantile genius in imagining that it is possible to alter the value of gold as well as that of every other commodity merely because their value is determined by the relation between supply and demand.
+
+If King Philip had decreed that one muid of wheat was in future to be called two muids of wheat, he would have been a swindler. He would have deceived all the rentiers, all the people who were entitled to receive a hundred muids of wheat. He would have been the cause
+
+[^1]: a Voltaire, Histoire du parlement, chapitre LX "Finances et système de Law pendant la régence."—Ed.
+
+
+
+
+
+**[p. 149]**
+
+But, for all that, the question of value determined by the quantity of labour has not been advanced a step. It still remains to be decided whether the value of these two marks (which have become what one mark was once) is determined by the cost of production or by the law of supply and demand.
+
+M. Proudhon continues:
+
+If this opinion, which M. Proudhon shares with the other economists, is valid, it argues in favour of the latter's doctrine of supply and demand, and in no way in favour of M. Proudhon's proportionality. For, whatever the quantity of labour embodied in the doubled bulk of gold and silver, its value would have dropped by half, the demand having remained the same and the supply having doubled. Or can it be, by any chance, that the "law of proportionality"
+
+[^1]: "It should even be borne in mind that if, instead of debasing the currency, it had been in the king's power to double its bulk, the exchange value of gold and silver would immediately have dropped by half, always for reasons of proportion and equilibrium." [I 71]
+
+
+
+
+
+**[p. 150]**
+
+To make "every commodity acceptable in exchange, if not in fact then at least in law," on the basis of the role of gold and silver is, then, to misunderstand this role. Gold and silver are acceptable in law only because they are acceptable in fact; and they are acceptable in fact because the present organisation of production needs a universal agent of exchange. Law is only the official recognition of fact.
+
+We have seen that the example of silver as an application of value which has attained constitution was chosen by M. Proudhon only to smuggle through his whole doctrine of exchangeability, that is to say, to prove that every commodity assessed by its cost of production must attain the status of money. All this would be very fine, were it not for the awkward fact that precisely gold and silver, as money, are of all commodities the only ones not determined by their cost of production; and this is so true that in circulation they can be replaced by paper. So long as there is a certain proportion observed between the requirements of circulation and the amount of money issued, be it paper, gold, platinum or copper money, there can be no question of a proportion to be observed between the intrinsic value (cost of production) and the nominal value of money. Doubtless, in international trade, money is determined, like any other commodity, by labour time. But it is also true that gold and silver in international trade are means of exchange as products and not as money. In other words, they lose this characteristic of "stability and authenticity", of "sovereign consecration", which, for M. Proudhon, forms their specific characteristic. Ricardo understood this truth so well that after basing his whole system on value determined by labour time, and after saying: "Gold and silver, like all other commodities, are valuable only in proportion to the quantity of labour necessary to produce them, and bring them to market", he adds, nevertheless, that the value of money is not determined by the labour time its substance embodies, but by the law of supply and demand only.
+
+[^1]: "Though it" (paper money) "has no intrinsic value, yet, by limiting its quantity, its value in exchange is as great as an equal denomination of coin, or of bullion in that coin. On the same principle, too, namely, by a limitation of its quantity, a debased coin would circulate at the value it should bear, if it were of the legal weight and fineness, and not at the value of the quantity of metal which it actually contained. In the history of the British coinage, we find, accordingly, that the currency was never depreciated
+
+
+
+
+
+**[p. 151]**
+
+This is what J. B. Say observes on this passage of Ricardo's:
+
+"This example should suffice, I think, to convince the author that the basis of all value is not the amount of labour needed to make a commodity, but the need felt for that commodity, balanced by its scarcity,"3
+
+Thus money, which for Ricardo is no longer a value determined bv labour time, and which J. B. Say therefore takes as an example to convince Ricardo that the other values could not be determined by labour time either, this money, I say, taken by J. B. Say as an example of a value determined exclusively by supply and demand, becomes for M. Proudhon the example par excellence of the application of value constituted by labour time.
+
+To conclude, if money is not a "value constituted" by labour time, it is all the less likely that it could have anything in common with M. Proudhon's correct "proportion". Gold and silver are always exchangeable, because they have the special function of serving as the universal agent of exchange, and in no wise because they exist in a quantity proportional to the sum total of wealth; or, to put it still better, they are always proportional because, alone of all com- modities, they serve as money, the universal agent of exchange, whatever their quantity in relation to the sum total of wealth.
+
+"What an imbroglio political economy is!" cries M. Proudhon. [I 72]
+
+The idea of making sheep and vines attain the status of money is not new. In France, it belongs to the age of Louis XIV. At that period, money having begun to establish its omnipotence, the depreciation of all other commodities was being complained of, and the time when "every commercial value" might attain its strict and exact determination, the status of money, was being eagerly invoked. Even in the writings of Boisguillebert, one of the oldest of French economists, we find:
+
+[^1]: "A circulation can never be so abundant as to overflow; for by diminishing its value in the same proportion you will increase its quantity, and by increasing its value, diminish its quantity." (Ricardo [II 205; Eng. ed., p. 422 ].)
+
+[^2]: "'Cursed gold!' cries a Communist flippantly" (through the mouth of M Proudhon). "You might as well say: Cursed wheat, cursed vines, cursed sheep!—for just like gold and silver, every commercial value must attain its strict and exact determination." [I 73]
+
+[^3]: a Say's note to the French edition of Ricardo's book, tome II, p. 207.— Ed.
+
+
+
+
+
+**[p. 152]**
+
+One sees that the first illusions of the bourgeoisie are also their last.
+
+B) Surplus Left by Labour
+
+"In works on political economy we read this absurd hypothesis: If the price of everything were doubled As if the price of everything were not the proportion of things—and one could double a proportion, a relation, a law!" (Proudhon, tome I, p. 81.)
+
+Economists have fallen into this error through not knowing how to apply the "law of proportionality" and "constituted value".
+
+Unfortunately in the very same work by M. Proudhon, tome I, p. 110, we read the absurd hypothesis that, "if wages rose generally, the price of everything would rise". Furthermore, if we find the phrase in question in works on political economy, we also find an explanation of it.
+
+"When one speaks of the price of all commodities going up or down, one always excludes some one commodity. The excluded commodity is, in general, money or labour." (Encyclopaedia Metropolitana, or Universal Dictionary of Knowledge, Vol. VI, Article Political Economy, by Senior, London, 1836. Regarding the phrase under discussion, see also J. St. Mill: Essays on Some Unsettled Questions of Political Economy, London, 1844, and Tooke: A History of Prices, etc., London, 1838.)
+
+Let us pass now to the second applicationoî "constituted value", and of other proportions—whose only defect is their lack of proportion. And let us see whether M. Proudhon is happier here than in the
+
+monétisation of sheep.
+
+To prove that all labour must leave a surplus, M. Proudhon personifies society; he turns it into a person-society—a society which is not by any means a society of persons, since it has its laws apart, which have nothing in common with the persons of which society is composed, and its "own intelligence", which is not the intelligence of
+
+[^1]: "An axiom generally admitted by economists is that all labour must leave a surplus. In my opinion this proposition is universally and absolutely true: it is the corollary of the law of proportion, which may be regarded as the summary of the whole of economic science. But, if the economists will permit me to say so, the principle that all labour must leave a surplus is meaningless according to their theory, and is not susceptible of any demonstration." (Proudhon [I 73].)
+
+[^2]: P. Boisguillebert, Dissertation sur la nature des richesses— Ed.
+
+
+
+
+
+**[p. 153]**
+
+"The moral entity—the grammatical being3 called a nation, has been clothed in attributes that have no real existence except in the imagination of those who metamorphose a word into a thing This has given rise to many difficulties and to some deplorable misunderstandings in political economy." (Th. Cooper, Lectures on the Elements of Political Economy, Columbia, 1826. )
+
+"This principle of the surplus left by labour," continues M. Proudhon, "is true of individuals only because it emanates from society, which thus confers on them the benefit of its own laws." [I 75]
+
+Does M. Proudhon thereby mean merely that the production of the social individual exceeds that of the isolated individual? Is M. Proudhon referring to this surplus of the production of associated individuals over that of non-associated individuals? If so, we could quote for him a hundred economists who have expressed this simple truth without any of the mysticism with which M. Proudhon surrounds himself. This, for example, is what Mr. Sadler says:
+
+"Combined labour produces results which individual exertion could never accomplish. As mankind, therefore, multiply in number, the products of their united industry would greatly exceed the amount of any mere arithmetical addition calculated on such an increase In the mechanical arts, as well as in pursuits of science, a man may achieve more in a day than a solitary individual could perform in his whole life Geometry says that the whole is only equal to the sum of all its parts; as applied to the subject before us, this axiom would be false. Regarding labour, the great pillar of human existenceb, it may be said that the entire product of combined exertion almost infinitely exceeds all which individual and disconnected efforts could possibly accomplish." (T. Sadler, The Law of Population, London, 1830 [pp. 83, 84].)
+
+To return to M. Proudhon. The surplus left by labour, he says, is explained by the person-society. The life of this person is guided by laws which are the opposite of those which govern the activities of man as an individual. He desires to prove this by "facts".
+
+[^1]: "The discovery of an economic process can never provide the inventor with a profit equal to that which he procures for society It has been remarked that railway enterprises are much less a source of wealth for the contractors than for the state The average cost of transporting commodities by road is 18 centimes per ton per kilometre, from the collection of the goods to their delivery. It has been calculated that
+
+[^2]: a In the original both terms are given in English in parentheses after the French.— Ed.
+
+[^3]: b In the original the words "the great pillar of human existence" are given in English in parentheses after the French.—Ed.
+
+
+
+
+
+**[p. 154]**
+
+We may even overlook the fact that M. Proudhon expresses a quadrupled speed as 400 per cent of the original speed; but that he should bring into relation the percentage of speed and the percentage of profit and establish a proportion between two relations which, although measured separately by percentages, are nevertheless incommensurable with each other, is to establish a proportion between the percentages without reference to denomina- tions.
+
+Percentages are always percentages, 10 per cent and 400 per cent are commensurable; they are to each other as 10 is to 400. Therefore, concludes M. Proudhon, a profit of 10 per cent is worth forty times less than a quadrupled speed. To save appearances, he says that, for society, time is money.3 This error arises from his recollecting vaguely that there is a connection between value and labour time, and he hastens to identify labour time with transport time; that is, he identifies the few firemen, guards and conductors, whose labour time is actually transport time, with the whole of society. Thus at one blow, speed has become capital, and in this case he is en- tirely right in saying: "A profit of 400 per cent will be sacrificed to a loss of 35 per cent." After establishing this strange proposition as a mathematician, he gives us the explanation of it as an economist.
+
+"A social profit equal to 400 represents for the individual, if society is composed only of a million men, four ten-thousandths."
+
+[^1]: In the original the words "time is money" are given in English in parentheses after the French.— Ed.
+
+
+
+
+
+**[p. 155]**
+
+"A loss of 33 per cent for the consumer would suppose a social deficit of 33 million." A loss of 33 per cent for the consumer remains a loss of 33 per cent for a million consumers. How then can M. Proudhon say pertinently that the social deficit in the case of a 33 per cent loss amounts to 33 million, when he knows neither the social capital nor even the capital of a single one of the persons concerned? Thus it was not enough for M. Proudhon to have confused capital with percentage; he surpasses himself by identifying the capital sunk in an enterprise with the number of interested parties.
+
+"To bring the matter home still more pointedly let us suppose in fact" a given capital. A social profit of 400 per cent divided among a million participants, each of them interested to the extent of one franc, would give 4 francs profit per head—and not 0.0004, as M. Proudhon alleges. Likewise a loss of 33 per cent for each of the participants represents a social deficit of 330,000 francs and not of 33 million (100:33=1,000,000:330,000).
+
+M. Proudhon, preoccupied with his theory of the person-society, forgets to divide by 100 and gets a loss of 330,000 francs; but 4 francs profit per head makes 4 million francs profit for society. There remains for society a net profit of 3.670,000 francs. This accurate calculation proves precisely the contrary of that which M. Proudhon wanted to prove: namely, that the profits and losses of society are not in inverse ratio to the profits and losses of individuals.
+
+Having rectified these simple errors of pure calculation let us take a look at the consequences which we would arrive at, if we admitted this relation between speed and capital in the case of railways, as M. Proudhon gives it—minus the mistakes in calculation. Let us suppose that a transport four times as rapid costs four times as much; this transport would not yield less profit than cartage, which is four times slower and costs a quarter of the amount. Thus, if cartage takes 18 centimes, rail transport could take 72 centimes. This would be, according to "the rigour of mathematics", the consequence of M. Proudhon's suppositions—always minus his mistakes in calculation. But here he is all of a sudden telling us that if, instead of 72 centimes, rail transport takes only 25, it would instantly lose all its consign- ments. Decidedly we should have to go back to the van, to the
+
+
+
+**[p. 156]**
+
+"I have already shown in Chapter II, by the solution of the antinomy of value, that the advantage of every useful discovery is incomparably less for the inventor, whatever he may do, than for society. I have carried the demonstration in regard to this point to the rigour of mathematicsl" [I 241]
+
+Let us return to the fiction of the person-society, a fiction which has no other aim than that of proving this simple truth—that a new invention which enables a given amount of labour to produce a greater number of commodities, lowers the marketable value of the product. Society, then, makes a profit, not by obtaining more exchange values, but by obtaining more commodities for the same value. As for the inventor, competition makes his profit fall successively to the general level of profits. Has M. Proudhon proved this proposition as he wanted to? No. This does not prevent him from reproaching the economists with failure to prove it. To prove to him on the contrary that they have proved it, we shall cite only
+
+Ricardo and Lauderdale—Ricardo, the head of the school which determines value by labour time, and Lauderdale, one of the most uncompromising defenders of the determination of value by supply and demand. Both have expounded the same proposition:
+
+Lauderdale, in his turn, says:
+
+[^1]: "By constantly increasing the facility of production, we constantly diminish the value of some of the commodities before produced, though by the same means we not only add to the national riches, but also to the power of future production As soon as by the aid of machinery, or by the knowledge of natural philosophy, you oblige natural agents to do the work which was before done by man, the exchangeable value of such work falls accordingly. If ten men turned a corn mill, and it be discovered that by the assistance of wind, or of water, the labour of these ten men may be spared, the flour which is the produce partly of the work performed by the mill, would immediately fall in value, in proportion to the quantity of labour saved; and the society would be richer by the commodities which the labour of the ten men could produce, the funds destined for their maintenance being in no degree impaired." (Ricardo [II 59, 82; Eng. ed., pp. 321-22, 336].)
+
+[^2]: "In every instance where capital is so employed as to produce a profit, it uniformly arises, either—from its supplanting a portion of labour, which would otherwise be performed by the hand of man; or—from its performing a portion of labour, which is beyond the reach of the personal exertion of man to accomplish The small profit which the proprietors of machinery generally acquire, when compared with the wages of labour, which the machine supplants, may perhaps create a suspicion of the
+
+
+
+
+
+**[p. 157]**
+
+Finally, then, so long as the profit is greater than in other industries, capital will be thrown into the new industry until the rate of profit falls to the general level.
+
+We have just seen that the example of the railway was scarcely suited to throw any light on the fiction of the person-society. Nevertheless, M. Proudhon boldly resumes his discourse:
+
+What now follows belongs to classical antiquity. It is a poetical narrative intended to refresh the reader after the fatigue which the rigour of the preceding mathematical demonstrations must have caused him. M. Proudhon gives his person-society the name of Prometheus, whose high deeds he glorifies in these terms:
+
+This Prometheus of M. Proudhon's is a queer character, as weak in logic as in political economy. So long as Prometheus merely teaches
+
+[^1]: "With these points cleared up, nothing is easier than to explain how labour must leave a surplus for each producer." [I 77]
+
+[^2]: "First of all, Prometheus emerging from the bosom of nature awakes to life, in a delightful inertia," etc., etc. "Prometheus sets to work, and on this first day, die first day of the second creation, Prometheus' product, i. e., his wealth, his well-being, is equal to ten. On the second day, Prometheus divides his labour, and his product becomes equal to a hundred. On the third day and on each of the following days, Prometheus invents machines, discovers new utilities in bodies, new forces in nature With every step of his industrial activity, there is an increase in the number of his products, which marks an enhancement of happiness for him. And since, after all, to consume is for him to produce, it is clear that every day's consumption, using up only the product of the day before, leaves a surplus product for the next day." [I 77, 78]
+
+
+
+
+
+**[p. 158]**
+
+"I have proved by theory and by facts the principle that all labour must leave a surplus." [I 79]
+
+The "facts" are the famous progressive calculation; the theory is the myth of Prometheus.
+
+In 1770 the population of the United Kingdom of Great Britain was 15 million, and the productive population was 3 million. The scientific power of production equalled a population of about 12 million individuals more. Therefore there were, altogether, 15 million of productive forces. Thus the productive power was to the population as 1 is to 1 ; and the scientific power was to the manual power as 4 is to 1.
+
+In 1840 the population did not exceed 30 million: the productive population was 6 million. But the scientific power amounted to 650 million; that is, it was to the whole population as 21 is to 1, and to manual power as 108 is to 1.
+
+[^1]: "But," continues M. Proudhon, "this principle, while being as certain as an arithmetical proposition, is as yet far from being realised by everyone. Whereas, with the progress of collective industry, every day's individual labour produces a greater and greater product, and whereas therefore, by a necessary consequence, the worker with the same wagea ought to become richer every day, there actuallv exist estates in society which profit and others which decay." fl 79-80]
+
+[^2]: d In the copy with corrections in Marx's hand the words "with the same wage" are underscored and the word "Nota" is written in the margin.— Ed.
+
+
+
+
+
+**[p. 159]**
+
+What then, ultimately, is this Prometheus resuscitated by M. Proudhon? It is society, social relations based on class antagonism. These relations are not relations between individual and individual, but between worker and capitalist, between farmer and landlord, etc. Wipe out these relations and you annihilate all society, and your Prometheus is nothing but a ghost without arms or legs; that is, without automatic workshops, without division of labour—in a word, without everything that you gave him to start with in order to make him obtain this surplus left by labour.
+
+If then, in theory, it sufficed to interpret, as M. Proudhon does, the formula of the surplus left by labour in the equalitarian sense, without taking into account the actual conditions of production, it should suffice, in practice, to share out equally among the workers all the wealth at present acquired, without changing in any way the present conditions of production. Such a distribution would certainly not assure a high degree of comfort to the individual participants.
+
+But M. Proudhon is not so pessimistic as one might think. As proportionality is everything for him, he has to see in his fully equipped Prometheus, that is, in present-day society, the beginnings of a realisation of his favourite idea.
+
+What is, actually, collective wealth, public fortune? It is the wealth of the bourgeoisie—not that of each bourgeois in particular. Well, the economists have done nothing but show how, in the existing
+
+[^1]: "But everywhere, too, the progress of wealth, that is, the proportion of values, is the dominant law; and when economists hold up against the complaints of the social party the progressive growth of the public wealth, and the improved conditions of even the most unfortunate classes, they unwittingly proclaim a truth which is the condemnation of their theories." [I 80]
+
+
+
+
+
+**[p. 160]**
+
+As for the temporary participation in the increase of public wealth, that is a different matter. The fact of temporary participation is explained by the theory of the economists. It is the confirmation of this theory and not its "condemnation", as M. Proudhon calls it. If there were anything to be condemned, it would surely be the system of M. Proudhon, who would reduce the worker, as we have shown, to the minimum wage, in spite of the increase in wealth. It is only by reducing the worker to the minimum wage that he would be able to apply the correct proportion of values, of "value constituted" by labour time. It is because wages, as a result of competition, oscillate now above, now below, the price of food necessary for the sustenance of the worker, that he can participate to a certain extent in the development of collective wealth, and can also perish from want. This is the whole theory of the economists who have no illusions on the subject.
+
+After his lengthy digressions on railways, on Prometheus, and on the new society to be reconstituted on "constituted value", M. Proudhon collects himself; emotion overpowers him and he cries in fatherly tones:
+
+[^1]: "I beseech the economists to question themselves for one moment, in the silence of their hearts—far from the prejudices that trouble them and regardless of the employment they are engaged in or hope to obtain, of the interests they subserve, or the approbation to which they aspire, of the honours which nurse their vanity—let them say whether before this day the principle that all labour must leave a surplus appeared to them with this chain of premises and consequences that we have revealed." [I 80]
+
+
+
+CHAPTER II
+
+THE METAPHYSICS OF POLITICAL ECONOMY
+
+§1. THE METHOD
+
+Here we are, in the heart of Germany. We shall now have to talk metaphysics while talking political economy. And in this again we shall but follow M. Proudhon's "contradictions". Just now he forced us to speak English, to become pretty well English ourselves. Now the scene is changing. M. Proudhon is transporting us to our dear fatherland and is forcing us, whether we like it or not, to become German again.
+
+If the Englishman transforms men into hats, the German transforms hats into ideas. The Englishman is Ricardo, a rich banker and distinguished economist; the German is Hegel, an ordinary professor of philosophy at the University of Berlin.
+
+Louis XV, the last absolute monarch and representative of the decadence of French royalty, had attached to his person a physician who was himself France's first economist. This physician, this economist, represented the imminent and certain triumph of the French bourgeoisie. Doctor Quesnay made a science out of political economy; he summarised it in his famous Tableau économique. Besides the thousand and one commentaries on this table which have appeared, we possess one by the doctor himself. It is the "Analyse du
+
+Tableau économique", followed by "seven observations importantes".
+
+M. Proudhon is another Dr. Quesnay. He is the Quesnay of the metaphysics of political economy.
+
+Now metaphysics—indeed all philosophy—can be summed up, according to Hegel, in method. We must, therefore, try to elucidate the method of M. Proudhon, which is at least as obscure as Tableau économique. It is for this reason that we are making seven more or less important observations. If Dr. Proudhon is not pleased with our
+
+
+
+**[p. 162]**
+
+and give the "explanation of the economico-metaphysical method" himself.
+
+First Observation
+
+"We are not giving a history according to the order in time, but according to the sequence of ideas. Economic phases or categories are in their manifestation sometimes contempor- ary, sometimes inverted Economic theories have nonetheless their logical sequence and their serial relation in the understanding: it is this order that we flatter ourselves to have discovered." (Proudhon, tome I, pp. 145 and 146.)
+
+M. Proudhon most certainly wanted to frighten the French by flinging quasi-Hegelian phrases at them. So we have to deal with two men: first with M. Proudhon, and then with Hegel. How does M. Proudhon distinguish himself from other economists? And what part does Hegel play in M. Proudhon's political economy?
+
+Economists express the relations of bourgeois production, the division of labour, credit, money, etc., as fixed, immutable, eternal categories. M. Proudhon, who has these ready-made categories before him, wants to explain to us the act of formation, the genesis of these categories, principles, laws, ideas, thoughts.
+
+Economists explain how production takes place in the above- mentioned relations, but what they do not explain is how these relations themselves are produced, that is, the historical movement which gave them birth. M. Proudhon, taking these relations for principles, categories, abstract thoughts, has merely to put into order these thoughts, which are to be found alphabetically arranged at the end of every treatise on political economy. The economists' material is the active, energetic life of man; M. Proudhon's material is the dogmas of the economists. But the moment we cease to pursue the historical movement of production relations, of which the categories are but the theoretical expression, the moment we want to see in these categories no more than ideas, spontaneous thoughts, indepen- dent of real relations, we are forced to attribute the origin of these thoughts to the movement of pure reason. How does pure, eternal, impersonal reason give rise to these thoughts? How does it proceed in order to produce them?
+
+If we had M. Proudhon's intrepidity in the matter of Hegelianism we should say: it is distinguished in itself from itself. What does this mean? Impersonal reason, having outside itself neither a base on which it can pose itself, nor an object to which it can oppose itself,
+
+[^1]: a An allusion to the book: N. Baudeau, Explication du Tableau économique.— Ed.
+
+
+
+
+
+**[p. 163]**
+
+Is it surprising that everything, in the final abstraction—for we have here an abstraction, and not an analysis—presents itself as a logical category? Is it surprising that, if you let drop little by little all that constitutes the individuality of a house, leaving out first of all the materials of which it is composed, then the form that distinguishes it, vou end up with nothing but a body; that, if you leave out of account the limits of this body, you soon have nothing but a space—that if, finally, you leave out of account the dimensions of this space, there is absolutely nothing left but pure quantity, the logical category? If we abstract thus from every subject all the alleged accidents, animate or inanimate, men or things, we are right in saying that in the final abstraction, the only substance left is the logical categories. Thus the metaphysicians who, in making these abstractions, think they are making analyses, and who, the more they detach themselves from things, imagine themselves to be getting all the nearer to the point of penetrating to their core—these metaphysicians in turn are right in saying that things here below are embroideries of which the logical categories constitute the canvas. This is what distinguishes the philosopher from the Christian. The Christian, in spite of logic, has only one incarnation of the Logos; with the philosopher there is no end to incarnations. If all that exists, all that lives on land and under water can be reduced by abstraction to a logical category— if the whole real world can be drowned thus in a world of abstrac- tions, in the world of logical categories—who need be astonished at it?
+
+All that exists, all that lives on land and under water, exists and lives only by some kind of movement. Thus the movement of history produces social relations; industrial movement gives us industrial products, etc.
+
+Just as by dint of abstraction we have transformed everything into a logical category, so one has only to make an abstraction of every characteristic distinctive of different movements to attain movement
+
+[^1]: 7—1826
+
+
+
+
+
+**[p. 164]**
+
+It is of this absolute method that Hegel speaks in these terms:
+
+"Method is the absolute, unique, supreme, infinite force, which no object can resist; it is the tendency of reason to find itself again, to recognise itself in every object."80 (Logic,3 Vol. III.)
+
+All things being reduced to a logical category, and every movement, every act of production, to method, it follows naturally that every aggregate of products and production, of objects and of movement, can be reduced to applied metaphysics. What Hegel has done for religion, law, etc., M. Proudhon seeks to do for political economy.
+
+So what is this absolute method? The abstraction of movement. What is the abstraction of movement? Movement in abstract condition. What is movement in abstract condition? The purely logical formula of movement or the movement of pure reason. Wherein does the movement of pure reason consist? In posing itself, opposing itself, composing itself; in formulation itself as thesis, antithesis, synthesis; or, yet again, in affirming itself, negating itself and negating its negation.
+
+How does reason manage to affirm itself, to pose itself as a definite category? That is the business of reason itself and of its apologists.
+
+But once it has managed to pose itself as a thesis, this thesis, this thought, opposed to itself, splits up into two contradictory thoughts—the positive and the negative, the yes and the no. The struggle between these two antagonistic elements comprised in the antithesis constitutes the dialectic movement. The yes becoming no, the no becoming yes, the yes becoming both yes and no, the no becoming both no and yes, the contraries balance, neutralise, paralyse each other. The fusion of these two contradictory thoughts constitutes a new thought, which is the synthesis of them. This thought splits up once again into two contradictory thoughts, which in turn fuse into a new synthesis. Of this travail is born a group of thoughts. This group of thoughts follows the same dialectic movement as the simple category, and has a contradictory group as antithesis. Of these two groups of thoughts is born a new group of thoughts, which is the synthesis of them.
+
+[^1]: a G. W. F. Hegel, Wissenschaft der Logik.— Ed.
+
+
+
+
+
+**[p. 165]**
+
+Apply this method to the categories of political economy, and you have the logic and metaphysics of political economy, or, in other words, you have the economic categories that everybody knows translated into a little-known language which makes them look as if they had newly blossomed forth in an intellect of pure reason; so much do these categories seem to engender one another, to be linked up and intertwined with one another by the very working of the dialectic movement. The reader must not get alarmed at these metaphysics with all their scaffolding of categories, groups, series and systems. M. Proudhon, in spite of all the trouble he has taken to scale the heights of the system of contradictions, has never been able to raise himself above the first two rungs of simple thesis and antithesis; and even these he has mounted only twice, and on one of these two occasions he fell over backwards.
+
+Up to now we have expounded only the dialectics of Hegel. We shall see later how M. Proudhon has succeeded in reducing it to the meanest proportions. Thus, for Hegel, all that has happened and is still happening is only just what is happening in his own mind. Thus the philosophy of history is nothing but the history of philosophy, of his own philosophy. There is no longer a "history according to the order in time", there is only "the sequence of ideas in the understanding". He thinks he is constructing the world by the movement of thought, whereas he is merely reconstructing systemat- ically and classifying by the absolute method the thoughts which are in the minds of all.
+
+Second Observation
+
+Economic categories are only the theoretical expressions, the abstractions of the social relations of production. M. Proudhon, holding things upside down like a true philosopher, sees in actual relations nothing but the incarnation of these principles, of these categories, which were slumbering—so M. Proudhon the phi- losopher tells us—in the bosom of the "impersonal reason of hu- manity".
+
+M. Proudhon the economist understands very well that men make cloth, linen or silk materials in definite relations of production. But what he has not understood is that these definite social relations are
+
+
+
+**[p. 166]**
+
+The same men who establish their social relations in conformity with their material productivity, produce also principles, ideas and categories, in conformity with their social relations.
+
+Thus these ideas, these categories, are as little eternal as the relations they express. They are historical and transitory products.
+
+There is a continual movement of growth in productive forces, of destruction in social relations, of formation in ideas; the only immutable thing is the abstraction of movement—mors immortalisa
+
+Third Observation
+
+The production relations of every society form a whole. M. Proudhon considers economic relations as so many social phases, engendering one another, resulting one from the other like the antithesis from the thesis, and realising in their logical sequence the impersonal reason of humanity.
+
+The only drawback to this method is that when he comes to examine a single one of these phases, M. Proudhon cannot explain it without having recourse to all the other relations of society; which relations, however, he has not yet made his dialectic movement engender. When, after that, M. Proudhon, by means of pure reason, proceeds to give birth to these other phases, he treats them as if they were newborn babes. He forgets that they are of the same age as the first.
+
+Thus, to arrive at the constitution of value, which for him is the basis of all economic evolutions, he could not do without division of labour, competition, etc. Yet in the series, in the understanding of M. Proudhon, in the logical sequence, these relations did not yet exist.
+
+In constructing the edifice of an ideological system by means of the categories of political economy, the limbs of the social system are
+
+[^1]: a These words are from Lucretius' poem On the Nature of Things, Book III, line 882 ("mortalem vitam mors immortalis ademit" — "mortal life has been usurped by death the immortal").— Ed.
+
+
+
+
+
+**[p. 167]**
+
+Fourth Observation
+
+Let us see now to what modifications M. Proudhon subjects Hegel's dialectics when he applies it to political economy.
+
+For him, M. Proudhon, every economic category has two sides—one good, the other bad. He looks upon these categories as the petty bourgeois looks upon the great men of history: Napoleon was a great man; he did a lot of good; he also did a lot of harm.
+
+The good side and the bad side, the advantages and the drawbacks, taken together form for M. Proudhon the contradiction in every economic category.
+
+The problem to be solved: to keep the good side, while eliminating the bad.
+
+Slavery is an economic category like any other. Thus it also has its two sides. Let us leave alone the bad side and talk about the good side of slavery. Needless to say we are dealing only with direct slavery, with Negro slavery in Surinam, in Brazil, in the Southern States of North America.
+
+Direct slavery is just as much the pivot of bourgeois industry as machinery, credits, etc. Without slavery you have no cotton; without cotton you have no modern industry. It is slavery that gave the colonies their value; it is the colonies that created world trade, and it is world trade that is the precondition of large-scale industry. Thus slavery is an economic category of the greatest importance.
+
+Without slavery North America, the most progressive of countries, would be transformed into a patriarchal country. Wipe North America off the map of the world, and you will have anarchy—the complete decay of modern commerce and civilisation. Cause slavery to disappear and you will have wiped America off the map of nations.*
+
+[^1]: * This was perfectly correct for the year 1847. At that time the world trade of the United States was limited mainly to import of immigrants and industrial products, and export of cotton and tobacco, i.e., of the products of southern slave labour. The Northern States produced mainly corn and meat for the slave States. It was only when the North produced corn and meat for export and also became an industrial country, and when the American cotton monopoly had to face powerful competition, in In-
+
+
+
+
+
+**[p. 168]**
+
+What would M. Proudhon do to save slavery? He would formulate the problem thus: preserve the good side of this economic category, eliminate the bad.
+
+Hegel has no problems to formulate. He has only dialectics. M. Proudhon has nothing of Hegel's dialectics but the language. For him the dialectic movement is the dogmatic distinction between good and bad.
+
+Let us for a moment consider M. Proudhon himself as a category. Let us examine his good and his bad side, his advantages and his drawbacks.
+
+If he has the advantage over Hegel of setting problems which he reserves the right of solving for the greater good of humanity, he has the drawback of being stricken with sterility when it is a question of engendering a new category by dialectical birth-throes. What constitutes dialectical movement is the coexistence of two contradic- tory sides, their conflict and their fusion into a new category. The very setting of the problem of eliminating the bad side cuts short the dialectical movement. It is not the category which is posed and opposed to itself, by its contradictory nature, it is M. Proudhon who gets excited, perplexed and frets and fumes between the two sides of the category.
+
+Caught thus in a blind alley, from which it is difficult to escape by legal means, M. Proudhon takes a real flying leap which transports him at one bound into a new category. Then it is that to his astonished gaze is revealed the serial relation in the understanding.
+
+He takes the first category that comes handy and attributes to it arbitrarily the quality of supplying a remedy for the drawbacks of the category to be purified. Thus, if we are to believe M. Proudhon, taxes remedy the drawbacks of monopoly; the balance of trade, the drawbacks of taxes; landed property, the drawbacks of credit.
+
+By taking the economic categories thus successively, one by one, and making one the antidote to the other, M. Proudhon manages to make with this mixture of contradictions and antidotes to contradic- tions, two volumes of contradictions, which he rightly entitles: Le Système des contradictions économiques.
+
+[^1]: dia, Egypt, Brazil, etc., that the abolition of slavery became possible. And even then this led to the ruin of the South, which did not succeed in replacing the open Negro slavery by the disguised slavery of Indian and Chinese coolies, F. E. [Note to the German edition, 1885.]
+
+
+
+
+
+**[p. 169]**
+
+"In the absolute reason all these ideas are equally simple, and general In fact, we attain knowledge only by a sort of scaffolding of our ideas. But truth in itself is independent of these dialectical symbols and free from the combinations of our minds." (Proudhon, tome II, p. 97.)
+
+Here all of a sudden, by a kind of switch-over of which we now know the secret, the metaphysics of political economy has become an illusion. Never has M. Proudhon spoken more truly. Indeed, from the moment the process of the dialectic movement is reduced to the simple process of opposing good to bad, of posing problems tending to eliminate the bad, and of administering one category as an antidote to another, the categories are deprived of all spontaneity; the idea "no longer functions"; there is no life left in it. It is no longer posed or decomposed into categories. The sequence of categories has become a sort of scaffolding. Dialectics has ceased to be the movement of absolute reason. There is no longer any dialectics but only, at the most, absolutely pure morality.
+
+When M. Proudhon spoke of the serial relation in the understanding, of the logical sequence of categories, he declared positively that he did not want to give history according to the order in time, that is, in M. Proudhon's view, the historical sequence in which the categories have manifested themselves. Thus for him everything happened in the pure ether of reason. Everything was to be derived from this ether by means of dialectics. Now that he has to put this dialectics into practice, his reason is in default. M. Proudhon's dialectics runs counter to Hegel's dialectics, and now we have M. Proudhon reduced to saying that the order in which he gives the economic categories is no longer the order in which they engender one another. Economic evolutions are no longer the evolutions of reason itself.
+
+What then does M. Proudhon give us? Real history, which is, according to M. Proudhon's understanding, the sequence in which the categories have manifested themselves in order of time? No! His- tory as it takes place in the idea itself? Still less! That is, neither the profane history of the categories, nor their sacred history! What his- tory does he give us then? The history of his own contradictions. Let us see how they go, and how they drag M. Proudhon in their train.
+
+Before entering upon this examination, which gives rise to the sixth important observation, we have yet another, less important observation to make.
+
+Let us admit with M. Proudhon that real history, history according to the order in time, is the historical sequence in which ideas categories and principles have manifested themselves.
+
+
+
+**[p. 170]**
+
+M. Proudhon has not even gone far enough along the sideroad which an ideologist takes to reach the main road of history.
+
+Sixth Observation
+
+Let us take the sideroad with M. Proudhon. We shall concede that economic relations, viewed as immutable laws, eternal principles, ideal categories, existed before active and energetic men did; we shall concede further that these laws, principles and categories had, since the beginning of time, slum- bered "in the impersonal reason of humanity". We have already seen that, with all these changeless and motionless eternities, there is no history left; there is at most history in the idea, that is, history reflected in the dialectic movement of pure reason. M. Proudhon, by saying that, in the dialectic movement, ideas are no longer "differentiated', has done away with both the shadow of movement and the movement of shadows, by means of which one could still have created at least a semblance of history. Instead of that, he imputes to history his own impotence. He lays the blame on everything, even the French language.
+
+
+
+**[p. 171]**
+
+So great is the productive force of the contradictions which function and which make M. Proudhon function, that, in trying to explain history, he is forced to deny it; in trying to explain the successive appearance of social relations, he denies that anything can appear: in trying to explain production, with all its phases, he questions whether anything can be produced]
+
+Thus, for M. Proudhon, there is no longer any history: no longer any sequence of ideas. And yet his book still exists; and it is precisely that book which is, to use his own expression, "history according to the sequence of ideas". How shall we find a formula, for M. Proudhon is a man of formulas, to help him to clear all these contradictions in one leap?
+
+To this end he has invented a new reason, which is neither the pure and virgin absolute reason, nor the common reason of men living and acting in different periods, but a reason quite apart—the reason of the person-society—of the subject, humanity—which under the pen of M. Proudhon figures at times also as "social genius", "general reason", or finally as "human reason". This reason, decked out under so many names, betrays itself nevertheless, at every moment, as the individual reason of M. Proudhon, with its good and its bad side, its antidotes and its problems.
+
+"Human reason does not create truth", hidden in the depths of absolute, eternal reason. It can only unveil it. But such truths as it has unveiled up to now are incomplete, insufficient and consequent- ly contradictory. Hence, economic categories, being themselves truths discovered, revealed by human reason, by social genius, are equally incomplete and contain within themselves the germ of contradiction. Before M. Proudhon, social genius saw only the antagonistic elements, and not the synthetic formula, both hidden simultaneously in absolute reason. Economic relations, which merely realise on earth these insufficient truths, these incomplete categories, these contradictory notions, are consequently contradictory in themselves, and present two sides, one good, the other bad.
+
+To find complete truth, the notion, in all its fullness, the synthetic formula that is to annihilate the antinomy, this is the problem of social genius. This again is why, in M. Proudhon's illusion, this same social genius has been carried from one category to another without ever having been able, despite all its battery of categories, to snatch from God, from absolute reason, a synthetic formula.
+
+
+
+**[p. 172]**
+
+Just as the antithesis was before turned into an antidote, so now the thesis becomes a hypothesis. This change of terms, coming from M. Proudhon, has no longer anything surprising for us! Human reason, which is anything but pure, having only incomplete vision, encounters at every step new problems to be solved. Every new thesis which it discovers in absolute reason and which is the negation of the first thesis, becomes for it a synthesis, which it accepts rather naively as the solution of the problem in question. It is thus that this reason frets and fumes in ever renewing contradictions until, coming to the end of the contradictions, it perceives that all its theses and syntheses are merely contradictory hypotheses. In its perplexity, "human reason, social genius, returns in one leap to all its former positions and in a single formula solves all its problems". This unique formula, by the way, constitutes M. Proudhon's true discovery. It is constituted value.
+
+Hypotheses are made only in view of some aim. The aim that social genius, speaking through the mouth of M. Proudhon, set itself in the first place, was to eliminate the bad in every economic category, in order to have nothing left but the good. For it, the good, the supreme good, the real practical aim, is equality. And why did the social genius aim at equality rather than inequality, fraternity, Catholi- cism, or any other principle? Because "humanity has successively realised so many separate hypotheses only in view of a superior hypothesis" [I 12], which precisely is equality. In other words: because equality is M. Proudhon's ideal. He imagines that the division of labour, credit, the workshop—all economic rela- tions—were invented merely for the benefit of equality, and yet they always ended up by turning against it. Since history and the fiction of M. Proudhon contradict each other at every step, the latter concludes that there is a contradiction. If there is a contradiction, it exists only between his fixed idea and real movement.
+
+Henceforth the good side of an economic relation is that which affirms equality; the bad side, that which negates it and affirms
+
+
+
+**[p. 173]**
+
+Providence, providential aim, this is the great word used today to explain the march of history. In fact, this word explains nothing. It is at most a rhetorical form, one of the various ways of paraphrasing facts.
+
+It is a fact that in Scotland landed property acquired a new value through the development of English industry. This industry opened up new outlets for wool. In order to produce wool on a large scale, arable land had to be transformed into pastures. To effect this transformation, the estates had to be concentrated. To concentrate the estates, small holdings had first to be abolished, thousands of tenants had to be driven from their native soil and a few shepherds in charge of millions of sheep to be installed in their place. Thus, by successive transformations, landed property in Scotland has resulted in men being driven out by sheep. Now say that the providential aim of the institution of landed property in Scotland was to have men driven out by sheep, and you will have made providential history.
+
+Of course, the tendency towards equality belongs to our century. To say now that all former centuries, with entirely different needs, means of production, etc., worked providentially for the realisation of equality is, first of all, to substitute the means and the men of our century for the men and the means of earlier centuries and to misunderstand the historical movement by which the successive generations transformed the results acquired by the generations that preceded them. Economists know very well that the very thing that was for the one a finished product was for the other but the raw material for new production.
+
+Suppose, as M. Proudhon does, that social genius produced, or rather improvised, the feudal lords with the providential aim of transforming the settlers into responsible and equally-placed workers: and you will have effected a substitution of aims and of persons worthy of the Providence that instituted landed property in Scotland, in order to give itself the malicious pleasure of having men driven out by sheep.
+
+
+
+**[p. 174]**
+
+Seventh and Last Observation
+
+Economists have a singular method of procedure. There are only two kinds of institutions for them, artificial and natural. The institutions of feudalism are artificial institutions, those of the bourgeoisie are natural institutions. In this they resemble the theologians, who likewise establish two kinds of religion. Every religion which is not theirs is an invention of men, while their own is an emanation from God. When the economists say that present-day relations—the relations of bourgeois production—are natural, they imply that these are the relations in which wealth is created and productive forces developed in conformity with the laws of nature. These relations therefore are themselves natural laws independent of the influence of time. They are eternal laws which must always govern society. Thus there has been history, but there is no longer any. There has been history, since there were the institutions of feudalism, and in these institutions of feudalism we find quite different relations of production from those of bourgeois society, which the economists try to pass off as natural and as such, eternal.
+
+Feudalism also had its proletariat—serfage, which contained all the germs of the bourgeoisie. Feudal production also had two antagonistic elements which are likewise designated by the name of the good side and the bad side of feudalism, irrespective of the fact that it is always the bad side that in the end triumphs over the good side. It is the bad side that produces the movement which makes history, by providing a struggle. If, during the epoch of the domination of feudalism, the economists, enthusiastic over the knightly virtues, the beautiful harmony between rights and duties, the patriarchal life of the towns, the prosperous condition of domestic industry in the countryside, the development of industry organised into corporations, guilds and fraternities, in short, every- thing that constitutes the good side of feudalism, had set themselves the problem of eliminating everything that cast a shadow on this picture—serfdom, privileges, anarchy—what would have happened? All the elements which called forth the struggle would have been
+
+
+
+**[p. 175]**
+
+After the triumph of the bourgeoisie there was no longer any question of the good or the bad side of feudalism. The bourgeoisie took possession of the productive forces it had developed under feudalism. All the old economic forms, the corresponding civil relations, the political system which was the official expression of the old civil society, were smashed.
+
+Thus feudal production, to be judged properly, must be considered as a mode of production founded on antagonism. It must be shown how wealth was produced within this antagonism, how the productive forces were developed at the same time as class antagonisms, how one of the classes, the bad side, the drawback of society, went on growing until the material conditions for its emancipation had attained full maturity. Is not this as good as saying that the mode of production, the relations in which productive forces are developed, are anything but eternal laws, but that they correspond to a definite development of men and of their productive forces, and that a change in men's productive forces necessarily brings about a change in their3 relations of production? As the main thing is not to be deprived of the fruits of civilisation, of the acquired productive forces, the traditional forms in which they were produced must be smashed. From this moment the revolu- tionary class becomes conservative.
+
+The bourgeoisie begins with a proletariat which is itself a relic of the proletariatb of feudal times. In the course of its historical development, the bourgeoisie necessarily develops its antagonistic character, which at first is more or less disguised, existing only in a latent state. As the bourgeoisie develops, there develops in its bosom a new proletariat, a modern proletariat; there develops a struggle between the proletarian class and the bourgeois class, a struggle which, before being felt, perceived, appreciated, understood, avowed and proclaimed aloud by both sides, expresses itself, to start with, merely in partial and momentary conflicts, in subversive acts.
+
+[^1]: a In the 1847 edition the word "leurs" ("their") is not used; in the copy with corrections in Marx's hand and the one presented to N. Utina the word "leurs" is inserted instead of "les" ("the"). The correction was reproduced in the German edition of 1885 and the French edition of 1896.— Ed.
+
+[^2]: In the copy with corrections in Marx's hand the words "du proletariat" ("of the proletariat") are underscored and the words "de la classe travailleuse" ("of the class of workers") are written in Engels' hand in the margin. These latter words are reproduced in the copy presented to N. Utina.— Ed.
+
+
+
+
+
+**[p. 176]**
+
+The more the antagonistic character comes to light, the more the economists, the scientific representatives of bourgeois production, find themselves in conflict with their own theory; and different schools arise.
+
+We have the fatalist economists, who in their theory are as indifferent to what they call the drawbacks of bourgeois production as the bourgeois themselves are in practice to the sufferings of the proletarians who help them to acquire wealth. In this fatalist school there are Classics and Romantics. The Classics, like Adam Smith and Ricardo, represent a bourgeoisie which, while still struggling with the relics of feudal society, works only to purge economic relations of feudal taints, to increase the productive forces and to give a new upsurge to industry and commerce. The proletariat that takes part in this struggle and is absorbe'd in this feverish labour experiences only passing, accidental sufferings, and itself regards them as such. Economists like Adam Smith and Ricardo, who are the historians of this epoch, have no other mission than that of showing how wealth is acquired in bourgeois production relations, of formulating these relations into categories, into laws, and of showing how superior these laws, these categories, are for the production of wealth to the laws and categories of feudal society. Poverty is in their eyes merely the pang which accompanies every childbirth, in nature as in industry.
+
+The Romantics belong to our own age, in which the bourgeoisie is in direct opposition to the proletariat; in which poverty is engendered in as great abundance as wealth. The economists now pose as blasé fatalists, who, from their elevated position, cast a proudly disdainful glance at the human machines who manufacture wealth. They copy all the developments given by their predecessors,
+
+
+
+**[p. 177]**
+
+Next comes the humanitarian school, which takes to heart the bad side of present-day production relations. It seeks, by way of easing its conscience, to palliate even if slightly the real contrasts; it sincerely deplores the distress of the proletariat, the unbridled competition of the bourgeois among themselves; it counsels the workers to be sober, to work hard and to have few children; it advises the bour- geois to put a judicious ardour into production. The whole theory of this school rests on interminable distinctions between theory and practice, between principles and results, between idea and application, between content and form, between essence and reality, between law and fact, between the good side and the bad side.
+
+The philanthropic school is the humanitarian school carried to perfection. It denies the necessity of antagonism; it wants to turn all men into bourgeois; it wants to realise theory insofar as it is distinguished from practice and contains no antagonism. It goes without saying that, in theory, it is easy to make an abstraction of the contradictions that are met with at every moment in actual reality. This theory would therefore become idealised reality. The philan- thropists, then, want to retain the categories which express bour- geois relations, without the antagonism which constitutes them and is inseparable from them. They think they are seriously fighting bourgeois practice, and they are more bourgeois than the others.
+
+Just as the economists are the scientific representatives of the bourgeois class, so the socialists and the Communists are the theoreticians of the proletarian class. So long as the proletariat is not yet sufficiently developed to constitute itself as a class, and consequently so long as the very struggle of the proletariat with the bourgeoisie has not yet assumed a political character, and the productive forces are not yet sufficiently developed in the bosom of the bourgeoisie itself to enable us to catch a glimpse of the material conditions necessary for the emancipation of the proletariat and for the formation of a new society, these theoreticians are merely Utopians who, to meet the wants of the oppressed classes, improvise systems and go in search of a regenerating science. But in the measure that history moves forward, and with it the struggle of the proletariat assumes clearer outlines, they no longer need to seek science in their minds; they have only to take note of what is happening before their eyes and to Become its mouthpiece. So long as they look for science and merely make systems, so long as they are
+
+
+
+**[p. 178]**
+
+Let us return to M. Proudhon. Every economic relation has a good and a bad side; it is the one point on which M. Proudhon does not give himself the lie. He sees the good side expounded by the economists; the bad side he sees denounced by the socialists. He borrows from the econo- mists the necessity of eternal relations; he borrows from the socialists the illusion of seeing in poverty nothing but poverty. He is in agreement with both in wanting to fall back upon the authority of science. Science for him reduces itself to the slender pro- portions of a scientific formula; he is the man in search of formu- las. Thus it is that M. Proudhon flatters himself on having given a criticism of both political economy and communism: he is beneath them both. Beneath the economists, since, as a philos- opher who has at his elbow a magic formula, he thought he could dispense with going into purely economic details; beneath the socialists, because he has neither courage enough nor insight enough to rise, be it even speculatively, above the bourgeois horizon.
+
+He wants to be the synthesis—he is a composite error. He wants to soar as the man of science above the bourgeois and the proletarians; he is merely the petty bourgeois, continually tossed back and forth between capital and labour, political economy and communism.
+
+The division of labour, according to M. Proudhon, opens the series of economic evolutions.
+
+Good side of the division of labour
+
+"Considered in its essence, the divi- sion of labour is the manner in which equality of conditions and of intelli '^ence is realised." (Tome I, p. 93.)
+
+[^1]: §2. DIVISION OF LABOUR AND MACHINERY
+
+
+
+
+
+**[p. 179]**
+
+Bad side of the division of labour
+
+Problem to be solved
+
+Variant
+
+"Labour, by dividing itself according to the law which is peculiar to it and which is the primary condition of its fruitfulness, ends in the negation of its aims and destroys itself." (Tome I, p. V 94.)
+
+To find the "recomposition which wipes out the drawbacks of the divi- sion, while retaining its useful effects." UTome I, p. 97.) The division of labour is, according to M. Proudhon, an eternal law, a simple, abstract category. Therefore the abstraction, the idea, the word must suffice for him to explain the division of labour at different historical epochs. Castes, corporations, manufacture, large-scale industry must be explained by the single word divide. First study carefully the meaning of "divide", and you will have no need to study the numerous influences which give the division of labour a definite character in each epoch.
+
+Certainly, it would be oversimplifying things to reduce them to M. Proudhon's categories. History does not proceed so categorically. It took three whole centuries in Germany to establish the first big division of labour, the separation of the towns from the country. In proportion as this one relation of town and country was modified, the whole of society was modified. To take only this one aspect of the division of labour, you have the republics of antiquity and you have Christian feudalism; you have old England with its barons and you have modern England with its cotton lords.3 In the fourteenth and fifteenth centuries, when there were as yet no colonies, when America did not yet exist for Europe, when Asia existed only through the intermediary of Constantinople, when the Mediterra- nean was the centre of commercial activity, the division of labour had a very different form, a very different aspect from that of the seventeenth century, when the Spanish, the Portuguese, the Dutch, the English, and the French had colonies established in all parts of
+
+[^1]: a In the original the words "cotton lords" are given in English in parentheses after the French.— Ed.
+
+
+
+
+
+**[p. 180]**
+
+"All economists since Adam Smith," says M. Proudhon, "have pointed out the advantages and drawbacks of the law of division, but insist much more on the first than on the second, because that was more serviceable for their optimism, and none of them has ever wondered what could be the drawbacks to a law How does the same principle, pursued vigorously to its consequences, lead to diametrically opposite results? Not one economist before or since A. Smith has even perceived that here was a problem to elucidate. Say goes to the length of recognising that in the division of labour the same cause that produces the good engenders the bad." [I 95-96]
+
+Adam Smith goes further than M. Proudhon thinks. He saw clearly that
+
+"the difference of natural talents in different men is, in reality, much less than we are aware of; and the very different genius which appears to distinguish men of different professions, when grown up to maturity, is not so much the cause as the effect of the division of labour".3
+
+In principle, a porter differs less from a philosopher than a mastiff from a greyhound. It is the division of labour which has set a gulf between them. All this does not prevent M. Proudhon from saying elsewhere that Adam Smith had not the slightest idea of the drawbacks produced by the division of labour. It is this again that makes him say that J. B. Say was the first to recognise "that in the division of labour the same cause that produces the good engenders the bad". [I 96]
+
+But let us listen to Lemontey; Suum cuique.
+
+Let us do him this justice: Lemontey wittily exposed the regrettable consequences of the division of labour as it is constituted today, and M. Proudhon found nothing to add to it. But now that, through the fault of M. Proudhon, we have been drawn into this question of priority, let us say again, in passing, that long before M.
+
+[^1]: "M. J. B. Say has done me the honour of adopting in his excellent treatise on political economy the principle that I brought to light in this fragment on the moral influence of the division of labour. The somewhat frivolous title of my book b doubtless prevented him from citing me. It is only to this motive that I can attribute the silence of a writer too rich in his own stock to disavow so modest a loan." (Lemontey [»"Influence morale de la division du travail"], Œuvres complètes, tome I, p. 245, Paris, 1840.)
+
+[^2]: a A. Smith, Recherches sur la nature et les causes de la richesse des nations, t. I, Paris, 1802, pp. 33-34; Eng. ed., pp. 56-57.— Ed.
+
+[^3]: b P. E. Lemontey, Raison, folie, chacun son mot; petit cours de morale mis a la portée des vieux enfants.— Ed.
+
+
+
+
+
+**[p. 181]**
+
+"It may even be doubted, whether the measure of national capacity increases with the advancement of arts. Many mechanical arts succeed best under a total suppression of sentiment and reason; and ignorance is the mother of industry as well as of superstition. Reflection and fancy are subject to err; but a habit of moving the hand, or the foot, is independent of either. Manufactures, accordingly, prosper most, where the mind is least consulted, and where the workshop may, without any great effort of imagination, be considered as an engine, the parts of which are men The general officer may be a great proficient in the knowledge of war, while the skill of the soldier is confined to a few motions of the hand and the foot. The former may have gained what the latter has lost And thinking itself, in this age of separations, may become a peculiar craft." (A. Ferguson, Essai sur l'histoire de la société civile, Paris, 1783 [II 108, 109, 110; Eng. ed., pp. 280, 281].)
+
+To bring this literary survey to a close, we expressly deny that "all economists have insisted far more on the advantages than on the drawbacks of the division of labour". It suffices to mention Sismondi.
+
+Thus, as far as the advantages of the division of labour are concerned, M. Proudhon had nothing further to do than to paraphrase more or less pompously the general propositions known to everybody.
+
+Let us now see how he derives from the division of labour, taken as a general law, as a category, as a thought, the drawbacks which are attached to it. How is it that this category, this law implies an unequal distribution of labour to the detriment of M. Proudhon's equalitarian system?
+
+The division of labour created castes. Now, castes are the drawbacks of the division of labour; thus it is the division of labour that has engendered the drawbacks. Quod erat demonstrandum. Will you go further and ask what made the division of labour create castes, hierarchical constitutions and privileged persons? M. Proudhon will tell you: Progress. And what made progress? Limitation. Limitation, for M. Proudhon, is discrimination of persons on the part of progress.
+
+After philosophy comes history. It is no longer either descriptive history or dialectical history, it is comparative history. M. Proudhon
+
+[^1]: "At this solemn hour of the division of labour, the storm winds begin to blow over humanity. Progress does not take place for all in an equal and uniform manner It begins by taking possession of a small number of the privileged It is this preference for persons on the part of progress that has for so long kept up the belief in the natural and providential inequality of conditions, has given rise to castes, and hierarchically constituted all societies." (Proudhon, tome I, p. 94.)
+
+
+
+
+
+**[p. 182]**
+
+"The first effect of fractional labour," continues M. Proudhon, "after the depravation of the soul, is the lengthening of the shifts, which grow in inverse ratio to the sum total of intelligence expended But as the length of the shifts cannot exceed sixteen to eighteen hours per day, since the compensation cannot be taken out of the time, it will be taken out of the price, and the wages will diminish What is certain, and the only thing for us to note, is that the universal conscience does not assess at the same rate the work of a foreman and the labour of an unskilled worker. It is therefore necessary to reduce the price of the day's work; so that the worker, after having been afflicted in his soul by a degrading function, cannot escape being struck in his body by the meagreness of his remuneration." [I 97, 98]
+
+We pass over the logical value of these syllogisms, which Kant would call paralogisms which lead astray.
+
+This is the substance of it: The division of labour reduces the worker to a degrading function; to this degrading function corresponds a depraved soul; to the depravation of the soul is befitting an ever-increasing wage reduction. And to prove that this reduction is befitting to a depraved soul, M. Proudhon says, to relieve his conscience, that the universal conscience wills it thus. Is M. Proudhon's soul to be reckoned as a part of the universal conscience?
+
+Machinery is, for M. Proudhon, "the logical antithesis of the division of labour" [I 135], and in support of his dialectics, he begins by transforming the machinery into the workshop.
+
+After presupposing the modern workshop, in order to make poverty the outcome of the division of labour, M. Proudhon presupposes poverty engendered by the division of labour, in order to come to the workshop and be able to represent it as the dialectical negation of that poverty. After striking the worker morally by a degrading function, physically by the meagreness of the wage; after putting the worker under the dependence of the foreman, and debasing
+
+
+
+**[p. 183]**
+
+Labour is organised, is divided differently according to the instruments it has at its disposal. The hand-mill presupposes a different division of labour from the steam-mill. Thus it is slapping history in the face to want to begin with the division of labour in general, in order to arrive subsequently at a specific instrument of production, machinery.
+
+Machinery is no more an economic category than the bullock that drags the plough. Machinery is merely a productive force. The modern workshop, which is based on the application of machinery, is a social production relation, an economic category.
+
+Let us see now how things happen in M. Proudhon's brilliant imagination.
+
+Just a simple remark to M. Proudhon. The separation of the different parts of labour, leaving to each one the opportunity of devoting himself to the speciality best suited to him—a separation which M. Proudhon dates from the beginning of the world—exists only in modern industry under the rule of competition.
+
+M. Proudhon goes on to give us a most "interesting genealogy", to show how the workshop arose from the division of labour and the wage system from the workshop.
+
+[^1]: "In society, the incessant appearance of machinery is the antithesis, the inverse formula of the division of labour: it is the protest of the industrial genius against fractional and homicidal labour. What, actually, is a machine? A way of uniting different portions of labour which had been separated by the division of labour. Every machine can be defined as a summary of several operations Thus through the machine there will be a restoration of the worker Machinery, which in political economy places itself in contradiction to the division of labour, represents synthesis, which in the human mind is opposed to analysis Division merely separated the different parts of labour, letting each one devote himself to the speciality which most suited him; the workshop groups the workers according to the relation of each part to the whole It introduces the principle of authority in labour But this is not all; the machine or the workshop, after degrading the worker by giving him a master, completes his abasement by making him sink from the rank of artisan to that of navvy The period we are going through at the moment, that of machinery, is distinguished by a special characteristic, the wage system. The wage system is subsequent to the division of labour and to exchange." [I 135, 136, 161, 164, 161]
+
+
+
+
+
+**[p. 184]**
+
+2) This man, "grasping the thread of this idea, tells himself that, by forming a permanent group of workers selected for the special purpose he sets himself, he will obtain a more sustained production, etc." [I 161]
+
+3) This man makes a proposal to other men, to make them grasp his idea and the thread of his idea.
+
+4) This man, at the beginning of industry, deals on terms of equality with his companions who later become his workmen.
+
+5) "One realises, in fact, that this original equality had rapidly to disappear in view of the advantageous position of the master and the dependence of the wage worker." [I 163]
+
+There we have another example of M. Proudhon's historical and descriptive method.
+
+Let us now examine, from the historical and economic point of view, whether the workshop or the machine really introduced the principle of authority in society subsequently to the division of labour; whether it rehabilitated the worker on the one hand, while submitting him to authority on the other; whether the machine is the recomposition of divided labour, the synthesis of labour as opposed to its analysis.
+
+Society as a whole has this in common with the interior of a workshop, that it too has its division of labour. If one took as a model the division of labour in a modern workshop, in order to apply it to a whole society, the society best organised for the production of wealth would undoubtedly be that which had a single chief employer, distributing tasks to the different members of the community according to a previously fixed rule. But this is by no means the case. While inside the modern workshop the division of labour is meticulously regulated by the authority of the employer, modern society has no other rule, no other authority for the distribution of labour than free competition.
+
+Under the patriarchal system, under the caste system, under the feudal and guild system, there was division of labour in the whole of society according to fixed rules. Were these rules established by a legislator? No. Originally born of the conditions of material production, they were raised to the status of laws only much later. In this way these different forms of the division of labour became so many bases of social organisation. As for the division of labour in the workshop, it was very little developed in all these forms of society.
+
+
+
+**[p. 185]**
+
+The question now is what kind of workshop it is in which the occupations are very much separated, where each worker's task is reduced to a very simple operation, and where the authority, capital, groups and directs the work. How was this workshop brought into existence? In order to answer this question we shall have to examine how manufacturing industry, properly so-called, has developed. I am speaking here of that industry which is not yet modern industry, with its machinery, but which is already no longer the industry of the artisans of the Middle Ages, nor domestic industry. We shall not go into great detail: we shall merely give a few main points to show that history cannot be made with formulas.
+
+One of the most indispensable conditions for the formation of manufacturing industry was the accumulation of capital, facili- tated by the discovery of America and the import of its precious metals.
+
+It is sufficiently proved that the increase in the means of exchange resulted in the depreciation of wages and land rents, on the one hand, and the growth of industrial profits on the other. In other words: to the extent that the propertied class and the class of workers, the feudal lords and the people, sank, to that extent the capitalist class, the bourgeoisie, rose.
+
+There were yet other circumstances which contributed simultane- ously to the development of manufacturing industry: the increase of commodities put into circulation from the moment trade penetrated to the East Indies by way of the Cape of Good Hope; the colonial system; the development of maritime trade.
+
+Another point which has not yet been sufficiently appreciated in the history of manufacturing industry is the disbanding of the numerous retinues of feudal lords, whose subordinate ranks became vagrants before entering the workshop. The creation of the workshop was preceded by an almost universal vagrancy in the fifteenth and sixteenth centuries. The workshop found, besides, a powerful support in the many peasants who, continually driven from the country owing to the transformation of the fields into pastures and to the progress in agriculture which necessitated fewer hands for the tillage of the soil, went on congregating in the towns during whole centuries.
+
+
+
+**[p. 186]**
+
+The accumulation and concentration of instruments and workers preceded the development of the division of labour inside the workshop. Manufacture consisted much more in the bringing together of many workers and many crafts in one place, in one room, under the command of one capital, than in the analysis of labour and the adaptation of a special worker to a very simple task.
+
+The utility of a workshop consisted much less in the division of labour as such than in the circumstance that work was done on a much larger scale, that many unnecessary expenses were saved, etc. At the end of the sixteenth and at the beginning of the seventeenth century, Dutch manufacture scarcely knew any division of labour.
+
+The development of the division of labour supposes the assem- blage of workers in a workshop. There is not one single example, whether in the sixteenth or in the seventeenth century, of the different branches of one and the same craft being exploited separately to such an extent that it would have sufficed to assemble them all in one place so as to obtain a complete, ready-made work- shop. But once the men and the instruments had been brought toge- ther, the division of labour, such as it had existed in the form of the guilds, was reproduced, necessarily reflected inside the workshop.
+
+For M. Proudhon, who sees things upside down, if he sees them at all, the division of labour, in Adam Smith's sense, precedes the workshop, which is a condition of its existence.
+
+Machinery, properly so-called, dates from the end of the eighteenth century. Nothing is more absurd than to see in machinery the antithesis of the division of labour, the synthesis restoring unity to divided labour.
+
+The machine is a uniting of the instruments of labour, and by no means a combination of different operations for the worker himself.
+
+[^1]: "When," by the division of labour, "each particular operation has been simplified to the use of a simple instrument, the linking-up of all these instruments, set in motion by a single engine, constitutes a machine." (Babbage, Traité sur l'Économie des machines, etc., Paris, 1833 [p. 230; cf. Eng. ed., p. 171].)
+
+
+
+
+
+**[p. 187]**
+
+The concentration of the instruments of production and the division of labour are as inseparable one from the other as are, in the political sphere, the concentration of public powers and the division of private interests. England, with the concentration of the land, this instrument of agricultural labour, has at the same time division of agricultural labour and the application of machinery to the exploitation of the soil. France, which has the division of the instruments, the small holdings system, has, in general, neither division of agricultural labour nor application of machinery to the soil.
+
+For M. Proudhon the concentration of the instruments of labour is the negation of the division of labour. In reality we find again the reverse. As the concentration of instruments develops, the division develops also, and vice versa. This is why every big mechanical invention is followed by a greater division of labour* and each increase in the division of labour gives rise in turn to new mechanical inventions.
+
+We need not recall the fact that the great progress of the division of labour began in England after the invention of machinery. Thus the weavers and spinners were for the most part peasants like those one still meets in backward countries. The invention of machinery brought about the separation of manufacturing industry from agricultural industry. The weaver and the spinner, united but lately in a single family, were separated by the machine. Thanks to the machine, the spinner can live in England while the weaver resides in the East Indies. Before the invention of machinery, the industry of a country was carried on chiefly with raw materials that were the products of its own soil; in England — wool, in Germany — flax, in France — silks and flax, in the East Indies and the Levant — cotton, etc. Thanks to the application of machinery and of steam, the division of labour was able to assume such dimensions that large-scale industry, detached from the national soil, depends entirely on the world market, on international exchange, on an international division of labour. Finally—the machine has so great an influence on the division of labour, that when, in the manufacture of some object, a means has been found to produce parts of it mechanically, the manufacture splits up immediately into two branches independent of each other.
+
+
+
+**[p. 188]**
+
+When in England the market had become so far developed that manual labour was no longer adequate, the need for machinery was felt. Then came the idea of applying mechanical science, already quite developed in the eighteenth century.
+
+The automatic workshop opened its career with acts which were anything but philanthropic. Children were kept at work by means of the whip; they were made an object of traffic and contracts were undertaken with the orphanages. All the laws on the apprenticeship of workers were repealed, because, to use M. Proudhon's phraseolo- gy, there was no further need of synthetic workers. Finally, from 1825 onwards,8^ almost all the new inventions were the result of collisions between the worker and the employer who sought at all costs to depreciate the worker's specialised ability. After each new strike of any importance, there appeared a new machine. So little indeed did the worker see in the application of machinery a sort of rehabilita- tion, restoration—as M. Proudhon would say—that in the eighteenth century he resisted for a very long time the incipient domination of automation.
+
+In short, with the introduction of machinery the division of labour inside society has increased, the task of the worker inside the workshop has been simplified, capital has been concentrated, the human being has been further dismembered.
+
+When M. Proudhon wants to be an economist, and to abandon for a moment the "evolution in serial relation in the understanding", then he goes and draws erudition from Adam Smith, from a time when the automatic workshop was only just coming into existence. Indeed, what a difference between the division of labour as it existed in Adam Smith's day and as we see it in the automatic workshop! In order to make this properly understood, we need only quote a few passages from Dr. Ure's Philosophie des manufactures.
+
+[^1]: "Wyatt," says Doctor Ure, " invented the series of fluted rollers (the spinning fingers usually ascribed to Arkwright) The main difficulty did not lie so much in the invention of a proper self-acting mechanism as in training human beings to renounce their desultory habits of work, and to identify themselves with the unvarying regularity of the complex automation. To devise and administer a successful code of factory discipline, suited to the necessities of factory diligence, was the Herculean enterprise, the noble achievement of Arkwright."3
+
+[^2]: 3 A. Ure, Philosophie des manufactures, t. I, Bruxelles, 1836, pp. 23, 21, 22, Eng. ed., pp. 16 and 15.— Ed.
+
+
+
+
+
+**[p. 189]**
+
+"The principle of the factory system then is to substitute mechanical science for hand skill, and the partition of a process into its essential constituents, for the division or gradation of labour among artisans. On the handicraft plan, labour more or less skilled was usually the most expensive element of production but on the automatic plan, skilled labour gets progressively superseded, and will, eventually, be replaced by mere overlookers of machines.
+
+"By the infirmity of human nature it happens, that the more skilful the workman, the more self-willed and intractable he is apt to become, and, of course, the less fit a component of a mechanical system, in which, by occasional irregularities, he may do great damage to the whole. The grand object therefore of the modern manufacturer is, through the union of capital and science, to reduce the task of his workpeople to the exercise of vigilance and dexterity—faculties, when concentrated to one process, speedily brought to perfection in the young
+
+[^1]: "On the gradation system, a man must serve an apprenticeship of many years before his hand and eye become skilled enough for certain mechanical feats; but on the system of decomposing a process into its constituents, and embodying each part in an automatic machine, a person of common care and capacity may be entrusted with any of the said elementary parts after a short probation, and may be transferred from one to another, on any emergency, at the discretion of the master. Such translations are utterly at variance with the old practice of the division of labour, which fixed one man to shaping the head of a pin, and another to sharpening its point, with most irksome and spirit-wasting uniformity But on the equalisation plan of self-acting machines, the operative needs to call his faculties only into agreeable exercise As his business consists in tending the work of a well-regulated mechanism, he can learn it in a short period; and when he transfers his services from one machine to another, he varies his task, and enlarges his views, by thinking on those general combinations which result from his and his companions' labours. Thus, that cramping of the faculties, that narrowing of the mind, that stunting of the frame, which were ascribed, and not unjustly, to the division of labour, cannot, in common circumstances, occur under the equable distribution of industry
+
+[^2]: "It is, in fact, the constant aim and tendency of every improvement in machinery to supersede human labour altogether, or to diminish its cost, by substituting the industry of women and children for that of men; or that of ordinary labourers for trained artisans This tendency to employ merely children with watchful eyes and
+
+
+
+
+
+**[p. 190]**
+
+What characterises the division of labour inside modern society is that it engenders specialities, specialists, and with them craft-idiocy.
+
+"We are struck with admiration," says Lemontey, "when we see among the ancients the same person distinguishing himself to a high degree as philosopher, poet, orator, historian, priest, administrator, general of an army. Our souls are appalled at the sight of so vast a domain. Each one of us plants his hedge and shuts himself up in his enclosure. I do not know whether by this parcellation the field is enlarged, but I do know that man is belittled." [Op. cit., p. 213.]
+
+What characterises the division of labour in the automatic workshop is that labour has there completely lost its specialised character. But the moment every special development stops, the need for universality, the tendency towards an integral development of the individual begins to be felt. The automatic workshop wipes out specialists and craft-idiocy.
+
+M. Proudhon, not having understood even this one revolutionary side of the automatic workshop, takes a step backward and proposes to the worker that he make not only the twelfth part of a pin, but successively all twelve parts of it. The worker would thus come to know and realise the pin. This is M. Proudhon's synthetic labour. Nobody will contest that to make a movement forward and another movement backward is also to make a synthetic movement.
+
+To sum up, M. Proudhon has not gone further than the petty-bourgeois ideal. And to realise this ideal, he can think of nothing better than to take us back to the journeyman or, at most, to the master craftsman of the Middle Ages. It is enough, he says somewhere in his book, to have created a masterpiece once in one's life, to have felt oneself just once to be a man. Is not this, in form as in content, the masterpiece demanded by the craft guild of the Middle Ages?
+
+"Competition is as essential to labour as division It is necessary for the advent of equality." [I 186, 1881
+
+"The principle is the negation of Bad side of J itself. Its most certain result is to ruin competition | those whom it drags in its train." [I
+
+I 185]
+
+Good side of competition
+
+[^1]: §3. COMPETITION AND MONOPOLY
+
+
+
+
+
+**[p. 191]**
+
+[I 185-86]
+
+"To seek the principle of accommoda- tion, which must be derived from a law superior to liberty itself." [I 185]
+
+Variant "There can, therefore, be no ques- tion here of destroying competition, a thing as impossible to destroy as liber- ty; we have only to find its equilibrium, I would be ready to say its police." [I 223]
+
+M. Proudhon begins by defending the eternal necessity of competition against those who wish to replace it by emulation.*
+
+There is no "purposeless emulation", and as "the object of every passion is necessarily analogous to the passion itself—a woman for the lover, power for the ambitious, gold for the miser, a garland for the poet—the object of industrial emulation is necessarily profit Emulation is nothing but competition itself." [I 187]
+
+Competition is emulation with a view to profit. Is industrial emulation necessarily emulation with a view to profit, that is, competition? M. Proudhon proves it by affirming it. We have seen that, for him, to affirm is to prove, just as to suppose is to deny.
+
+If the immediate object of the lover is the woman, the immediate object of industrial emulation is the product and not the profit.
+
+Competition is not industrial emulation, it is commercial emula- tion. In our time industrial emulation exists only in view of commerce. There are even phases in the economic life of modern nations when everybody is seized with a sort of craze for making profit without producing. This speculation craze, which recurs periodically, lays bare the true character of competition, which seeks to escape the need for industrial emulation.
+
+If you had told an artisan of the fourteenth century that the privileges and the whole feudal organisation of industry were going to be abrogated in favour of industrial emulation, called competition, he would have replied that the privileges of the various corporations, guilds and fraternities were organised competition. M. Proudhon
+
+General reflection
+
+Problem to be solved
+
+[^1]: * The Fourierists. F. E. [Note to the German edition, 1885.]
+
+
+
+
+
+**[p. 192]**
+
+"Ordain that from the first of January 1847, labour and wages shall be guaranteed to everybody: immediately an immense relaxation will succeed the high tension of industry." [I 189]
+
+Instead of a supposition, an affirmation and a negation, we have now an ordinance that M. Proudhon issues purposely to prove the necessity of competition, its eternity as a category, etc.
+
+If we imagine that ordinances are all that is needed to get away from competition, we shall never get away from it. And if we go so far as to propose to abolish competition while retaining wages, we shall be proposing nonsense by royal decree. But nations do not proceed by royal decree. Before framing such ordinances, they must at least have changed from top to bottom the conditions of their industrial and political existence, and consequently their whole manner of being.
+
+M. Proudhon will reply, with his imperturbable assurance, that it is the hypothesis of "a transformation of our nature without historical antecedents", and that he would be right in "excluding us from the discussion" [I 191], we know not in virtue of which ordinance.
+
+M. Proudhon does not know that all history is nothing but a continuous transformation of human nature.
+
+So, since the French of the eighteenth century abolished corporations, guilds and fraternities instead of modifying them, the French of the nineteenth century must modify competition instead of abolishing it. Since competition was established in France in the eighteenth century as a result of historical needs, this competition must not be destroyed in the nineteenth century because of other historical needs. M. Proudhon, not understanding that the establish- ment of competition was bound up with the actual development of the men of the eighteenth century, makes of competition a necessity of the human soul, in partibus infidelium.84 What would he have made of the great Colbert for the seventeenth century?
+
+[^1]: "Let us stick to the facts The French Revolution was made for industrial liberty as much as for political liberty; and although France, in 1789, had not perceived—let us say it openly—all the consequences of the principle whose realisation it demanded, it was mistaken neither in its wishes nor in its expectations. Whoever attempts to deny this loses, in my view, the right to criticism. I will never dispute with an adversary who puts as principle the spontaneous error of twenty-five million men Why then, if competition had not been a principle of social economy, a decree of fate, a necessity of the human soul, why, instead of abolishing corporations, guilds and fraternities, did nobody think rather of repairing the whole?" [I 191, 192]
+
+
+
+
+
+**[p. 193]**
+
+To say that there are industries which have not yet reached the stage of competition, that others again are below the level of bourgeois production, is drivel which gives not the slightest proof of the eternity of competition.
+
+All M. Proudhon's logic amounts to this: competition is a social relation in which we are now developing our productive forces. To this truth, he gives no logical development, but only forms, often very well developed, when he says that competition is industrial emulation, the present-day mode of freedom, responsibility in labour, constitution of value, a condition for the advent of equality, a principle of social economy, a decree of fate, a necessity of the human soul, an inspiration of eternal justice, liberty in division, division in liberty, an economic category.
+
+"Competition and association rely on each other Far from excluding each other they are not even divergent. Whoever says competition already supposes a common aim. Competition is therefore not egoism, and the most deplorable error committed by socialism is to have regarded it as the overthrow of society." [I 223]
+
+Whoever says competition says common aim, and that proves, on the one hand, that competition is association; on the other, that competition is not egoism. And whoever says egoism, does he not say common aim? Every egoism operates in society and by the fact of society. Hence it presupposes society, that is to say, common aims, common needs, common means of production, etc., etc. Is it, then, by mere chance that the competition and association which the socialists talk about are not even-divergent?
+
+Socialists know well enough that present-day society is founded on competition. How could they accuse competition of overthrowing present-day society which they want to overthrow themselves? And how could they accuse competition of overthrowing the society to come, in which they see, on the contrary, the overthrow of competition?
+
+M. Proudhon says, later on, that competition is the opposite of monopoly, and consequently cannot be the opposite of association.
+
+Feudalism was, from its origin, opposed to patriarchal monarchy; it was thus not opposed to competition, which was not yet in existence. Does it follow that competition is not opposed to feudalism?
+
+
+
+**[p. 194]**
+
+All we have just said makes up the beautiful side of competition as M. Proudhon sees it. Now let us pass on to the ugly side, that is the negative side, of competition, its drawbacks, its destructive subver- sive injurious qualities.
+
+There is something dismal about the picture M. Proudhon draws of it.
+
+Competition engenders misery, it foments civil war, it "changes natural zones", mixes up nationalities, causes trouble in families, corrupts the public conscience, "subverts the notion of equity, of justice", of morality, and what is worse, it destroys free, honest trade, and does not even give in exchange synthetic value, fixed, honest price. [I 203] It disillusions everyone, even economists. It pushes things so far as to destroy its very self.
+
+After all the ill M. Proudhon says of it, can there be for the relations of bourgeois society, for its principles and its illusions, a more disintegrating, more destructive element than competition?
+
+It must be noted that competition always becomes the more destructive for bourgeois relations in proportion as it urges on a feverish creation of new productive forces, that is, of the material conditions of a new society. In this respect at least, the bad side of competition would have its good points.
+
+For M. Proudhon, the circulation of the blood must be a consequence of Harvey's theory.
+
+We rejoice with M. Proudhon that he can for once at least properly apply his formula of thesis and antithesis. Everyone knows that modern monopoly is engendered by competition itself.
+
+As for the content, M. Proudhon clings to poetic images. Competition made "of every subdivision of labour a sort of
+
+[^1]: "Competition as an economic position or phase, considered in its origin, is the necessary result of the theory of the reduction of general expenses." [I 235]
+
+[^2]: "Monopoly is the inevitable doom of competition, which engenders it by a continual negation of itself. This generation of monopoly is in itself a justification of it Monopoly is the natural opposite of competition but since competition is necessary, it implies the idea of monopoly, for monopoly is, as it were, the seat of each competing individuality." [I 236, 237]
+
+
+
+
+
+**[p. 195]**
+
+M. Proudhon speaks only of modern monopoly engendered by competition. But we all know that competition was engendered by feudal monopoly. Thus competition was originally the opposite of monopoly and not monopoly the opposite of competition. So that modern monopoly is not a simple antithesis, it is on the contrary the true synthesis.
+
+Thesis: Feudal monopoly, before competition. Antithesis: Competition. Synthesis: Modern monopoly, which is the negation of feudal monopoly insofar as it implies the system of competition, and the negation of competition insofar as it is monopoly.
+
+Thus modern monopoly, bourgeois monopoly, is synthetic monopoly, the negation of the negation, the unity of opposites. It is monopoly in the pure, normal, rational state. M. Proudhon is in contradiction with his own philosophy when he turns bourgeois monopoly into monopoly in the crude, primitive, contradictory, spasmodic state. M. Rossi, whom M. Proudhon quotes several times on the subject of monopoly, seems to have a better grasp of the synthetic character of bourgeois monopoly. In his Cours d'économie politique, he distinguishes between artificial monopolies and natural monopolies. Feudal monopolies, he says, are artificial, that is, arbitrary; bourgeois monopolies are natural, that is, rational.
+
+Monopoly is a good thing, M. Proudhon reasons, since it is an economic category, an emanation "from the impersonal reason of humanity". Competition, again, is a good thing, since it also is an economic category. But what is not good is the reality of monopoly and the reality of competition. What is still worse is that competition and monopoly devour each other. What is to be done? Look for the synthesis of these two eternal thoughts, wrest it from the bosom of God, where it has been deposited from time immemorial.
+
+In practical life we find not only competition, monopoly and the antagonism between them, but also the synthesis of the two, which is not a formula, but a movement. Monopoly produces competition, competition produces monopoly. Monopolists compete among themselves; competitors become monopolists. If the monopolists restrict thçir mutual competition by means of partial associations, competition increases among the workers; and the more the mass of the proletarians grows as against the monopolists of one nation, the more desperate competition becomes between the monopolists of different nations. The synthesis is such that monopoly can only
+
+[^1]: 8—1826
+
+
+
+
+
+**[p. 196]**
+
+To make the dialectical transition to the taxes which come after monopoly, M. Proudhon talks to us about the social genius which, after zigzagging intrepidly onward,
+
+"after striding with a jaunty step, without repenting and without halting, reaches the corner of monopoly, casts backward a melancholy glance, and, after profound reflection, assails all the objects of production with taxes, and creates a whole administrative organisation, in order that all employments be given to the proletariat and paid by the men of monopoly". [I 284, 285]
+
+What can we say of this genius, which, while fasting, walks about in a zigzag? And what can we say of this walking which has no other object than to destroy the bourgeois by taxes, whereas taxes are the very means of giving the bourgeois the wherewithal to preserve themselves as the ruling class?
+
+Merely to give a glimpse of the manner in which M. Proudhon treats economic details, it suffices to say that, according to him, the tax on consumption was established with a view to equality, and to relieve the proletariat.
+
+The tax on consumption has assumed its true development only since the rise of the bourgeoisie. In the hands of industrial capital, that is, of sober and economical wealth, which maintains, reproduces and increases itself by the direct exploitation of labour, the tax on consumption was a means of exploiting the frivolous, gay, prodigal wealth of the fine lords who did nothing but consume. James Steuart clearly developed this original purpose of the tax on consumption in his Recherche des principes de l'économie politique, which he published ten years before Adam Smith.
+
+As for the logical sequence of taxes, of the balance of trade, of credit—in the understanding of M. Proudhon—we would only remark that the English bourgeoisie, on attaining its political constitution under William of Orange, created all at once a new system of taxes, public credit and the system of protective duties, as soon as it was in a position freely to develop its conditions of existence.
+
+[^1]: "Under the pure monarchy, the prince seems jealous, as it were, of growing wealth, and therefore imposes taxes upon people who are grooving richer,—taxes on production. Under constitutional government they are calculated chiefly to affect those who are growing poorer,—taxes on consumption. Thus the monarch imposes a tax upon industry the poll-tax and taille, for example, are proportioned to the supposed opulence of everyone liable to them. Everyone is taxed in proportion to the gain he is supposed to make. In constitutional governments, impositions are more generally laid upon consumption. Everyone is taxed according to his expenditure." [II 190-91; cf. Eng. ed., pp. 353, 354]85
+
+
+
+
+
+**[p. 197]**
+
+§ 4. PROPERTY OR RENT
+
+In each historical epoch, property has developed differently and under a set of entirely different social relations. Thus to define bourgeois property is nothing else than to give an exposition of all the social relations of bourgeois production.
+
+To try to give a definition of property as of an independent relation, a category apart, an abstract and eternal idea, can be nothing but an illusion of metaphysics or jurisprudence.
+
+M. Proudhon, while seeming to speak of property in general, deals only with landed property, with rent.
+
+"The origin of rent, as of property, is, so to speak, extra-economic: it rests in psychological and moral considerations which are only very distantly connected with the production of wealth." (T. II, p. 269.)
+
+So M. Proudhon declares himself incapable of understanding the economic origin of rent and of property. He admits that this incapacity obliges him to resort to psychological and moral considerations, which, indeed, while only distantly connected with the production of wealth, have yet a very close connection with the narrowness of his historical views. M. Proudhon affirms that there is something mystical and mysterious about the origin of property. Now, to see mystery in the origin of property—that is, to make a mystery of the relation between production itself and the distribution of the instruments of production—is not this, to use M. Proudhon's language, a renunciation of all claims to economic science?
+
+M. Proudhon
+
+L'homme aux quarante ecus foresaw a M. Proudhon of the future:
+
+[^1]: "confines himself to recalling that at the seventh epoch of economic evolution" (credit) "when fiction had caused reality to vanish, and human activity threatened to lose itself in empty space, it had become necessary to bind man more closely to nature. Now rent was the price of this new contract." (T. II, p. 265.)
+
+[^2]: "Mr. Creator, by your leave; everyone is master in his own world; but you will never make me believe that the one we live in is made of glass."3
+
+[^3]: a Voltaire, "L'homme aux quarante ecus", Œuvres complètes de Voltaire, t. 45, Gotha, 1787, p. 44.—Ed.
+
+[^4]: s*
+
+
+
+
+
+**[p. 198]**
+
+The existence of rent once admitted, whatever its origin, it becomes a subject of a violent contention between the farmer and the landed proprietor. What is the ultimate result of this contention, in other words, what is the average amount of rent? This is what M. Proudhon says:
+
+"Ricardo's theory answers this question. In the beginnings of society, when man, new to earth, had before him nothing but huge forests, when the earth was vast and when industry was beginning to come to life, rent must have been nil. Land, as yet unformed by labour, was an object of utility; it was not an exchange value, it was common, not social. Little by little, the multiplication of families and the progress of agriculture caused the price of land to make itself felt. Labour came to give the soil its worth: from this, rent came into being. The more fruit a field yielded with the same amount of labour, the higher it was valued; hence the tendency of proprietors was always to arrogate to themselves the whole amount of the fruits of the soil, less the wages of the farmer—that is, less the costs of production. Thus property followed on the heels of labour to take from it all the product that exceeded the actual expenses. As the proprietor fulfils a mystic duty and represents the community as against the colonus, the farmer is, by the dispensation of Providence, no more than a responsible labourer, who must account to society for all he reaps above his legitimate wage In essence and by destination, then, rent is an instrument of distributive justice, one of the thousand means that the genius of economy employs to attain to equality. It is an immense land valuation which is carried out contradictorily by the proprietors and the farmers, without any possible collusion,3 in a higher interest, and whose ultimate result must be to equalise the possession of the land between the exploiters of the soil and the industrialists It needed no less than this magic of property to snatch from the colonus the surplus of his product which he cannot help regarding as his own and of which he considers himself to be exclusively the author. Rent, or rather property, has broken down agricultural egoism and created a solidarity that no power, no partition of the land could have brought into being The moral effect of property having been secured, at present what remains to be done is to distribute the rent." [II 270-72]
+
+All this tumult of words may be reduced firstly to this: Ricardo says that the excess of the price of agricultural products over their cost of production, including the ordinary profit and interest on the capital, gives the measure of the rent. M. Proudhon does better. He makes the proprietor intervene, like a deus ex machinal and snatch from the
+
+[^1]: a The original has a misprint: "collision" instead of "collusion".— Ed.
+
+[^2]: b Literally: god out of the machine. (In the theatre of antiquity actors playing the role of gods made their appearance by means of stage machinery.) Figuratively, a person who appears unexpectedly to save a situation.— Ed.
+
+
+
+
+
+**[p. 199]**
+
+Let us note also that in determining rent by the difference in fertility of the soil, M. Proudhon assigns a new origin to it, since land, before being assessed according to different degrees of fertility, "was not", in his view, "an exchange value, but was common". What, then, has happened to the fiction about rent having come into being through the necessity of bringing back to the land man who was about to lose himself in the infinity of empty space?
+
+Now let us free Ricardo's doctrine from the providential, allegorical and mystical phrases in which M. Proudhon has been careful to wrap it.
+
+Rent, in the Ricardian sense, is property in land in its bourgeois state, that is, feudal property which has become subject to the conditions of bourgeois production.
+
+We have seen that, according to the Ricardian doctrine, the price of all objects is determined ultimately by the cost of production, including the industrial profit; in other words, by the labour time employed. In manufacturing industry, the price of the product obtained by the minimum of labour regulates the price of all other commodities of the same kind, seeing that the cheap- est and most productive instruments of production can be mul- tiplied to infinity and that free competition necessarily gives rise to a market price, that is, a common price for all products of the same kind.
+
+In agricultural industry, on the contrary, it is the price of the product obtained by the greatest amount of labour which regulates the price of all products of the same kind. In the first place, one cannot, as in manufacturing industry, multiply at will the instru- ments of production possessing the same degree of productivity, that is, plots of land with the same degree of fertility. Then, as population increases, land of an inferior quality begins to be exploited, or new outlays of capital, proportionately less productive than before, are made upon the same plot of land. In both cases a greater amount of labour is expended to obtain a proportionately smaller product. The needs of the population having rendered necessary this increase of labour, the product of the land whose exploitation is the more costly
+
+[^1]: a Propriété (property) is explained by the intervention of the propriétaire (proprietor); rente (rent), by the intervention of the rentier (rent-receiver).—Ed.
+
+
+
+
+
+**[p. 200]**
+
+For the Ricardian doctrine to be generally true, it is essential3 that capital should be freely applicable to different branches of industry; that a strongly developed competition among capitalists should have brought profits to an equal level; that the farmer should be no more than an industrial capitalist claiming for the use of his capital on inferior land5 a profit equal to that which he would draw from his capital if it were applied in any kind of manufacture0; that agricultural exploitation should be subjected to the regime of large-scale industry; and finally, that the landowner himself should aim at nothing beyond the money return.
+
+It may happen, as in Ireland, that rent does not yet exist,d although the letting of land has reached an extreme development there. Rent being the excess not only over wages, but also over industrial profit,
+
+[^1]: a In the copy with corrections in Marx's hand and in the one presented to N. Utina, the beginning of the phrase was altered as follows: "Pour que la doctrine de Ricardo—les prémisses une fois accordées—soit généralement vraie, il faut encore"
+
+[^2]: ("For the Ricardian doctrine, once the premises granted, to be generally true it is moreover essential").—Ed.
+
+[^3]: In the copy with corrections in Marx's hand and in the one presented to N. Utina the words "à la terre" ("on the land") are substituted for "à des terrains- inférieurs" ("on inferior land"). The correction is reproduced in the French edition of 1896.—Ed.
+
+[^4]: The edition of 1847 had "par exemple, à l'industrie cotonnière" ("for example, in cotton industry") instead of "dans une manufacture quelconque" ("in any kind of manufacture"). The change was made in the copy with corrections in Marx's hand and in the one presented to N. Utina, and reproduced in the German edition of 1885 and the French edition of 1896.—Ed.
+
+[^5]: d In the 1847 edition this sentence began as follows: "En Irlande, la rente n'existe pas encore" ("In Ireland rent does not yet exist"). The changes were made in the copy with corrections in Marx's hand and in the one presented to N. Utina, and reproduced in the German edition of 1885 and the French edition of 1896.— Ed.
+
+
+
+
+
+**[p. 201]**
+
+Thus, far from converting the exploiter of the land, the farmer, into a simple labourer, and "snatching from the colonus the surplus of his product which he cannot help regarding as his own", rent confronts the landowner, not with the slave, the serf, the payer of tribute, the wage labourer, but with the industrial capitalist. Once constituted as rent, landed property has in its possession only the surplus over production costs, which are determined not only by wages but also by industrial profit. It is therefore from the landowner that rent snatched a part of his income.5 Hence, there was a big lapse of time before the feudal farmer was replaced by the industrial capitalist. In Germany, for example, this transformation began only in the last third of the eighteenth century. It is in England alone that this relation between the industrial capitalist and the landed proprietor has been fully developed.
+
+So long as there was only M. Proudhon's colonus, there was no rent. The moment rent exists, the colonus is no longer the farmer, but the worker, the farmer's colonus. The abasement of the labourer, reduced to the role of a simple worker, day labourer, wage-earner, working for the industrial capitalist; the intervention of the industrial capitalist, exploiting the land like any other factory; the transformation of the landed proprietor from a petty sovereign into a vulgar usurer: these are the different relations expressed by rent.
+
+Rent, in the Ricardian sense, is patriarchal agriculture trans- formed into commercial industry, industrial capital applied to land, the town bourgeoisie transplanted into the country. Rent, instead of binding man to nature, has merely bound the exploitation of the land to competition. Once established as rent, landed property itself is the result of competition, since from that time onwards it depends on the market value of agricultural produce. As rent, landed property is
+
+[^1]: a In the 1847 edition the end of this sentence read: "elle ne saurait exister dans les pays où, comme en Irlande, le revenu du propriétaire n'est qu'un prélèvement sur le salaire" ("It cannot exist in those countries where, as in Ireland, the landowner's income is a deduction from wages"). The changes were made in the copy with corrections in Marx's hand and in the one presented to N. Utina, and reproduced in the German edition of 1885 and the French edition of 1896.—Ed.
+
+[^2]: b In the copy with corrections in Marx's hand and in the one presented to N. Utina this paragraph has many changes, some of which are illegible. In the German edition of 1885 the last two sentences were omitted and instead the following sentence was added after the words "the industrial capitalist": "who exploits the soil by means of his wage workers, and who pays to the landowner as rent only the surplus over the production costs, including profit on capital". In the French edition of 1896 the two sentences mentioned are also omitted.— Ed.
+
+
+
+
+
+**[p. 202]**
+
+Ricardo, after postulating bourgeois production as necessary for determining rent, applies the conception of rent, nevertheless, to the landed property of all ages and all countries. This is an error common to all the economists, who represent the bourgeois relations of production as eternal categories.
+
+From the providential aim of rent—which is, for M. Proudhon, the transformation of the colonus into a responsible worker, he passes to the equalised distribution of rent.
+
+Rent, as we have just seen, is constituted by the equal price of the products of lands of unequal fertility, so that a hectolitre of corn which has cost ten francs is sold for twenty francs if the cost of production rises to twenty francs upon soil of inferior quality.
+
+So long as necessity forces the purchase of all the agricultural products brought into the market, the market price is determined by the cost of the most expensive product. Thus it is this equalisation of price, resulting from competition and not from the different fertilities of the lands, that secures for the owner of the better soil a rent of ten francs for every hectolitre that his farmer sells.
+
+Let us suppose for a moment that the price of corn is determined by the labour time needed to produce it, and at once the hectolitre of corn obtained from the better soil will sell at ten francs, while the hectolitre of corn obtained on the inferior soil will cost twenty francs. This being admitted, the average market price will be fifteen francs, whereas, according to the law of competition, it is twenty francs. If
+
+
+
+**[p. 203]**
+
+We understand such economists as Mill, Cherbuliez, Hilditch and others demanding that rent should be handed over to the state to serve in place of taxes. That is a frank expression of the hatred the industrial capitalist bears towards the landed proprietor, who seems to him a useless thing, an excrescence upon the general body of bourgeois production.
+
+But first to make the price of the hectolitre of corn twenty francs in order then to make a general distribution of the ten francs overcharge levied on the consumer, is indeed enough to make the social genius pursue its zigzag course mournfully—and knock its head against some corner.
+
+Rent becomes, under M. Proudhon's pen,
+
+"an immense land valuation which is carried out contradictorily by the proprietors and the farmers in a higher interest, and whose ultimate result must be to equalise the possession of the land between the exploiters of the soil and the industrialists". [I I 271 ]
+
+For any land valuation based upon rent to be of practical value, the conditions of present society must not be departed from.
+
+Now we have shown that the rent paid by the farmer to the landowner expresses the rent with any exactitude only in the countries most advanced in industry and commerce. Moreover, this rent often includes interest paid to the landowner on capital incorporated in the land. The location of the land, the nearness of towns, and many other circumstances influence the farm rent and modify the land rent. These peremptory reasons would be enough to prove the inaccuracy of a land valuation based on rent.
+
+On the other hand, rent could not be the invariable index of the degree of fertility of the land, since every moment the modern application of chemistry is changing the nature of the soil, and geological knowledge is just now, in our days, beginning to revolutionise all the old estimates of relative fertility. It is only about twenty years since vast lands in the eastern counties of England were cleared; they had been left uncultivated due to the lack of proper comprehension of the relation between the humus and the composition of the sub-soil.
+
+
+
+**[p. 204]**
+
+Finally, fertility is not so natural a quality as might be thought; it is closely bound up with the social relations of the time. A piece of land may be very fertile for corn growing, and yet the market price may induce the cultivator to turn it into an artificial pastureland and thus render it infertile.
+
+M. Proudhon has improvised his land valuation, which has not even the value of an ordinary land valuation, only to give substance to the providentially equalitarian aim of rent.
+
+"Rent," continues M. Proudhon, "is the interest paid on a capital which never perishes, namely—land. And as the capital is capable of no increase in matter, but only of an indefinite improvement in its use, it comes about that while the interest or profit on a loan (mutuum) tends to diminish continually through abundance of capital, rent tends always to increase through the perfecting of industry, from which results the improvement in the use of the land Such, in its essence, is rent." (Tome II, p. 265.)
+
+This time, M. Proudhon sees in rent all the characteristics of interest, save that it is derived from capital of a specific nature. This capital is land, an eternal capital, "which is capable of no increase in matter, but only of an indefinite improvement in its use". In the progressive advance of civilisation, interest has a continual tendency to fall, whilst rent continually tends to rise. Interest falls because of the abundance of capital; rent rises owing to the improvements brought about in industry, which result in an ever better utilisation of land.
+
+Such, in its essence, is the opinion of M. Proudhon. Let us first examine how far it is true to say that rent is interest on capital.
+
+For the landed proprietor himself rent represents the interest on the capital that the land has cost him, or that he would draw from.it if he sold it. But in buying or selling land he only buys or sells rent. The price he pays to make himself a receiver of rent is regulated by the rate of interest in general and has nothing to do with the actual nature of rent. The interest on capital invested in land is in general lower than the interest on capital invested in manufacture or commerce. Thus, for those who make no distinction between the interest that the land represents to the owner and the rent itself, the interest on land as capital diminishes still more than does the interest on other capital. But it is not a question of the purchase or sale price of rent, of the marketable value of rent, of capitalised rent, it is a question of rent itself.
+
+
+
+**[p. 205]**
+
+Farm rent can imply again, apart from rent proper, the interest on the capital incorporated in the land. In this instance the landowner receives this part of the farm rent, not as a landowner but as a capitalist; but this is not the rent proper that we are to deal with.
+
+Land, so long as it is not exploited as a means of production, is not capital. Land as capital can be increased just as much as all the other instruments of production. Nothing is added to its matter, to use M. Proudhon's language, but the lands which serve as instruments of production are multiplied. The very fact of applying further outlays of capital to land already transformed into means of production increases land as capital without adding anything to land as matter, that is, to the extent of the land. M. Proudhon's land as matter is the earth in its limitation. As for the eternity he attributes to land, we grant readily it has this virtue as matter. Land as capital is no more eternal than any other capital.
+
+Gold and silver, which yield interest, are just as lasting and eternal as land. If the price of gold and silver falls, while that of land keeps rising, this is certainly not because of its more or less eternal nature.
+
+Land as capital is fixed capital; but fixed capital gets used up just as much as circulating capital. Improvements to the land need reproduction and upkeep; they last only for a time; and this they have in common with all other improvements used to transform matter into means of production. If land as capital were eternal, some lands would present a very different appearance from what they do today, and we should see the Roman Campagna, Sicily, Palestine, in all the splendour of their former prosperity.
+
+There are even instances when land as capital might disappear, even though the improvements remain incorporated in the land
+
+In the first place, this occurs every time rent proper is wiped out oy the competition of new and more fertile soils; secondly, the improvements which might have been valuable at one time cease to be of value the moment they become universal owing to the development of agronomy.
+
+The representative of land as capital is not the landowner, but the farmer. The proceeds yielded by land as capital are interest and industrial profit, not rent. There are lands which yield such interest and profit but still yield no rent.
+
+Briefly, land insofar as it yields interest is land capital, and as land capital it yields no rent, it is not landed property. Rent results from the social relations in which the exploitation of the land takes place. It cannot be a result of the more or less solid, more or less durable nature of the soil. Rent is a product of society and not of the soil.
+
+
+
+**[p. 206]**
+
+According to M. Proudhon, "improvement in the use of the land"—a consequence "of the perfecting of industry"—causes the continual rise in rent. On the contrary, this improvement causes its periodical fall.
+
+Wherein consists, in general, any improvement, whether in agriculture or in manufacture? In producing more with the same labour; in producing as much, or even more, with less labour. Thanks to these improvements, the farmer is spared from using a greater amount of labour for a relatively smaller product. He has no need, therefore, to resort to inferior soils, and instalments of capital applied successively to the same soil remain equally productive. Thus, these improvements, far from continually raising rent, as M. Proudhon says, become on the contrary so many temporary obstacles preventing its rise.
+
+The English landowners of the seventeenth century were so well aware of this truth, that they opposed the progress of agriculture for fear of seeing their incomes diminish. (See Petty, an English economist of the time of Charles II.a)
+
+§ 5. STRIKES AND COMBINATIONS OF WORKERS
+
+We deny all these assertions, except that two and two make four. In the first place, there is no general rise in prices. If the price of everything doubles at the same time as wages, there is no change in price, the only change is in terms.
+
+Then again, a general rise in wages can never produce a more or less general rise in the price of goods. Actually, if every industry employed the same number of workers in relation to fixed capital or to the instruments used, a general rise in wages would produce a general fall in profits and the current price of goods would undergo no alteration.
+
+[^1]: "Every upward movement in wages can have no other effect than a rise in the price of corn, wine, etc., that is, the effect of a dearth. For what are wages? They are the cost price of corn, etc.; they are the integrant price of everything. We may go even further: wages are the proportion of the elements composing wealth and consumed reproductively every day by the mass of the workers. Now, to double wages is to attribute to each one of the producers a greater share than his product, which is contradictory, and if the rise extends only to a small number of industries, it brings about a general disturbance in exchange; in a word, a dearth It is impossible, I declare, for strikes followed by an increase in wages not to culminate in a general rise in prices: this is as certain as that two and two make four." (Proudhon, tome I, pp. 110 and 111.)
+
+[^2]: a W. Petty, Political Arithmetick (1676).—Ed.
+
+
+
+
+
+**[p. 207]**
+
+The rise and fall of profits and wages express merely the proportion in which capitalists and workers share in the product of a day's work, without influencing in most instances the price of the product. But that "strikes followed by an increase in wages culminate in a general rise in prices, in a dearth even"—these are notions which can blossom only in the brain of a poet who has not been understood.
+
+In England, strikes have regularly given rise to the invention and application of new machines. Machines were, it may be said, the weapon employed by the capitalists to quell the revolt of specialised labour. The self-acting mule? the greatest invention of modern industry, put out of action the spinners who were in revolt. If combinations and strikes had no other effect than that of making the efforts of mechanical genius react against them, they would still exercise an immense influence on the development of industry.
+
+Of all the towns in England, Bolton is the one in which radicalism is the most developed. The Bolton workers are known to be the most
+
+[^1]: "I find," continues M. Proudhon, "in an article published by M. Léon Faucher September 1845,b that for some time the English workers have got out of the habit of combination, which is assuredly a progress for which one cannot but congratulate them: but this improvement in the morale of the workers comes chiefly from their economic education. 'It is not on the manufacturers,' cried a spinning-mill worker at a Bolton meeting, 'that wages depend. In periods of depression the masters are, so to speak, merely the whip with which necessity arms itself, and whether they want to or not, they have to deal blows. The regulative principle is the relation of supply to demand; and the masters have not this power' Well done," cries M. Proudhon, "these are well-trained workers, model workers," etc., etc. "Such poverty did not exist in England; it will not cross the Channel." (Proudhon, tome I, pp. 261 and 262.)
+
+[^2]: a This term is given in English in the original.— Ed. b L. Faucher, "Les coalitions condamnées par les ouvriers anglais."—Ed.
+
+
+
+
+
+**[p. 208]**
+
+If in 1844 and 1845 strikes drew less attention than before, it was because 1844 and 1845 were the first two years of prosperity that English industry had had since 1837.87 Nevertheless none of the trades unions had been dissolved.
+
+Now let us listen to the foremen of Bolton. According to them manufacturers have no command over wages because they have no command over the price of products, and they have no command over the price of products because they have no command over the world market. For this reason they wish it to be understood that combinations should not be formed to extort an increase in wages from the masters. M. Proudhon, on the contrary, forbids combina- tions for fear they should be followed by a rise in wages which would bring with it a general dearth. We have no need to say that on one point there is an entente cordiale between the foremen and M. Proudhon: that a rise in wages is equivalent to a rise in the price of products.
+
+But is the fear of a dearth the true cause of M. Proudhon's rancour? No. Quite simply he is annoyed with the Bolton foremen
+
+[^1]: These two words are given in English in the original.—Ed.
+
+
+
+
+
+**[p. 209]**
+
+"A workers' strike is illegal, and it is not only the Penal Code that says so, it is the economic system, the necessity of the established order That each worker individually should dispose freely over his person and his hands, this can be tolerated, but that workers should undertake by combination to do violence to monopoly, is something society cannot permit." (Tome I, pp. 334 and 335.)
+
+M. Proudhon wants to pass off an article of the Penal Code as a necessary and general result of bourgeois relations of production.
+
+In England combination is authorised by an Act of Parliament, and it is the economic system which has forced Parliament to grant this legal authorisation. In 1825, when, under the Minister Huskisson, Parliament had to modify the law in order to bring it more and more into line with the conditions resulting from free competition, it had of necessity to abolish all laws forbidding combinations of workers.88 The more modern industry and competi- tion develop, the more elements there are which call forth and strengthen combination, and as soon as combination becomes an economic fact, daily gaining in solidity, it is bound before long to become a legal fact.
+
+Thus the article of the Penal Code proves at the most that modern industry and competition were not yet well developed under the Constituent Assembly and under the Empire.89
+
+Economists and socialists* are in agreement on one point: the condemnation of combinations. Only they have different motives for their act of condemnation.
+
+The economists say to the workers: Do not combine. By combination you hinder the regular progress of industry, you prevent manufacturers from carrying out their orders, you disturb trade and you precipitate the invasion of machines which, by rendering your labour in part useless, force you to accept a still lower wage. Besides, whatever you do, your wages will always be determined by the relation of hands demanded to hands supplied, and it is an effort as ridiculous as it is dangerous for you to revolt against the eternal laws of political economy.
+
+The socialists say to the workers: Do not combine, because what will you gain by it anyway? A rise in wages? The economists will
+
+[^1]: * That is, the socialists of that time: the Fourierists in France, the Owenites in England. F. E. [Note to the German edition, 1885.]
+
+
+
+
+
+**[p. 210]**
+
+The economists want the workers to remain in society as it is constituted and as it has been signed and sealed by them in their manuals.
+
+The socialists want the workers to leave the old society alone, the better to be able to enter the new society which they have prepared for them with so much foresight.
+
+In spite of both of them, in spite of manuals and Utopias, combination has not ceased for an instant to go forward and grow with the development and growth of modern industry. It has now reached such a stage, that the degree to which combination has developed in any country clearly marks the rank it occupies in the hierarchy of the world market. England, whose industry has attained the highest degree of development, has the biggest and best organised combinations.
+
+In England they have not stopped at partial combinations which have no other objective than a passing strike, and which disappear with it. Permanent combinations have been formed, trades unions, which serve as bulwarks for the workers in their struggles with the employers. And at the present time all these local trades unions find a rallying point in the National Association of United Trades,90 the central committee of which is in London, and which already numbers 80,000 members. The organisation of these strikes, combinations, and trades unions went on simultaneously with the political struggles of the workers, who now constitute a large political party, under the name of Chartists.
+
+The first attempts of workers to associate among themselves always take place in the form of combinations.
+
+Large-scale industry concentrates in one place a crowd of people unknown to one another. Competition divides their interests. But the maintenance of wages, this common interest which they have against their boss, unites them in a common thought of resis- tance—combination. Thus combination always has a double aim, that of stopping competition among the workers, so that they can carry on general competition with the capitalist. If the first aim of
+
+
+
+**[p. 211]**
+
+Economic conditions had first transformed the mass of the people of the country into workers. The domination of capital has created for this mass a common situation, common interests. This mass is thus already a class as against capital, but not yet for itself. In the struggle, of which we have pointed out only a few phases, this mass becomes united, and constitutes itself as a class for itself. The interests it defends become class interests. But the struggle of class against class is a political struggle.
+
+In the bourgeoisie we have two phases to distinguish: that in which it constituted itself as a class under the regime of feudalism and absolute monarchy, and that in which, already constituted as a class, it overthrew feudalism and monarchy to make society into a bourgeois society. The first of these phases was the longer and necessitated the greater efforts. This too began by partial combina- tions against the feudal lords.
+
+Much research has been carried out to trace the different historical phases that the bourgeoisie has passed through, from the commune up to its constitution as a class.
+
+But when it is a question of making a precise study of strikes, combinations and other forms in which the proletarians carry out before our eyes their organisation as a class, some are seized with real fear and others display a transcendental disdain.
+
+An oppressed class is the vital condition for every society founded on the antagonism of classes. The emancipation of the oppressed class thus implies necessarily the creation of a new society. For the oppressed class to be able to emancipate itself it is necessary that the productive powers already acquired and the existing social relations should no longer be capable of existing side by side. Of all the instruments of production, the greatest productive power91 is the revolutionary class itself. The organisation of revolutionary elements as a class supposes the existence of all the productive forces which could be engendered in the bosom of the old society.
+
+
+
+**[p. 212]**
+
+The condition for the emancipation of the working class is the abolition of all classes, just as the condition for the emancipation of the third estate, of the bourgeois order, was the abolition of all estates* and all orders.
+
+The working class, in the course of its development, will substitute for the old civil society an association which will exclude classes and their antagonism, and there will be no more political power properly so-called, since political power is precisely the official expression of antagonism in civil society.
+
+Meanwhile the antagonism between the proletariat and the bourgeoisie is a struggle of class against class, a struggle which carried to its highest expression is a total revolution. Indeed, is it at all surprising that a society founded on the opposition of classes should culminate in brutal contradiction, the shock of body against body, as its final denouement?
+
+Do not say that social movement excludes political movement. There is never a political movement which is not at the same time social.
+
+It is only in an order of things in which there are no more classes and class antagonisms that social evolutions will cease to be political revolutions. Till then, on the eve of every general reshuffling of society, the last word of social science will always be:
+
+[^1]: "Le combat ou la mort; la lutte sanguinaire ou le néant. C'est ainsi que la question est invinciblement posée."
+
+[^2]: George Sand.3
+
+[^3]: * Estates here in the historical sense of the estates of feudalism, estates with definite and limited privileges. The revolution of the bourgeoisie abolished the estates and their privileges. Bourgeois society knows only classes. It was, therefore, absolutely in contradiction with history to describe the proletariat as the "fourth estate".92 F. E. [Note to the German edition, 1885.]
+
+[^4]: "Combat or death, bloody struggle or extinction. Thus the question is inexorably put." (George Sand, Jean Ziska. Episode de la guerre des hussites. Introduction.) — Ed.
+
+
+
+Frederick Engels
+
+THE DECLINE AND APPROACHING FALL OF GUIZOT.—
+
+POSITION OF THE FRENCH BOURGEOISIE
+
+The English stage had better give over playing The School for Scandal* for, indeed, the greatest school of this sort has been set up in Paris, in the Chamber of Deputies. The amount of scandalous matter collected and brought forward there during the last four or five weeks, is really unprecedented in the annals of parliamentary discussion. You recollect the inscription Mr. Duncombe once pro- posed for your own glorious House of Commons, "The most degrad- ing and infamous proceedings take place within these walls". Well, here is a match for your own set of middle-class legislators; here are proceedings which will put British rascality to the blush. The honour of Old England is saved; Mr. Roebuck is outdone by M. de Girardin; Sir James Graham is beaten by M. Duchâtel.
+
+I shall not undertake to give you the whole list of scandalous affairs brought to the light within the last few weeks; I shall not say a word about the several dozen of bribery cases brought before the juries; not a word about M. Gudin, the ordnance officer of the King, who, not without some degree of cleverness, made an attempt to introduce the habits of the swell mob into the palace of the Tuileries93; I shall not give you a lengthy report of the dirty affair of Gen. Cubières, peer of France, formerly Minister of War, who, under pretext of bribing the ministry into granting the concession of allowing the formation of a mining company, cheated the said company out of forty shares, which he coolly put into his own pocket, and on account of which he is now under trial before the Chamber of
+
+[^1]: a R. Sheridan, The School for Scandal. A comedy in five acts.— Ed.
+
+
+
+
+
+**[p. 214]**
+
+M. Emile de Girardin, deputy and editor of the daily paper La Presse, supporting in both characters the new party of Progressive Conservatives, and for a considerable time past one of the most violent opponents of the Ministry, whom until lately he had supported, is a man of great talent and activity, but without any principles. From the beginning of his public career he unhesitatingly employed any means to make himself an important public character. It was he who forced Armand Carrel, the celebrated editor of the National, to a duel, and shot him, thus delivering himself from a dangerous competitor. The support of such a man, proprietor of an influential paper, and member of the Chamber of Deputies, was of course very important to the government; but M. de Girardin sold his support (for he always sold it) at a very high price. There was a deal of busi- ness transacted between M. de Girardin and the Ministry, but not always to the complete satisfaction of both parties. In the meantime, M. de Girardin prepared himself for any turn which affairs might take. Foreseeing the probability of a rupture with the Guizot Mini- stry, he collected accounts of scandalous transactions, bribings, and traffickings, which he was in the best position to learn, and which were brought to him by his friends and agents in high places. The turn which party discussions took this session showed to him that the fall of Guizot and Duchâtel was approaching. He was one of the principal actors in the formation of the new "Progressive Conserva- tive" party, and repeatedly threatened the government with the full weight of his wrath, if they persisted in their course. M. Guizot refused, in pretty scornful terms, any compromise with the new party. These detached themselves from the majority, and annoyed the government by their opposition. The financial and other discussions of the Chamber unveiled so much scandal, that MM. Guizot and Duchâtel were obliged to throw several of their colleagues overboard in order to save themselves. The vacant places, however, were filled by such insignificant men, that no party was satisfied, and the Ministry were rather weakened than fortified. Then came Cubières' affair, which elicited some doubts, even in the majority, as to the possibility to keep M. Guizot in office. Now, at last, when he saw the Ministry totally disorganised and weakened, now M. de Girardin thought the moment had arrived when he might bring forth his Pandora's box of scandal, and achieve the ruin of a tottering government, by revelations fit to shake the faith even of the "belly" of the Chamber.94
+
+
+
+**[p. 215]**
+
+
+
+[^1]: a Hence these tears. (Terence, Andria, Act I, Scene 1.) — Ed.
+
+
+
+
+
+**[p. 216]**
+
+There were, besides, some similar transactions brought forward by M. de Girardin, but these samples will be quite sufficient.
+
+Yesterday, in the Chamber of Deputies, M. de Girardin again got up and read some letters, from which it appeared that M. Duchâtel has caused the discussion in the above peerage affair to be printed at the public expense, and sent it to all town councils in the country; but that in this ministerial report neither M. de Girardin's nor M. Duchâtel's speeches were correctly reported; but, on the contrary, both of them were arranged so as to make M. de Girardin appear as a ridiculous calumniator, and M. Duchâtel in the light of the purest and most virtuous of men. As to the matter itself, he repeated all his assertions, and defied the government either to have them disproved by a parliamentary committee, or to bring him before a jury as a slanderer. In both cases, he said, he should be bound to give the names of the parties and all particulars, and thus be enabled to prove his accusations without placing himself in the position of a common informer. This excited a general storm in the Chamber. M. Duchâtel denied; M. de Girardin re-asserted; M. Duchâtel re-denied; M. de Girardin re-reasserted, and so on, the whole accompanied by the shouts and counter-shouts of the "choruses" of the Chamber. Other opposition members again defied the Ministry to have the matter looked into either by parliamentary inquiry, or by a trial. At last M. Duchâtel said,—
+
+[^1]: "A Parliamentary inquiry, gentlemen, would presuppose a doubt in the integrity of the government on the part of the majority; and, therefore, the day this inquiry should be granted our places would be occupied by others than us; if you have any doubt tell us so plainly, and we shall resign immediately."
+
+[^2]: "Then," said M. de Girardin, "there remains nothing but a trial. I am ready to undergo it; place me before a jury, if you dare."
+
+[^3]: "No," said M. Hébert, Minister of Justice, "we shall not, because the majority of the Chamber will judge."
+
+[^4]: "But," said M. Odilon Barrot, "this is not a political question; it is a legal one, and such a question is not within our competence, but of that of the public courts of law. If M. de Girardin has calumniated the government in his paper, why do you not have him tried for it?"
+
+[^5]: "We won't!" "Well, but there is a plain allegation against other parties, too, of trafficking in peerages; why not bring them up? And this affair with the Epoque and the opera
+
+
+
+"We do not get up a prosecution," replied M. Hébert, "because the character of the allegations, and the character of those who bring them forward, is not such as to make the truth of these allegations anything like probable to the legal advisers of the Crown!"
+
+All this was every moment interrupted by groaning, shouting, knocking and all sorts of noises in general. This incomparable .sitting, which has shaken the Guizot Ministry to its very foundation, was concluded by a vote, which proves, that if the faith of the majority may be shaken, their system of voting is not!
+
+"The Chamber, after having heard the explanations of the Ministry, and found them satisfactory, passes to the order of the day!"
+
+What do you think of that? Which do you prefer, the ministry or the majority, the Deputies of France or your own Commons? M. Duchâtel or Sir James Graham? I dare say you will find the choice a difficult one. There is, however, one difference betwixt them. The English middle classes have, up to this day, to struggle against an aristocracy, which, although in a state of dissolution and decomposi- tion, is not yet removed. The aristocracy of England always found some support in one fraction or the other of the middle classes themselves, and it was this division of the middle classes that saved the aristocracy from total ruin. At this moment the aristocracy is supported by the fund-holders, bankers, and owners of fixed incomes, and by a large part of the shipping trade against the manufacturers. The whole agitation for the repeal of the Corn Laws proves this.95 The advanced fraction of the English middle classes, therefore (I mean the manufacturers) will yet be able to carry out some progressive political measures which will more and more decompose the aristocracy. They will even be obliged to do so; they must extend their markets, which they cannot do without reducing their prices, which reduction must be preceded by a reduced cost of production, which reduced cost of production is mainly obtained by reduced wages, for reducing which there is no safer means than reduced price of the necessaries of life; and, to obtain this, they have no other means but reducing the taxes. This is the logical chain which ties the manufacturers of England to the necessity of destroying the Established Church, and reducing, or "equitably adjusting", the National Debt. Both these measures, and others in the same spirit, they will be forced to carry out as soon as they find, which they must, the market of the world insufficient to continually
+
+Indeed, the high bourgeoisie are in an awkward position. They had found, at last, in Guizot and Duchâtel, the men to govern them. They kept them in office seven years, and sent them at every election larger and larger majorities. And now, when all opposing fractions had been reduced to the utmost impotency in the Chamber,—now when Guizot and Duchâtel's days of glory seemed to have arrived, at that very moment a mass of scandal is discovered in the doings of the Ministry, that makes it impossible for them to remain in office, even if supported unanimously by the Chambers. There can be no doubt
+
+[^1]: UP"-
+
+
+
+
+
+**[p. 219]**
+
+Paris, June 26th, 1847
+
+[^1]: First published in The Northern Star Reprinted from the newspaper No. 506, July 3, 1847 with an editorial note:
+
+[^2]: "From our own correspondent in the French capital"
+
+
+
+Karl Marx
+
+THE COMMUNISM OF THE RHEINISCHER BEOBACHTERN
+
+Brussels, September 5.—In issue No. 70 of this newspaper an article from the Rheinischer] Beobachter is introduced with the words:
+
+"In issue No. 2t)6 the Rheinischer] Beobachter] preaches communism as follows."
+
+Whether or not this comment is intended ironically, Communists must protest against the idea that the Rheinischer Beobachter could preach "communism", and especially against the idea that the article communicated in issue No. 70 of the D[eutsche]-B[russeler]-Z[eitung] is communist.
+
+If a certain section of German socialists has continually blustered against the liberal bourgeoisie, and has done so, in a manner which has benefited nobody but the German governments, and if at present government newspapers like the Rheinischer] Beobachter, basing themselves on the empty phrases of these people, claim that it is not the liberal bourgeoisie but the government which represents the interests of the proletariat, then the Communists have nothing in common with either the former or the latter.
+
+Certain people have admittedly wished to lay the responsibility for this on the German Communists, they have accused them of being in alliance with the government.
+
+This accusation is ludicrous. The government cannot unite with the Communists, nor the Communists with the government, for the simple reason that of all the revolutionary parties in Germany the Communists are by far the most revolutionary, and that the government knows this better than anyone else.
+
+Can Communists unite with a government which has pronounced them guilty of high treason and treats them as such?
+
+
+
+**[p. 221]**
+
+It is inconceivable. Let us examine the so-called communism of the Rheinischer Beobachter, and we snail find that it is very innocent.
+
+The article begins:
+
+"If we examine our (!) social condition, then the greatest distress and the most pressing want reveal themselves everywhere (!), and we have to admit that much has been neglected. This is, indeed, a fact, and the only (!) question which arises, is what causes it. We are convinced that our constitution does not bear the responsibility for this, for (!) as far as social conditions are concerned matters are (!) still worse in France and England. Nevertheless (!) liberalism seeks the remedy in representation alone; if the people were represented, it would help itself. This is quite illusory to be sure, but nonetheless (!) extremely (!!) plausible."
+
+In this paragraph we see the Beobachter [observer] before us, in the flesh—the way he chews his pen, at a loss for an introduction, speculates, writes, crosses out, writes again, and then finally, after some considerable time, produces the above magnificent passage. In order to arrive at liberalism, his own inherited hobby-horse, he begins with "our social condition", that is, strictly speaking, the social condition of the Beobachter, which may very well have its ^un- pleasantnesses. By means of the extremely trivial observation that our social condition is miserable and that much has been neglected, he arrives, by way of some very thorny sentences, at a point where the only question which arises for him, is what causes it. This question arises for him, however, only to disappear again at once. The Beobachter does not, in fact, tell us what causes it, neither does he tell us what does not cause it, he tells us merely what he is convinced does not cause it, and that is, of course, the Prussian constitution. From the Prussian constitution, by means of a bold "for", he arrives at France and England, and from here to Prussian liberalism is for him of course only a trifling leap, which, supported by the least motivated "nevertheless" conceivable, he accomplishes with ease. And thus at last he has reached his favourite terrain, where he can exclaim, "This is quite illusory to be sure, but nonetheless extremely plausible." But nonetheless extremely!!!
+
+Is it possible that the Communists have sunk so low that the paternity of such utterances, such classical transitions, such ques- tions, arising and disappearing with ease, such remarkable Onlys, Fofs and Nevertheless''s, and above all the phrase "but nonetheless extremely", should be ascribed to them?
+
+
+
+**[p. 222]**
+
+We cannot be required to go into the contents of this introductory passage. It has no content other than the awkwardness of its form, it is merely the portal through which we step into the hall where our observing Consistorial Counsellor is preaching a crusade against liberalism.
+
+Let us listen:
+
+"Liberalism has above all the advantage that its approach to the people takes easier and more pleasant forms than does that of the bureaucracy." (Indeed, not even Herr Dahlmann or Gervinus writes such clumsy and angular prose.) "It speaks of the welfare and the rights of the people. In reality, however, it only pushes the people forward in order thereby to intimidate the government; it considers the people only as cannon fodder in the great onslaught against the power of the government. To Seize the power of the state—this is the true tendency of liberalism, the welfare of the people is only of secondary importance to it."
+
+Does the Herr Consistorial Counsellor believe he has told the people anything new with this? The people, and in particular the communist section of the people, knows very well that the liberal bourgeoisie is only pursuing its own interests and that little reliance should be placed on its sympathy for the people. If, however, the Consistorial Counsellor concludes from this that the liberal bourgeoisie exploits the people for its own ends in so far as the people participates in the political movement, then we must answer him: "That is quite plausible for a Consistorial Counsellor, to be sure, but nonetheless extremely illusory."
+
+The people, or, to replace this broad and vague expression by a definite one, the proletariat, has quite another way of reasoning than the gentlemen of the ecclesiastical ministry permit themselves to imagine. The proletariat does not ask whether the welfare of the people is a matter of secondary or of primary importance to the bourgeoisie, or whether the bourgeoisie wishes to use proletarians as cannon fodder or not. The proletariat does not ask what the bourgeoisie merely wishes to do, but what it must do. It asks whether the present political system, the rule of the bureaucracy, or the one the liberals are striving for, the rule of the bourgeoisie, will offer it the means to achieve its own purposes. To this end it only has to compare the political position of the proletariat in England, France and America with that in Germany to see that the rule of the bourgeoisie does not only place quite new weapons in the hands of the proletariat for the struggle against the bourgeoisie, but that it also secures for it a quite different status, the status of a recognised party.
+
+3Jj BS-S*^' lui >m > t. wnwii Mt 'w ZLZ£!**i n I« MI in «a • • « n M I H M l M I temmmm£?msmmsmmm?m M
+
+^ff TSSSX^SSXt
+
+Btlffel, Ctai Ug km 11 eq Koutt
+
+??. ^_** ,' w!l"JÎ"* , , ,"t **> **•»»• »•» $t«»ff«», « • »« «t«ff»m« »rr etlu K it enfin, S»» f* tdhn pi 50 Cnit. im ««tea« a Wt, M , n t k M n i , »K »m«Maif*<<i. m» t^t Htttn S^m, ttatrt »a* beta»«»*» «antra u» an »r« 9ifnib<i(jn.etatioi Hii in »t«f M t t t » S t t » U t « , M«.>tt» •. ( . • »tlffcl,
+
+3 » ••ik.ii^L
+
+T i a M B > »t«.
+
+. -_ J_JM> ftiïA *»*»»*»
+
+Illi wmti JatniàH—mim. Ma HJMJ ®E=?
+
+• T a S a a T Î . Ummm â . a l » ta V • M ( ü < l l i M M > u M M a > > • 4 M t a » j M M (a a . w kaki I É M I I
+
+rc-ixss- -. M. •J»*-. f a * a _ f c â a a a» Md a a . Na
+
+51^tt^gg0>|
+
+£JUÄ.Äa Sys S
+
+9m I M I M tarttt M Itvjni Pa «Mfc*
+
+ei* •»•» «iii m « a * * . X T t * . • N *•» M a l * l W l a * a l a a i l a , a a » a a a « U m M ri« ak Ni Bakaal « n » aa, a» Ma lili.il «aa N. a i a Tkaa» a i a a i ii MHiiili i «aaaa Baa Maa
+
+ui ML* wa M wja ' j a a a a t
+
+« T i l I l a T ^ a a j a a l i a » . « » . •Sa ma m Iah* M a a * aakal " "" " Ça «V«lii—| k â k^kjiaj Piaai Bnaj
+
+• a a a S B T a i S * M a " « 3 S Ä « C l B » M M I E . j p a . j a t a a a a j U Wfc »»»laa
+
+a a a a a a a a a « M Wliia Mia 0a V aaa Ta» ak M a M a , M| « n i ana<<
+
+" " f e a - a - a - a :
+
+. • a ak a.ft. «!| aatou tajjjinakiiii,
+
+« T l a l l i i l a a i Ca Hat «a Man »a. a» a a « « • • • I» a> tail, a a a M a t tjk a* II iiiiii ak «iiiia>.| à a« e*a> N» a t aa Hj Tfc j a k a a» »Ma» M M . fl
+
+a m aaa Midai aia a» tat a n a , k • M t * M u M a . torn a M M Ha an» a«, an a a * I!) Hal i"l i l n l i i -
+
+yi aaaa Km M l a a la Biiltaa a * Mky Tai pb. ak fi i m y a Ha» Irfaa a
+
+awri N. aa fi a a M a â NRMt Uaa äa> l a a l a i H j a i -- • - - B M a l a n a i
+
+»>!?itîaf MU?!'i;*|' " ^ ^ ^
+
+aa an Maaaaa | t a a . aaja failli «ai. fitaa aa »lil^atll. aaiiiaïamèaa W
+
+» a aaa) a S a ' k fcafaua. a k k V* l a j k a . aj MW Wnaa »a fana Mta'
+
+W H M l i aa» »mi lin |li 1 l aaa aka. aaa aaa lalaaaaa Na. »i |a Maa
+
+M3at. ara) aaaa ak a wjaai Raa, a _^_ . _ . » — »a«*itkka«) a «naïai .Aara»1:
+
+i»wiiii-a«wé*«,> Vitf Ui I M «MHMW wl
+
+g R %m wm m Mmtmtmtm H m w i j n f c i C m i MM Mi «nin-mi-iitt. fit •0to Mt>
+
+m ftc «MM 3k H»tfft Mtfvijt, M ••**"• C f » *|bai |tt< «Mt wmi| |i h m HI. Vnm A i *«T *"»flt-Ti-irt ikn M ha Cab« (Mn, •« IH •NMttl B»a T>WW k«1 Bt Mt, i HMtt M M «i I« n MHai Bnw«m« WArtij-, fût l%n Etonfl w>l«i Hrni, ft Mtf Wn an INM «wnrtttni Cal it MU* |Mt vl-n M«. fit mv- Jl MTrjl MMlta A>, a*"
+
+ZM «-«, <*«, MM M Ht «ta* M)f M •«*•
+
+rÄ-HStts
+
+«sn
+
+Ita ta «rttis M «talni MM, • • ta H». girtad W« rwitat tat«. -M MM •Hiwltnl»! BM> M m » , M « frtat Jti H. V M |Mt_tat n »
+
+•ttafftart rrtaat |i M M . MM« M M ta» IMfc
+
+kutta »M «rtral MW» In fyen J(MMI«W(J*I M . .Brft Ml" M» (*Mta few Jki V^t ri«* Mt Mf tai t St M* Mt. MM tai a»*.'*- 9ttart> «Ma ta Utattm Dwt«MW.
+
+9M-AMVT i Nf an«. Bwti*t- Mt Mt KHt:
+
+r « BIIÉII|M Ct«*-t M M -»»-*-. Mt Jtaflta_Mnta-«MMl taw Iiii R. fcty
+
+XNfft Mltllr MMtal JUMtta Tiatatl M, Ht M kl
+
+MT s « Mnk -w* Ck et UJét M* «-Wat MT fa M Xt MMI M l MI
+
+ftf MM Uff M. Dk AMf Wt Mf )_.. _. ___ . H . 3*1 MMift fl MMM -mm\1b<m Cmm% kt T t l »
+
+ta e * u - . ' M * 9t Mhwt. tan» Mt k M* *c* MMMMM « M « ta to Mta-nrt «ffttnt yfta>M M t
+
+Sa CIM» M at«>t ta St», ftaktti ta MM MI ït Wtrtetal. ». t. ta«St M» M tttll«-«, M*t • • « • ' l i n Xrtat*MR« ka»}! m ta> Hi Hfc •4 Ma 9tafeft«f( *n* Z««fft M * . 9ta mfcl Mta Sit MTMwta. fa» fit tai lm$m.tit «tat Gtitv-« Mi Mf M»«, duf ta r«Mt «ta tab« te« Jtatam. INt <ta<iy WMIMIC «Mf M ta ttatw Mt N*M*t itl ta, ta| fit M*«*-- v « M « * . M» V»M (»t W« Wt XMritt Mtalra H »m. tm •tta Mfat imta M ttrtf M. w« tat M Mtta UM» fe***«. _ t B«wf u Wft «if» M pa* • « * M« k«
+
+[^1]: eei »!••••«»•• i n «»ci.ir«..
+
+[^2]: «••••«ut«. • »tlfftl. «. taja. - k h l H W • M M aa» * » a » IN. g - J ü Ü « " ^ J a» i a ä « M ab * • > - _ „_ _ _
+
+[^3]: aa*.-
+
+[^4]: S k l a a a a « i a a » a a Naaa ak *
+
+[^5]: "m " . •<• »••« «.lit«"«.
+
+[^6]: akiarn jtft~.^fh M aaa_ aaaaa
+
+[^7]: faa kaa a i anaka C a H tl il i II i il. Ni aan klkfe t a . aau NI, aa N# M a t a i «. a)aft a a? Na tkai ari> Ni foc m a M Ci N af a Twkf M. N M m k 8>IN a Haa. aaff a haaa. Cad » a allai iaaci an. a M a t a M a
+
+[^8]: - •• " " a l a ï a i N
+
+[^9]: liii|<a|l l , M < a < M a , aa M * aalla M piia Kki tjafafa«, Ba Ni » • Ma «n MTiai auaa n aiaadl aal «ta« J a - a * twkaa - • tajua>, aa a Ma |a a « a a a a ï a M i l K i a a a S a Mas « r a i NI a, NUN « l o a B M Nia Ta Ulaw«.- aa lataj M a«. Naa. m» * * « a a ) mt kaa M a a Zaua aaaajl, a a aanfa t a Ca «
+
+[^10]: Ma M ak M h a a a Ja Ua M. af a a N*> M a a tta Uaa »m * Wail aa N lk «a N a a a . i . l n a â a a a . ( M l . » a l a a a <a « a « B Mka. Ca/I In najlaa»
+
+[^11]: îkti Tla» .«a», a » a . i " » ï i * * • i Sa V "^"ASÎf Ja Twî N»»*|NT a a a »alia aa. «a liiaillai Cajkkaa M | , St ,|i°y S*! S a N J A a a a i T a «
+
+[^12]: 0 all Ma a i l k aaa' Oaki M t a k a t a a i Haar p. 4. t l • Maa. at t a M » a » • • • aaaa a n*a a ».,, w. aaa m mm Ma. • H fa m » a a aa. ( t a a a j a t a
+
+[^13]: mm aa». * aaaa» a K a a f l a t V a Î T k a i r é i « a a . a k j à W H b a _a> IBIa-aai«.
+
+[^14]: Éar ATaïAÏ*-- E T H M ( | M r l M i • • • _ * • : l a a a - . V a . »4Xaïlsv:wa-A:
+
+[^15]: E 5 U . M a ad a Maa» « . H a f f «
+
+[^16]: Mm, tu f Tmiumm r«f M«n UN, «•**«, df •M ta 1-j Ela V« 9a M«-MMi M It.MM. lift. IN« tntrtttiai fr-*l Rt Ai, ^ »M •lattal W Witt»*!» »t W tla Ullèl Nt t» Pi Mt ta M. r i * 1>t»lrt-tvii ft«gt atai, MM ta Cl Mti ^ttmt U»im»ntmtim Urmwm$Htm\mf Um. 9*fn M. •» ta KN> vtattttt i URM». Nt *mf*-fi ta •Mtw Nhtat, *ct M M« tat (itadka trlnta.
+
+[^17]: Ml «M, ffta figura imtdt w nrtién. !«*• |j( rf M» Mt M|, ht HMi Mt e*ta-| M Ttta. i Miu« tai t N,)UM*, 8r4nftd* wl Xnn«j «M ta ta .NM&UM» W «n}lfifltai. m tu (ctai, M Nt $tt Tftfca-ft ta P#*tfj«Wf H ta» "Pltlila TUt l M*t Rit |düt ww BMfta im. l Mf( | t | t - Mt »•«• «talic a Nt a>M» |ittt, faata M a MU «*-> la M §MU «*Rt* t?ltl HU. MM C l t l a U t M JWInl Mtt Vn Haf. •trf Mn. ttrr HS?» al. Ht M a n af Nt Na Ha 3aa*> Ha) • l a a r a a a «M. .»< mmrn m kkliianafai 3aaa
+
+[^18]: «al Ni tjialaiaai naaait Caa^ •at aal N mmrn Nfflk Na X-r.~ ,. t.
+
+[^19]: JBk S a a . aa.*aka « l a l ( a «an
+
+[^20]: » a a Ä f t * ^ a r £ r ' a ) M a a» a a a M» «ak Wja^N. a a >
+
+[^21]: a a J a ï S a i «aaaaa a l a M I a , a l Ba V Maa ka «ta» f. ak > a a a j a a. aa ^ J l ^ ? 2 ^ 2 SSSl, 2?NMaa aa*àkkt
+
+[^22]: •tetttttw, Mt St|ltn M|, Mt ta ta ffi M-M ta «*»-*• M* W*Nt«*t liat M) MM ta« «rf Mottof Mttft ta Btnh Vmi ta«, itat |<lfc- B** W M I I I trio, ta 3tt|itn M| t«M M ta tttar.MMMt.Mt ta Jbtautvratahi. «M «MM Mt VMRf Mtfit. Ht «rtsfflbt aa-tv|f«n M t4-MMM« Itat M Ata M*MM.
+
+[^23]: IHt fftatl MMI«l Mtt Mart, tlf* MT Mt « - taf NH MtttaÜMft (rt-. tl) M « ta Iwtl M MC la Mmteièlwa« tika 4b< Vawtrfmi.
+
+[^24]: „ZSi ita fftléfrrl- p. ti. A n tata Aita. wn, »«in ^ t »MMC H. Mk Otriitrt. ta«!, »a| n «it M»M> •fftrt (MK. »M H»IM, Mt ff Mfftt »**>€. Jtit (IM Mttt*. UMêmtt grrt MH, BM> in*« 9Q3éZ Nt MMmta T- f. H. * « M«f ta« |Mf M « S C I «Jt MMM, M - M*< -tl « d | ta ta IMM^ fcta7«&Z i MMtfl N I M MMM Milkt« Cl.ft M.Mt. M M* ratatan V É M «tatf Kti. XM tatta Olr*|« «i N M Mt «t Mtt«. ** t W Mt«t|t 2ta M «mft BI p i tl Uf R. MM M M M »rrt «.ta « * - * - * i U f l i M. « M«t M t VMft MM MMAR ta 3a Un Mfcy « M , ta. » i i - > > M > J M r _ , MU t Mt M f-Utt, M^Xt Wk MM It Mt) ««•.'
+
+[^25]: JHtaf ta tankt frfta* M« «M» « a tt M>«M^kf>« taw-) t | ^
+
+[^26]: - s * . * - . ' -» » «•>*. M « ta f « ta»
+
+[^27]: ft^a. au» N l a «all.aa T.aa I I I M U I M«*a. aaaa aaaa anaaj W M a ( M a . S * l l l t « l « a . a a a M t a M a V S : »a M a i a â S i l a a aa»7B5»>" a a «äjaai a MNia«. laa. H a a
+
+[^28]: A page of the Deutsche-Brüsseler-Zeitung with Marx's "Communism of the Rheinischer Beobachter" and the beginning of Engels' essays " G e r m a n Socialism
+
+[^29]: in Verse and Prose"
+
+
+
+
+
+
+
+**[p. 225]**
+
+But in the ecclesiastical ministry, where the Rheinischer] Beobachter is edited, they have queer ideas about the proletariat. They think they are dealing with Pomeranian peasants or with Berlin loafers. They think they have reached the greatest depths of profundity when they promise the people no longer panem et circenses,a but panem
+
+et religionemb instead. They delude themselves that the proletariat wishes to be helped, they do not conceive that it expects help from nobody but itself. They do not suspect that the proletariat sees through all these empty consistorial phrases about the "welfare of the people" and bad social conditions just as well as through the similar phrases of the liberal bourgeoisie.
+
+And why is the welfare of the people only of secondary importance to the bourgeoisie? The Rheinischer] Beobachter replies:
+
+"The United Diet has proved it, the perfidy of liberalism is exposed. The Income Tax was the acid test of liberalism, and it failed the test."
+
+These well-meaning Consistorial Counsellors, imagining in their economic innocence that they can use the Income Tax to throw dust in the eyes of the proletariat!
+
+The Slaughter and Milling Tax directly affects wages, the Income Tax affects the profit of capital. Extremely plausible, Herr Consis- torial Counsellor, isn't it? But the capitalists will not and cannot allow their profits to be taxed with impunity. This follows from com- petition itself. So within a few months after the introduction of the Income Tax, wages will therefore have been reduced to precisely the extent by which they were actually raise.d by the abolition of the Slaughter and Milling Tax and by the reduced food prices resulting from this.
+
+The level of wages expressed, not in terms of money, but in terms of the means of subsistence necessary to the working man, that is the level of real, not of nominal wages, depends on the relationship between demand and supply. An alteration in the mode of taxation may cause a momentary disturbance, but will not change anything in the long run.
+
+[^1]: a Bread and games.— Ed. b Bread and religion.— Ed.
+
+
+
+
+
+**[p. 226]**
+
+What, then, does all this talk about the Income Tax amount to?
+
+In the first place, the proletariat is not at all, or only momentarily, interested in the whole matter.
+
+In the second place, the government, which in levying the Slaughter and Milling Tax comes daily into direct contact with the proletariat and confronts it in a hateful fashion, the government remains in the background where the Income Tax is concerned, and forces the bourgeoisie to assume in full the odious business of pressing down wages.
+
+The Income Tax would thus be of benefit to the government alone, hence the anger of the Consistorial Counsellors at its rejection.
+
+But let us concede even for a moment that the proletariat has an interest in the matter; should this Diet have granted it?
+
+By no means. It ought not to have granted moneys at all, it should have left the financial system exactly as it was so long as the government had not fulfilled all its demands. The refusal of moneys is, in all parliamentary assemblies, the means by which the government is forced to yield to the majority. This consistent refusal of moneys was the only thing in which the Diet behaved energetical- ly, and that is why the disappointed Consistorial Counsellors have to try and render it suspicious in the eyes of the people.
+
+Quite correct, and it is indeed a purely bourgeois measure. For this very reason, though, the bourgeoisie is able to reject it when it is proposed to it at the wrong time by ministers whom it cannot trust an inch.
+
+We shall, incidentally, add this confession concerning the paternity of the Income Tax to the record; we shall find it useful later on.
+
+After some exceptionally vacuous and confused twaddle the Consistorial Counsellor suddenly stumbles over the proletariat in the following manner:
+
+[^1]: "And yet," the Rheinischer] Beobachter] continues, "the organs of the liberal press quite appropriately raised the matter of the Income Tax."
+
+[^2]: "What is the proletariat?" (This is yet another of those questions which arise only to remain unanswered.) "It is no exaggeration when we" (that is, the Consistorial Counsellors of the Rheinischer] Beobachter], not, however, the other profane newspapers) "state that one-third of the people has no basis for its existence, and another third is on the decline. The problem of the proletariat is the problem of the great majority of the people, it is the cardinal question."
+
+
+
+
+
+**[p. 227]**
+
+"The Diet," it is further declared, "considered the question of principle to be the cardinal question, that is, the question of whether or not this exalted assembly should receive state power. And what was the people to receive? No railway, no annuity banks, no tax relief! Thrice happy people!"
+
+Observe how our sleek-pated Consistorial Counsellor is gradually beginning to show his fox's ears. "The Diet considered the question of principle to be the main question." The blessed simplicity of this amiable blind-worm! The question as to whether a loan of 30 millions, an Income Tax providing a revenue not to be determined in advance, an annuity bank by means of which 400 to 500 millions can be raised on the domains—as to whether all this should be put at the disposal of the present dissolute and reactionary government, thus rendering it independent for an eternity, or whether it should be kept short, be rendered submissive to public opinion by the withdrawal of moneys, this our pussy-footing Consistorial Coun- sellor calls the question of principle!
+
+"And what will the people receive?" asks the sympathetic Consistorial Counsellor. "No railway"—thus it will also avoid paying any taxes to cover the interest on the loan and the inevitable big losses in the running of this railway.
+
+"No annuity banks!" Our Consistorial Counsellor acts just as if the government wished to give annuities to the proletarians, doesn't he? But, on the contrary, it wanted to give annuities to the nobility, for which the people would have had to pay. In this way it was to be made easier for the peasants to buy themselves free from compulsory labour service. If the peasants wait a few years more they will probably no longer need to buy themselves free. When the lords of the manor come under the pitchforks of the peasants, and this could easily happen before very long, then corvée system will cease of its own accord.
+
+"No Income Tax. " But so long as the Income Tax brings no income to the people, this is a matter of utter indifference to it.
+
+[^1]: 9—1826
+
+
+
+
+
+**[p. 228]**
+
+Who still dares to claim that the German press is not free? The Rheinischer] Beobachter] employs here with complete impunity a turn of phrase which many a French provincial jury would without more ado declare to be an incitement of the various classes of society against one another and cause to be punished.
+
+The Consistorial Counsellor behaves, incidentally, in a terribly awkward manner. He wishes to flatter the people, and does not even credit it with knowing what a question of principle might be. Because he has to feign sympathy for the people's hunger, he takes his revenge by declaring it to be stupid and politically incompetent. The proletariat knows so well what the question of principle is that it does not reproach the Diet for having won it, but for not having won it. The proletariat reproaches the Diet for having stayed on the defensive, for not having attacked, for not having gone ten times further. It reproaches it with not having behaved decisively enough to make possible the participation of the proletariat in the movement. The proletariat was certainly incapable of showing any interest in the Privileges of the Estates. But a Diet demanding trial by jury, equality before the law, the abolition of the corvée system, freedom of the press, freedom of association and true representa- tion, a Diet having once and for all broken with the past and formulating its demands according to the needs of the present instead of according to the old laws—such a Diet could count on the strongest support from the proletariat.
+
+The Beobachter continues:
+
+The Herr Consistorial Counsellor may calm himself. A Diet that could not even get the better of the Prussian government will be given short shrift by the proletariat when the need arises.
+
+Either the Consistorial Counsellor wishes to mock his readers and merely say that the Income Tax removes limitless poverty in order to replace it with limited poverty, and more of a similar kind of bad Berlin jokes—or he is the greatest and most shameless ignoramus in
+
+[^1]: "And may God grant that this Diet should not absorb the power of the government, otherwise an insuperable brake will be put upon all social improve- ments."
+
+[^2]: "It has been said," the Consistorial Counsellor observes further, "that the Income Tax leads to revolution, to communism. To revolution, to be sure, that is to say, to a transformation of social relations, to the removal of limitless poverty."
+
+
+
+
+
+**[p. 229]**
+
+But who can reply seriously to such absurdities? It is further stated:
+
+"Also to communism, as it happens to be understood Where all relations have been so intertwined with one another and brought into flux by trade and industry that the individual loses his footing in the currents of competition, by the nature of the circumstances he is thrown upon the mercy of society which must compensate in respect of the particular for the consequences of the general fluctuations. Hence society has a duty of solidarity in respect of the existence of its members."
+
+And there we are supposed to have the communism of the Rh[einischer] Beobachter] Thus—in a society such as ours, where nobody is secure in his existence, in his position in life, society is duty bound to secure everybody's existence. First the Consistorial Counsellor admits that the existing society cannot do this, and then he demands of it that it should nevertheless perform this impossible feat.
+
+But it should compensate in respect of the particular for that for which it can show no consideration in its general fluctuations, this is what the Consistorial Counsellor means.
+
+"One-third of the people has no basis for its existence, and another third is on the decline."
+
+Ten million individuals, therefore, are to be individually compen- sated for. Does the Consistorial Counsellor believe in all seriousness that the pauvre* Prussian government will be able to achieve this?
+
+To be sure, and what is more by means of the Income Tax, which leads to communism, as it happens to be understoodby the Rh[einischer]
+
+Beobachter.
+
+Magnificent. After bemusing us with confused balderdash about alleged communism, after declaring that society has a duty of solidarity in respect of the existence of its members, that it has to care for them, although it cannot do so, after all these aberrations, contradictions and impossible demands, we are urged to accept the Income Tax as the measure which will resolve all contradictions,
+
+[^1]: a Poor.— Ed.
+
+
+
+
+
+**[p. 230]**
+
+We refer to Herr von Duesberg's memorandum on the Income Tax, which was presented to the Diet.a In this memorandum employment had already been found for the last penny of the revenue from the Income Tax. The hard-pressed government had not a farthing to spare for the compensation in respect of the particular for general fluctuations, for the fulfilment of society's duties of solidarity. And if, instead of ten million, only ten individuals had been through the nature of circumstances thrown upon Herr von Duesberg's mercy, Herr von Duesberg would have rejected all ten of them.
+
+But no, we are mistaken; besides the Income Tax the Herr Consistorial Counsellor has yet another means for introducing communism, as he happens to understand it:
+
+"What is the Alpha and Omega of the Christian faith? The dogma of original sin and redemption. And therein lies the association in solidarity of humanity in its highest potential: One for all and all for 6ne."
+
+Thrice happy people! The cardinal question is solved for all eternity! Under the double wings of the Prussian eagle and the Holy Ghost, the proletariat will find two inexhaustible springs of life: first, the surplus from the Income Tax above the ordinary and extraordinary needs of the state, which surplus equals zero, and second, the revenues from the heavenly domains of original sin and redemption, which likewise equal zero. These two zeroes provide a splendid basis for the one-third of the people which has no basis for its existence, a powerful support for the other third which is on the decline. Imaginary surpluses, original sin and redemption will undoubtedly satisfy the people's hunger in quite another way than the long speeches of liberal deputies! It is further stated:
+
+And we, gentlemen, we bureaucrats, judges and Consistorial Counsellors of the Prussian state, practise this consideration by having people broken on the wheel, beheaded, locked up and flogged to our heart's content, thereby "leading" the proletariat "into the temptation" to have us later similarly broken on the wheel, beheaded, locked up and flogged. Which will not fail to occur.
+
+[^1]: "We also pray, in the Lord's prayer: 'Lead us not into temptation.' And what we supplicate for ourselves we ought to practise with regard to our fellow human beings. Our social conditions undoubtedly tempt man, and the excess of poverty incites to crime."
+
+[^2]: a Duesberg, von. Denkschrift, betreffend die Aufhebung der Mahl- und Schlachtsteuer, die Beschränkung der Klassensteuer und die Erhebung einer Einkommensteuer.—IEd.
+
+
+
+
+
+**[p. 231]**
+
+Indeed, with absurd blusterings about society's duties of solidarity, with imaginary surpluses and unacceptable bills of exchange on God the Father, Son and Company.
+
+"We can also save ourselves all this tedious talk of communism," opines our observing Consistorial Counsellor. "If only those who have the vocation for it develop the social principles of Christianity, then the Communists will soon fall silent."
+
+The social principles of Christianity have now had eighteen hun- dred years to be developed, and need no further development by Prussian Consistorial Counsellors.
+
+The social principles of Christianity justified the slavery of antiq- uity, glorified the serfdom of the Middle Ages and are capable, in case of need, of defending the oppression of the proletariat, even if with somewhat doleful grimaces.
+
+The social principles of Christianity preach the necessity of a ruling and an oppressed class, and for the latter all they have to offer is the pious wish that the former may be charitable.
+
+The social principles of Christianity place the Consistorial Counsellor's compensation for all infamies in heaven, and thereby justify the continuation of these infamies on earth.
+
+The social principles of Christianity declare all the vile acts of the oppressors against the oppressed to be either a just punishment for original sin and other sins, or trials which the Lord, in his infinite wisdom, ordains for the redeemed.
+
+The social principles of Christianity preach cowardice, self- contempt, abasement, submissiveness and humbleness, in short, all the qualities of the rabble, and the proletariat, which will not permit itself to be treated as rabble, needs its courage, its self-confidence, its pride and its sense of independence even more than its bread.
+
+The social principles of Christianity are sneaking and hypocritical, and the proletariat is revolutionary.
+
+So much for the social principles of Christianity. Further:
+
+Have we? There has.not been a single word of this hitherto. However, let it stand. And what does the social reform of the monarchy consist in? In promulgating an Income Tax stolen from the liberal press, which is to provide surpluses the Minister of Finance knows nothing about, in the abortive Land Annuity Banks,
+
+[^1]: "We have acknowledged social reform to be the most distinguished vocation of the monarchy."
+
+
+
+
+
+**[p. 232]**
+
+"The interests of the monarchy itself makes this advisable"—how low, then, the monarchy must have sunk!
+
+"The distress in society demands this"—for the moment it demands protective tariffs far more than dogmas.
+
+"The gospel recommends this"—this is recommended by every- thing in general, only not by the terrifyingly barren condition of the Prussian State treasury, this abyss, which, within three years, will irrevocably have swallowed up the 15 Russian millions. The gospel recommends a great deal besides, among other things also castration as the beginning of social reform with oneself (Matth[ew] 19:12).
+
+"The monarchy," declares our Consistorial Counsellor, "is one with the people."
+
+This pronouncement is only another form of the old "l'état c'est raoi",a and precisely the same form, in fact, as was used by Louis XVI against his rebellious estates on June 23, 1789: "If you do not obey, then I shall send you back home"—"et seul je ferai le bonheur de mon peuple" .b
+
+The monarchy must indeed be very hard-pressed if it decides to make use of this formula, and our learned Consistorial Counsellor certainly knows how the French people thanked Louis XVI for its use on that occasion.
+
+So long, that is, as those broad shoulders do not, with one powerful heave, throw this burdensome superstructure into the gutter.
+
+In this passage the Herr Consistorial Counsellor has unfortunately taken the boastful appeal To His People, made by Frederick William in his Speech from the Throne,98 too seriously. Its last word is—overthrow of the aristocracy, overthrow of the bourgeoisie, creation of a monarchy drawing its support from the people.
+
+If these demands were not pure fantasies they would contain in themselves a complete revolution.
+
+We have not the slightest wish to argue in detail that the
+
+[^1]: "The throne," the Herr Consistorial Counsellor assures us further, "must rest on the broad foundation of the people, there it stands best."
+
+[^2]: "The aristocracy," thus concludes the Herr Consistorial Counsellor, "leaves the monarchy its dignity and gives it a poetical adornment, but removes real power from it. The bourgeoisie robs it of both its power and its dignity, and only gives it a civil list. The people preserves to the monarchy its power, its dignity and its poetry."
+
+[^3]: a "I am the state" (expression attributed to Louis XIV).— Ed. "And alone I shall create the happiness of my people." — Ed.
+
+
+
+
+
+**[p. 233]**
+
+We merely wish to make some well-intentioned comments to those gentlemen who would like to rescue the apprehensive Prussian monarchy by means of a somersault into the people.
+
+Of all political elements the people is by far the most dangerous for a king. Not the people of which Frederick William speaks, which offers thanks with moist eyes for a kick and a silver penny; this people is completely harmless, for it only exists in the king's imagination. But the real people, the proletarians, the small peasants and the plebs—this is, as Hobbes says, puer robustus, sed malitiosus,* a robust, but ill-natured youth, which permits no kings, be they lean or fat, to get the better of him.
+
+This people would above all else extort from His Majesty a constitution, together with a universal franchise, freedom of association, freedom of the press and other unpleasant things.
+
+And if it had all this, it would use it to pronounce as rapidly as possible on the power, the dignity and the poetry of the monarchy.
+
+The current worthy occupant of this monarchy could count himself fortunate if the people employed him as a public barker of the Berlin Artisans' Association with a civil list of 250 talers and a cool pale ale daily.
+
+If the Consistorial gentlemen now directing the destiny of the Prussian monarchy and the Rhein[ischer] Beobachter should doubt this, then let them merely cast a glance at history. History provides a quite different horoscopes for kings who appealed to their people.
+
+Charles I of England also appealed to His People against his estates. He called his people to arms against parliament. The people, however, declared itself to be against the king, threw all the members who did not represent the people out of parliament and finally caused parliament, which had thus become the real representative of the people, to behead the king. Thus ended the appeal of Charles I to his people. This occurred on January 30, 1649, and has its bicentenary in the year 1849.
+
+Louis XVI of France likewise appealed to His People. Three years long he appealed from one section of the people to another, he sought His people, the true people, the people filled with enthusiasm
+
+[^1]: a Th. Hobbes, Elementa philosophica de cive.— Ed.
+
+
+
+This Convention declared itself competent to judge the appeal of the ex-king, and after some consultation the appellant was taken to the Place de la Révolution, where he was guillotined on January 21, 1793.
+
+That is what happens when kings appeal to Their People. Just what happens, however, when Consistorial Counsellors wish to found a democratic monarchy, we shall have to wait and see.
+
+Written on September 5, 1847 Printed according to the newspaper
+
+First published in the Published in full in English for the Deutsche-Brüsseler-Zeitung No. 73, first time September 12, 1847
+
+Frederick Engels
+
+GERMAN SOCIALISM IN VERSE AND PROSE"
+
+1
+
+KARL BECK, LIEDER VOM ARMEN MANN, OR THE POETRY OF TRUE SOCIALISM
+
+[Deutsche-Brüsseler-Zeitung No. 73, September 12, 1847]
+
+Songs about the Poor Man begins with a song to a wealthy house.
+
+TO THE HOUSE OF ROTHSCHILD
+
+To prevent misunderstandings, the poet addresses God as "LORD" and the house of Rothschild as Lord.
+
+Right at the beginning he records his petty-bourgeois illusion that the "rule of gold" obeys Rothschild's "whims"; an illusion which gives rise to a whole series of fancies about the power of the house of Rothschild.
+
+It is not the destruction of Rothschild's real power, of the social conditions on which it is based, which the poet threatens; he merely desires it to be humanely applied. He laments that bankers are not socialist philanthropists, not enthusiasts for an ideal, not benefactors of mankind, but just—bankers. Beck sings of the cowardly petty- bourgeois wretchedness, of the "poor man", the pauvre honteux with his poor, pious and contradictory wishes of the "little man" in all his manifestations, and not of the proud, threatening, and revolutionary proletarian. The threats and reproaches which Beck showers on the house of Rothschild, sound, for all his good intentions, even more farcical to the reader than a Capuchin's sermon. They are founded on the most infantile illusion about the power of the Rothschilds, on total ignorance of the connection between this power and existing conditions, and on a complete misapprehension about the means which the Rothschilds had to use to acquire power and to retain power. Pusillanimity and lack of understanding, womanish senti- mentality and the wretched, prosaically sober attitudes of the petty bourgeoisie, the Se are the muses of this lyre, and in vain they do violence to themselves in an attempt to appear terrible. They only appear ridiculous. Their forced bass is constantly breaking into a comic falsetto, their dramatic rendering of the titanic struggle of an
+
+
+
+**[p. 236]**
+
+The rule of gold obeys your whims
+
+Oh, would your works could be as splendid And your heart as great as is your power! (p. 4).
+
+It is a pity that Rothschild has the power and our poet the heart. "Were but the two of them one, it had been too much for the earth." (Herr Ludwig of Bavaria.)3
+
+The first figure with whom Rothschild is confronted is of course the minstrel himself, to be precise, the German minstrel who dwells in "lofty, heavenly garrets".
+
+Singing of justice, light and freedom, The one true GOD in trinity, The lute of the bards is with melody inspired: Now men with listening ears will follow The spirits (p. 5).
+
+This "GOD", borrowed from the Leipziger Allgemeine Zeitungs motto,100 precisely because of his existence as a trinity, has no effect on the Jew Rothschild but produces quite magical effects on German youth.
+
+Restored to health, youth speaks a warning
+
+Rothschild's verdict on the German poets is different:
+
+The song the spirits had us sing, You call it hunger for fame and food [p. 6]. Although youth is speaking a warning and its myriad splendid names are sprouting up, their splendour consisting in the very fact that they never get further than mere inspiration, although "the bugles bravely sound for battle" and "the heart beats so loud at night",
+
+by Engelmann, Leipzig, 1840), At odds with GOD and with itself [p. 8.], for all that and all that, Rothschild maintains the armed peace which, as Beck believes, depends on him alone.
+
+[^1]: And the fertile seed of inspiration Sprouts up in myriad splendid names (p.[p. 5-]6).
+
+[^2]: The foolish heart, it feels the stress Of a celestial impregnation (p. 7). That foolish heart, that Virgin Mary!—although
+
+[^3]: Youth like a sombre Saul (by Karl Beck,b published
+
+[^4]: a Free rendering of two lines from Ludwig I of Bavaria's, "Florenz".—Ed. An allusion to Karl Beck's tragedy Saul.—Ed.
+
+
+
+
+
+**[p. 237]**
+
+You, a redeemer? (p. 11).
+
+And he then proves to him that unlike Christ he never wrestled in bitter night, he never sacrificed proud earthly power
+
+For a merciful gladdening mission To you entrusted by the great SPIRIT (p. 11).
+
+It must be said of the great SPIRIT that it does not exhibit much spiritual sagacity in its choice of missionaries and has approached the wrong man for acts of mercy. The only great thing about it is its block capitals.
+
+Rothschild's paucity of talent as a redeemer is amply demonstrated to him by means of three examples: how he reacted towards the July Revolution, the Poles and the Jews.
+
+Up rose the dauntless scion of the Franks (p. 12),
+
+in a word, the July Revolution broke out.
+
+The springtime that was stirring was the springtime of the bourgeoisie, to whom gold, Rothschild's gold as much as any other, does indeed resound happy as the twittering of larks. To be sure, the hopes which at the time of the Restoration were sleeping deeply buried not only in the breast but also in the Carbonari Ventes101 were at that time made young again and brought back into the living world, and Beck's poor man was left to pick up the crumbs. But as soon as Rothschild had convinced himself that the new government had firm foundations, he was happy enough to set his larks twittering—at the usual interest rates, of course.
+
+Just how completely Beck is entangled in petty-bourgeois illusions is shown by the saintly status Laffitte is accorded in comparison with Rothschild:
+
+[^1]: Were you prepared? Did your gold resound Happy as the twittering of larks in welcome To the springtime stirring in the world? Which made young again those yearning hopes Sleeping deeply buried in our breasts, And brought them back into the living world? (p. 12).
+
+[^2]: Close-nestling beside your much-coveted halls Is a burgher's dwelling of holy repute (p. 13),
+
+
+
+
+
+**[p. 238]**
+
+Accompanying the funeral cortège Marched with muffled tread the Marseillaise (p. 14).
+
+Alongside the Marseillaise went the carriages of the royal family, and right behind them M. Sauzet, M. Duchâtel and all the ventrue02
+
+and loups-cerviers* of the Chamber of Deputies.
+
+How the Marseillaise really must have muffled her tread, though, when Laffitte led his compère,c the Duke of Orléans, in triumph to the Hôtel de Ville after the July revolution and made the striking statement that from now on the bankers would rule?
+
+In the case of the Poles, criticism goes no further than that Rothschild did not show enough charity to the emigres. The attack on Rothschild is here reduced to the level of a small-town anecdote and quite loses the appearance of an attack on the power of money in general which is represented by Rothschild. We all know how the bourgeoisie has welcomed the Poles with open arms and even with enthusiasm wherever it is in power.
+
+An example of this compunction: enter a Pole, begging and praying. Rothschild gives him a silver coin, the Pole
+
+a predicament from which the Polish Committee in Paris has so far on Lie whole saved the Poles. The whole episode with the Pole only serves to permit our poet to strike an attitude:
+
+[^1]: Trembling with joy accepts the silver coin And speaks his blessing on you and your line [p. 1(5],
+
+[^2]: But I hurl back that beggar's happiness Contemptuously into your money-bag, Avenging thus mankind offended! (p. 16),
+
+[^3]: a Century.—Ed.
+
+[^4]: Pot-bellies and profiteers.—Ed. c The French word has a double meaning: firstly, kinsman; secondly, accom- plice.—Ed.
+
+
+
+
+
+**[p. 239]**
+
+As early as p. 9 Rothschild is taken to task for accepting a patent of citizenship from Austria's fat imperial city,
+
+Where your much-harassed fellow-Jews Pay for their daylight and their air. Beck really believes that with this Viennese patent of citizenship Rothschild has obtained the blessings of freedom. Now, on p. 19, he is asked:
+
+Have you set your own people free That ever hopes and meekly suffers? Rothschild ought then to have become the redeemer of the Jews. And how ought Rothschild to have set about this? The Jews had chosen him as king because his gold weighed the heaviest. He should have taught them how to despise gold, "how to suffer deprivation for the world's sake" (p. 21).
+
+He ought to have wiped their memories clean of selfishness, cunning and the practice of usury, in short, he ought to have appeared in sackcloth and ashes as a preacher of morality and atonement. Our poet's daring demand is the equivalent of requiring Louis-Philippe to teach the bourgeoisie of the July revolution to abolish property. If either were so insane, they would lose their power forthwith, but the Jews would not wipe their memories clean of haggling, nor the bourgeoisie theirs of property.
+
+On p. 24 Rothschild is criticised for bleeding the bourgeoisie white, as though it were not desirable that the bourgeoisie should be bled white.
+
+On p. 25 he is said to have led the princes astray. Ought they not to be led astray?
+
+We have already evidence enough of the fabulous power Beck attributes to Rothschild. But he goes on in a crescendo. Having indulged on p. 26 in fantasies as to all the things he (Beck) would do if he were propriétaireof the sun, that is, not even the hundredth part of what the sun is doing without him—it suddenly occurs to him that Rothschild is not the only sinner, but that other wealthy men exist be- sides him. However:
+
+[^1]: You occupied in eloquence the teacher's chair, Attentively the rich sat as your pupils; Your task: to lead them out into the world, Your role: to be their conscience. They have gone wild—and you looked on, They are corrupted—and yours is the blame (p. 27).
+
+
+
+
+
+**[p. 240]**
+
+Still not satisfied, Beck confers on Rothschild
+
+The dizzy grandeur of the mission
+
+The whole world's sufferings to assuage [p. 28], a mission which all the capitalists in the whole world are not remotely capable of fulfilling. Does our poet not realise then that the more sublime and awe-inspiring he attempts to appear, the more ridiculous he becomes? that all his criticisms of Rothschild are transmuted into the most slavish flattery? that he is extolling Rothschild's power as the most cunning panegyrist could not have extolled it? Rothschild must congratulate himself when he sees what a monstrous form his puny personality assumes as reflected in the mind of a German poet.
+
+After our poet has so far versified the romantic and ignorant fantasies of a German petty bourgeois concerning what is within the power of a big capitalist if only he were a man of good will, after he has puffed up the fantasy of this power as far as it will go in the puffed-up dizzy grandeur of his mission, he gives vent to the moral indignation of a petty bourgeois at the discrepancy between ideal and reality, in an emotional paroxysm which would give rise to fits of laughter even in a Pennsylvanian Quaker:
+
+Then did my locks rear up on end, Methought I was at GOD's own heartstrings tugging, A bellman at the fire-bell (p. 28), which must surely have been the last nail in the old man's coffin. He thinks the "spirits of history" have thus entrusted him with ideas, which he is not permitted either to whisper or proclaim aloud. In fact he comes to the desperate decision to dance the cancan in his grave:
+
+[^1]: Alas, alack, when in long night (December 21)
+
+[^2]: I pondered with a fevered brow
+
+[^3]: But when in mouldering shroud I lie, My corse shall shake with joyful tremors, When down to me (the corse) the tiding comes That victims on the altars smoke (p. 29).
+
+[^4]: a All the utterly depressing naivety of German poetry.—Ed.
+
+
+
+
+
+**[p. 241]**
+
+Thus ends the song about the House of Rothschild. There now follows, as is customary with modern lyric poets, a rhymed reflection on this canto and the role the poet has played in it.
+
+I know your mighty arm Can chastise me till the blood does flow (p. 30),
+
+in other words, he can give him fifty of the best. The Austrian never forgets the birch. In the face of this danger, a feeling of exaltation gives him strength:
+
+At GOD's command and without fear I sang full freely what I knew [p. 30].
+
+The German poet always sings to command. Of course, the master is responsible and not the servant, and so Rothschild has to face up to GOD and not to Beck, his servant. It is indeed the general practice of modern lyric poets:
+
+1. To boast of the danger they think they are exposing themselves to in their harmless songs;
+
+2. to take a thrashing and then commend themselves to God. The song "To the House of Rothschild" closes with a few stirring sentiments about the aforementioned song, which is here slander- ously described in the following terms:
+
+that is, by its own excellence, as instanced in this conclusion. We fear that Rothschild may take Beck to court, not on account of the song, but on account of this piece of perjury.
+
+The rich are called upon to give support to those in need,
+
+[^1]: Free it is and proud, it may command you, Tell you the things by which in faith it swears (p. 32),
+
+[^2]: [Deutsche-Brüsseler-Zeitung No. 74, September 16, 1847]
+
+[^3]: O, SCATTER THE GOLDEN BLESSING!
+
+[^4]: Until your industry for wife and child Security ensured [p. 35].
+
+[^5]: a Quoted ironically from Schiller's tragedy Don Carlos, Act I, Scene 6.— Ed.
+
+
+
+That you may keep your virtue As a burgher and a man [p. 35],
+
+summa summarum, a good philistine.* Beck is thereby reduced to his ideal.
+
+SERVINGMAN AND MAID
+
+The poet takes as his theme two souls most pleasing to God and describes in an exceptionally dull fashion how they only come to share a chaste marriage-bed only after many years of cheese-paring and moral living.
+
+To kiss? Shame would o'ercome them! To dally? O so discreetly! Flowers there were indeed—the flowers on the frosted pane; A dance on crutches, O God!, a poor butterfly in winter, Half in the bloom of childhood, half in withered age [p. 50].
+
+Instead of concluding with this, the one good verse in the whole poem, he then sets them crowing and quivering, and all for joy over their few chattels, that "at their own hearth their own settles stand", a cliché uttered not ironically but with heartfelt tears of pathos. Nor will he have done at that:
+
+And with this any point in the ending is happily blunted. Beck's indecision and lack of self-confidence constantly reveal themselves in the fact that he spins out every poem for as long as he can, and can never complete it until some piece of sentimentality has betrayed his petty-bourgeois outlook. The Kleistian hexameters appear to be deliberately chosen so as to subject the reader to the same boredom as the two lovers bring upon themselves by their craven morality during their long period of trial.
+
+There are some naive, appealing bits in the description of the Jewish second-hand dealer, e.g.:
+
+[^1]: God alone is their Lord, who bids the stars shine in the darkness And observes with a kindly eye the slave who breaks his chains [p. 50].
+
+[^2]: THE JEWISH SECOND-HAND DEALER
+
+[^3]: The week flies by, five days only The week allows you for your work. Bestir yourself, don't pause for breath,
+
+[^4]: a In German there is a pun on the words: Bürger—burgher, Mann—man, Bürgersmann—philistine.—Ed.
+
+
+
+
+
+**[p. 243]**
+
+But later Beck succumbs completely to that kind of blathering about the Jews which is typical of the liberal Young Germans.103 The poetry dries, up so entirely that one might think one was listening to a scrofulous speech in the scrofulous Saxon Assembly of Estates: You cannot become a craftsman, nor an "alderman of the mercers' guild", nor tiller of the soil, nor professor, but a career in medicine is open to you. This finds poetical expression as follows:
+
+A working trade they would deny you, Deny you too a field to till. You may not from the teacher's chair Offer discourse to the young;
+
+You may heal the country's sick [p. 57].
+
+Could one not in the same way versify the Collected Statutes of Prussia and set Herr Ludwig of Bavaria's verse to music? Having declaimed to his son:
+
+You must labour and be grasping, Always covetous of property and gold [p. 57],
+
+the Jew consoles him with:
+
+LORELEI This Lorelei is none other than Gold.
+
+This Deluge of the spirit and drowning of all things sound is a most depressing mixture of the banal and the bombastic. There follow petty tirades against the evil and immorality of money.
+
+If money had done no more than discredit this German quest for hearts and parity of souls and Schiller's meanest hut with its space for a happy loving pair,3 its revolutionary effects would deserve recogni- tion.
+
+[^1]: Your honesty endures for ever [pp. 57-58].
+
+[^2]: Then did turpitude flood in Upon all purity of spirit, Drowning all things sound [p. 64].
+
+[^3]: Its (love's) quest is money and precious stones And never hearts nor parity of souls, No simple hut for dwelling [p. 67].
+
+[^4]: a An allusion to Schiller's poem "Der Jüngling am Bache".— Ed.
+
+
+
+
+
+**[p. 244]**
+
+In this poem our socialist poet once more shows how through being trapped in the German petty-bourgeois misery, he is constantly obliged to spoil what little effect he achieves.
+
+A regiment marches off with its band playing. The people call upon the soldiers to make common cause with them. The reader is glad that the poet is at last summoning up courage. But oh dear! We finally discover that the occasion is merely the Emperor's name-day and the people's words are only the improvised and unspoken reverie of a youth watching the parade. Probably a gymnasium boy:
+
+Thus dreams a youth with burning heart [p. 76].
+
+Whilst in the hands of Heine the same material, with the same point, would contain the most bitter satire on the German people, in Beck's case all that emerges is a satire on the poet himself, who identifies himself with the powerlessly rapturous youth. In Heine's case, the raptures of the bourgeoisie are deliberately high-pitched, so that they may equally deliberately then be brought down to earth with a bump; in Beck's case it is the poet himself who is associated with these fantasies and who naturally also suffers the consequences when he comes crashing down to earth. In the case of the one the bourgeoisie feels indignation at the poet's impertinence, in the case of the other reassurance at the attitudes of mind they have in common. The Prague uprising104 in any case presented him with an opportunity to work up material of a quite different character from this farce.
+
+The only thing missing here is the complaint delivered in similarly versified form.
+
+Here the poet tries his hand at narrative and fails in a really pathetic fashion. This complete inability to tell a story and create a situation, which is evident throughout the book, is characteristic of the poetry of true socialism. True socialism, in its vagueness, provides no opportunity to relate the individual facts of the narrative
+
+[^1]: THE EMIGRANT
+
+[^2]: I broke a bough from off a tree, The keeper made complaint, The master bound me to a post And dealt me this grave injury [p. 86].
+
+[^3]: THE WOODEN LEG
+
+
+
+
+
+**[p. 245]**
+
+THE POTATO
+
+Tune: Morgenrot, Morgenrot!
+
+Sacred bread!
+
+You that came in our distress, You that came at heaven's bidding Into the world, that men might eat— Farewell, for now you are dead! [p. 105].
+
+In the second verse he calls the potato
+
+that little relic Left to us from Eden,
+
+and describes potato-blight:
+
+In the third verse Beck advises the poor to put mourning on:
+
+Weep, who still have tears to shed, with the poet! Were he not as bereft of energy as his poor man is of wholesome potatoes, he would have rejoiced at the substance acquired last autumn by that bourgeois god, the potato, one of the pivots of the existing bourgeois society. The landowners and burghers of Germany would have done themselves no harm by having this poem sung in the churches.
+
+For this effort Beck deserves a garland of potato-blossom.
+
+[^1]: Among angels the plague rampages.
+
+[^2]: You, the poor! Go and put mourning on. You now have need of nought, Alas, all you own is gone, Weep, who still have tears to shed!
+
+[^3]: Dead in the sand Lies your God, o melancholy land. Yet let these words speak comfort to you: Never did redeemer perish Who did not later rise again! [p. 106].
+
+
+
+
+
+**[p. 246]**
+
+We shall not look more closely at this poem since it drags on interminably, extending over full ninety pages with unspeakable boredom. The old maid, who in civilised countries is mostly only a nominal occurrence, is in Germany admittedly a significant "social case".
+
+The most common kind of socialist self-complacent reflection is to say that all would be well if only it were not for the poor on the other side. This argument may be developed with any conceivable subject-matter. At the heart of this argument lies the philanthropic petty-bourgeois hypocrisy which is perfectly happy with the positive aspects of existing society and laments only that the negative aspect of poverty exists alongside them, inseparably bound up with present society, and only wishes that this society may continue to exist without the conditions of its existence.
+
+Beck develops this argument in this poem often in the most trivial possible way, for example, in connection with Christmas:
+
+O day that gently edifies men's hearts, You would be gentler still and doubly dear— Did there not lodge in poor children's hearts Whose orphan gaze surveys the festive Rooms of their rich playmates, Envy and the seeds of sin, Along with rabid blasphemy! Yes more sweetly would the children's merry cheer Sound to my ears in the Christmas candlelight, If only in damp caverns destitution Were not shivering on putrid straw [p. 149].
+
+There are, by the way, occasional fine passages in this amorphous and interminable poem, for example the description of the lumpen proletariat:
+
+[^1]: Who day by day unwearyingly Hunt garbage in the fetid gutters; Who flit like sparrows after food, Mending pans and grinding knives, Starching linen with stiff fingers, Pushing breathless at the heavy cart, Laden with but scarcely ripened fruits, Crying piteously: Who'll buy, who'll buy? Who fight over a copper in the dirt; Who at the corner-stones each day Sing praise to the God in whom they believe, But scarcely dare hold out their hands, Begging being against the law; Who with deaf ears, beset by hunger,
+
+
+
+
+
+**[p. 247]**
+
+Beck here rises for the first time above the usual morality of the German bourgeoisie by putting these lines in the mouth of an old beggar whose daughter is asking for his permission to go to a rendezvous with an officer. In the above lines he gives her an embittered picture of the classes to which her child would then belong, he derives his objections from her immediate social position and does not preach morality to her, and for this he deserves credit.
+
+THOU SHALT NOT STEAL
+
+The virtuous servant of a Russian, whom the servant himself characterises as a worthy master, robs his apparently sleeping master during the night in order to maintain his old father. The Russian follows him surreptitiously and looks over his shoulder just as he is penning the following note to the same old man:
+
+The virtuous servant's worthy master is so moved by these awful revelations that he cannot speak, but places his hand on the servant's head in blessing.
+
+Can anything more comical be committed to paper? Beck here descends lower than Kotzebue and Iffland, the servant's tragedy surpasses even the middle-class tragedy.
+
+[^1]: Take this money! I have stolen! Father, pray to our Redeemer That he may one day from his throne Allow forgiveness to his servant! I will labour and earn money, And from my palliasse chase fatigue, Till I can pay my worthy master Back the money I have stolen [p. 241].
+
+[^2]: But the latter's life had left him— And his heart had broken with terror [p. 242].
+
+
+
+
+
+**[p. 248]**
+
+In this poem, Ronge, the Friends of Light,105 the New Jews, the barber, the washerwoman and the Leipzig citizen with his modicum of liberty are often effectively lampooned. At the end, the poet defends himself against the philistines who will criticise him for it, although he too
+
+The song of light Sang out into the storm and night [p. 298].
+
+He then himself propounds a doctrine of brotherly love and practical religion, modified by socialism and founded on a kind of nature-deism, and thus enlists one aspect of his opponents against the other. So Beck can never let matters rest until he has spoilt his own case, because he is himself too much entangled in German misery and gives too much thought to himself, to the poet, in his verse. With the modern lyrical poets in general, the bard has reverted to a fabulously trimmed, heroically posturing figure. He is not an active person situated in real society, who writes poetry, but "the poet", hovering in the clouds, these clouds being none other than the nebulous fantasies of the German bourgeoisie.—Beck constantly drops from the most heroical bombast into the soberest of bourgeois prose styles, and from a petty warlike wit against present conditions into a sentimental acceptance of them. It is constantly occurring to him that it is he himself de quo fabula narratur.* That is why his songs are not revolutionary in effect, but resemble
+
+The conclusion to the whole volume is therefore most approp- riately provided by the following weak wail of resignation:
+
+Beck has incontestably more talent and at the outset more energy too than most of the German scribbling fraternity. His great lament is the German misery, amongst whose theoretical manifestations also belong Beck's pompously sentimental socialism and Young German reminiscences. Until social conflicts in Germany are given a more acute form by a more distinct differentiation between classes and a momentary acquisition of political power by [the] bourgeoisie, there
+
+[^1]: Three doses of salts To calm the blood (p. 293).
+
+[^2]: When will life upon this earth Be bearable, O God? In longing I am doubly strong And hence in patience doubly wearied [p. 324].
+
+[^3]: a About whom the story is being told.— Ed.
+
+
+
+
+
+**[p. 249]**
+
+2
+
+KARL GRÜN, ÜBER GGTHE VOM MENSCHLICHEN STANDPUNKTE, DARMSTADT, 1846
+
+[Deutsche-Brüsseler-Zeitung No. 93, November 21, 1847]
+
+Herr Grün relaxes after the exertions of his "Soziale Bewegung in Frankreich und Belgien" by glancing at the lack o/social movement in his native land. For the sake of variety, he decides to take a look at "the human aspect" of the elderly Goethe. He has exchanged his seven-league boots for carpet-slippers, donned his dressing-gown and stretches himself, full of self-satisfaction, in his arm-chair:
+
+He has made things really snug for himself:
+
+For all his nonchalance, Herr Grün nevertheless performs deeds of the stoutest heroism in this book. But this will not surprise us when we have heard him himself say that he is the man who "was on the point of despairing at the triviality of public and private affairs" (p. Ill), who "felt Goethe's restraining hand whenever he was in danger of being submerged by extravagance and lack of form" (ibid.), whose heart is "full with the sense of human destiny", "who has listened to the soul of man—though it should mean descending into hell!" (p. IV). Nothing will surprise us any more after learning that previously he had "once addressed a question to Feuerbachiart
+
+[^1]: "We are not writing a commentary, we are only picking out what is there for all to see'' (p. 244).
+
+[^2]: "I had put some roses and camellias in my room, and mignonette and violets by the open window" (p. III). "And above all, no commentaries! But here, the complete works on the table and a faint scent of roses and mignonette in the room! Let us just see where we get to Only a rogue offers more than he has!" (pp. IV, V).
+
+[^3]: a In German there is a pun on the words Bewegung—movement and Still- stand— lack of movement.— Ed.
+
+
+
+a "rich, rich man of property, to be able to pay the property tax, to obtain a seat in the Chamber of Representatives of mankind, to be included in the list of jurymen who judge between what is human and what is not".
+
+How could he fail to achieve this, standing as he does, "on the nameless ground of the universally human"? (p. 182). He does not even tremble before "the night and its horrors'''' (p. 312), such as mur- der, adultery, robbery, whoring, licentiousness and puffed-up pride. It is true that on p. 99 he confesses he has also "known the infinite pang of man as he discovers himself at the very point of his own insignificance", it is true he "discovers" himself before the public eye at this "point" on the occasion of the lines:
+
+to be precise, as follows:
+
+It is true, "at the furthermost frontier of theory", namely on p. 295, Herr Grün has a sensation "of icy water running down his back, real terror quivers through his limbs"—but he overcomes all this with ease, for after all he is a member of the "great order of freemasons of mankind"! (p. 317).
+
+Take it all in all,b with such qualities Herr Grün will perform valiantly on any field of battle. Before we proceed to his productive
+
+[^1]: You compare but with the spirit in your mind, Not mea
+
+[^2]: "These words are as when thunder and lightning occur together, with the earth opening up at the same time. These words are like the veil of the temple being rent in twain and the graves being opened the twilight of the Gods is upon us and the chaos of old is come again the stars collide, in an instant a single comet tail incinerates our little earth, and all that exists is henceforth but billowing smoke and vapour. And if one imagines the most atrocious destruction, it is all but as nothing against the annihilation contained in these eleven words!" (pp. 235, 236).
+
+[^3]: a J. W. Goethe, Faust, Part I, Scene 1 ("Night").— Ed. b Engels gives this phrase in English. (Shakespeare, Hamlet, Act I, Scene 2 [paraphrased]).—Ed.
+
+
+
+
+
+**[p. 251]**
+
+Firstly to the field of the natural sciences, for according to p. 247 "the understanding of nature" is "the sole positive science" and at the same time "nonetheless the fulfilment of humanistic" (vulgo: human) "man". Let us carefully collate the positive pronouncements
+
+Herr Grün makes concerning this sole positive science. He does not actually go into the subject at all extensively, he merely lets fall a few remarks while pacing his room, so to speak, in the interval between daylight and darkness, but the miracles he performs are "nonethe- less" the "most positive" for that.
+
+In connection with the Systeme de la Nature106 ascribed to Holbach, he reveals:
+
+"We cannot here expound how the System of Nature breaks off half-way, how it breaks off at the point where freedom and self-determination had to break out from the necessity of the cerebral system" (p. 70).
+
+Herr Grün could indicate the precise point at which this or that "breaks out" "from the necessity of the cerebral system" and man would thus be slapped on the inside of his skull as well. Herr Grün could give the most certain and most detailed information on a point which has hitherto escaped all observation, in other words the pro- ductive processes of consciousness in the brain. But alas! In a book on the human aspect of Goethe we "cannot expound this in detail".
+
+Dumas, Playfair, Faraday and Liebig have hitherto innocently subscribed to the view that oxygen is a gas which has neither taste nor smell. Herr Grün, however, who of course knows that the prefix "oxy-" means sharp to the taste, declares on p. 75 that "oxygen" is "sharp-tasting". In the same way, on p. 229 he contributes new facts to acoustics and optics; by postulating a "purifying uproar and brightness", he places the purificatory power of sound and light beyond all doubt.
+
+Not content with such dazzling contributions to the "sole positive science", not content with the theory of inward slaps, on p. 94 Herr Grün discovers a new bone:
+
+Until now it had been mistakenly thought that man had some two dozen vertebrae. Herr Grün reduces these numerous bones not just to the normal singular form but goes on to discover that this one and only vertebra has the remarkable property of making man "subject". The "subject" Herr Grün deserves an extra vertebra for this discovery.
+
+[^1]: "Werther is the man who has no vertebra, who has not yet developed as subject."
+
+
+
+
+
+**[p. 252]**
+
+"Is not the core of nature Mankind at heart?3
+
+"The core of nature is mankind at heart. At the heart of mankind is the core of nature. Nature has its core at mankind's heart" (p. 250).
+
+To which we would add, with Herr Grün's permission: Mankind at heart is the core of nature. At heart the core of nature is mankind. At the heart of mankind nature has its core.
+
+With this eminently "positive" piece of enlightenment we leave the field of natural science, and turn to economics, which unfortunately, according to the above, is not a "positive science". Regardless of this, Herr Grün, hoping for the best, proceeds extremely "positively" here too.
+
+"Individual set himself against individual, and thus universal competition arose" (p. 211).
+
+In other words, that obscure and mysterious conception German socialists have of "universal competition" came into being, "and thus competition arose". No reasons are indicated, no doubt, because economics is not a positive science.
+
+Mac Culloch and Blanqui, who have hitherto been under the misapprehension that money was "bound in the Middle Ages" by deficient communications with America and the granite masses that covered the veins of "base metal" in the Andes,b Mac Culloch and Blanqui will be addressing a vote of thanks to Herr Grün for this revelation.
+
+Herr Grün seeks to give a positive character to History, which is likewise not a "positive science", by juxtaposing the traditional facts and a series of facts of his imagination.
+
+On p. 91, "Addison's Cato stabbed himself on the English stage a century before Werther", thereby testifying to a remarkable weariness of life. For by this account, he "stabbed" himself when his author, who was born in 1672, was still a babe in arms.107
+
+On p. 175 Herr Grün corrects Goethe's Tag- und Jahreshefte to the effect that the freedom of the press was by no means "declared" by the German governments in 1815 but only "promised". So the
+
+[^1]: "In the Middle Ages base metal was still bound by fealty, courtly love and piety; the sixteenth century burst this fetter, and money was set free" (p. 241).
+
+[^2]: a J. W. Goethe, "Ultimatum" (Zyklus "Gott und Welt").—Erf. The reference is to the books: J. R. Mac Culloch, The Principles of Political Economy and A. Blanqui, Histoire de l'économie politique en Europe.—Ed.
+
+
+
+
+
+**[p. 253]**
+
+Herr Grün goes on to tell us that the Free Imperial City of Frankfurt was not a state at all but "no more than a piece of civil society" (p. 19). Germany, he says, has no states of any kind, and people are at last beginning "to realise increasingly the peculiar advantages of this stateless condition of Germany" (p. 257), which advantages consist especially in the cheapness of flogging. The German autocrats will thus be obliged to say: "la société civile, c'est moï'a—although they fare badly in this, for according to p. 101, civil society is only "an abstraction".
+
+If, however, the Germans have no state, they have instead "a massive bill-of-exchange on truth, and this bill-of-exchange must be realised, paid up and changed for jingling coin" (p. 5). This bill-of-exchange is no doubt payable at the same office where Herr Grün pays his "property tax", "to obtain a seat in the Chamber of Representatives of mankind".
+
+The most important "positive" things he enlightens us about concern the French Revolution, on whose "significance" he delivers a special "digression". He begins with the oracular utterance that the contradiction between historical law and rational law is indeed important, for both are of historical origin. Without wishing in any way to belittle Herr Grün's discovery, which is as new as it is important, that rational law too arose in the course of history, we would diffidently venture the observation that a quiet encounter in the quiet of his chamber with the first volumes of Buchez's Histoire parlementaire should show him what part this contradiction played in the Revolution.
+
+Herr Grün, however, prefers to give us an extensive proof of the evil nature of the Revolution which eventually boils down to the one, ponderously massive complaint against it: that it "did not examine the concept of man" [p. 195]. Indeed such a grievous sin of omission is unforgivable. If only the Revolution had examined the concept of man, there would have been no question of.a ninth Thermidor or an eighteenth Brumaire109; Napoleon would have contented himself
+
+[^1]: [Deutsche-Brüsseler-Zeitung No. 94, November 25, 1847]
+
+[^2]: a J am civil society.— Ed.
+
+
+
+
+
+**[p. 254]**
+
+By way of consolation for the unfortunate French, who have achieved nothing but the realisation of Machiavellianism, on p. 73
+
+Herr Grün dispenses one little drop of balm:
+
+Let us not dwell on the fact that it must presumably have "examined the concept of man" after all, nor on the fact that it "asserted" human rights not "as against those of the gods" but those of the king, the aristocracy and the clergy, let us pass over these trifles and veil our heads in silent grief: for something "human" has happened to Herr Grün himself here.
+
+Herr Grün, you see, has forgotten that in previous publications (cf. for instance the article in Volume I of the Rheinische Jahrbücher* "Die soziale Bewegung" etc.) he had not merely expatiated upon and "popularised" a certain argument concerning human rights that is to be found in the Deutsch-Französische Jahrbücher,h but with the truest plagiaristic zeal had even carried it to nonsensical extremes. He has forgotten that there he had pilloried human rights as the rights of
+
+[^1]: "In the eighteenth century the French people was like a Prometheus among the nations, who asserted human rights a^ against those of the gods."
+
+[^2]: a K. Grün, "Politik und Socialismus".— Ed.
+
+[^3]: See Marx's "On the Jewish Question" (present edition, Vol. 3, pp. 160-68).—Ed.
+
+
+
+
+
+**[p. 255]**
+
+Herr Grün on pp. 251 and 252, where "the right with which we were born and which, alas, is universally ignored", from Faust, is turned into "your natural right, your human right, the fight to translate one's ideas into practice and enjoy the fruits of one's labours"; although Goethe opposes it directly to "law and rights", which "are passed on from generation to generation like an everlasting disease",0 in other words the traditional law of the ancien régime, with which only the " innate, ageless and inalienable human rights" of the Revolution, but by no means the rights of "man" conflict. This time, it is true, Herr Grün had to forget his previous point, so that Goethe should not forfeit his human aspect.
+
+Herr Grün has however not yet completely forgotten what he learned from the Deutsch-Französische Jahrbücher and other publica- tions of the same tendency. On p. 210 he defines the freedom in France at that time, for example, as "the freedom of unfree (!), common (!!) beings (!!!)". This non-being has arisen from the common being on pp. 204 and 205 of the Deutsch-Französische Jahrbücher0 and from the translations of these pages into the current language of German socialism of that time. Arguments which make abstract of philosophy and contain expressions from law, economics, etc., are incomprehensible to the true socialists, who therefore have the general habit of condensing them in the twinkling of an eye into a single brief catchphrase, studded with philosophical expressions and then committing this nonsense to memory for use on any conceivable occasion. In this way, the legal "common being" in the Deutsch-Französische Jahrbücher has been transformed into the above philosophico-nonsensical "general being"; political liberation, democracy, has acquired its philosophical short formula in "libera- tion from the unfree general being", and this the true socialist can put in his pocket without having to fear that his erudition will prove too heavy for him.
+
+On p. XXVI Herr Grün exploits what is said in the Holy Family about sensationism and materialism0 in a manner similar to that which he uses in respect of the above-mentioned quotations from Holbach and their socialist interpretation, the hint contained in that publication that links with the socialist movement of the present day
+
+[^1]: a Grocer, shopkeeper.—Ed. b J. W. Goethe, Faust, Act I, Scene 4 ("Faust's Study").—Ed. c K. Marx, "On the Jewish Question" (see present edition, Vol. 3, pp. 165-66).— Ed.
+
+[^2]: d See present edition, Vol. 4, pp. 124-34.—Ed.
+
+
+
+
+
+**[p. 256]**
+
+Let us pass on to philosophy. For which Herr Grün has a thorough-going contempt. As early as p. VII he informs us that he "has no further use for religion, philosophy and politics", that these three "have existed and will never rise again from their dissolution" and that from all of them and from philosophy in particular he "will retain nothing more than man himself and the social being capable of social activity". The social being capable of social activity and the above-mentioned human man are, it is true, sufficient to console us for the irreversible downfall of religion, philosophy and politics. But Herr Grün is far too modest. He has not only "retained" "humanistic man" and various "beings" from philosophy, but he is also the proud possessor of a considerable, if confused, mass of Hegelian tradition. How could it be otherwise, when several years ago he knelt in reverence on a number of occasions before the bust of Hegel? We shall be asked not to introduce such scurrilous and scandalous personal details; but Herr Grün himself confided this secret to the man from the press. We shall not at this juncture say where. We have already quoted Herr Grün's sources with chapter and verse so frequently that we may for once request a like service of Herr Grün. To give him at once further proof of our kind intentions towards him, we will confide to him the fact that he took his final verdict in the free-will controversy, which he gives on p. 8, from Fourier's Traité de l'Association, section "du libre arbitre". Only the idea that the theory of free will is an "aberration of the German mind" is a peculiar "aberration" on the part of Herr Grün himself.
+
+We are at last getting closer to Goethe. On p. 15 Herr Grün allows Goethe the right to exist. For Goethe and Schiller are the resolution of the contradiction between "pleasure without activity", i. e., Wieland, and "activity without pleasure", i. e., Klopstock. "Lessing first based man on himself." (One wonders whether Herr Grün can emulate him in this acrobatic feat.)—In this philosophic construc- tion, we have all of Herr Grün's sources together. The form of the construction, the basis of the whole thing is Hegel's world-famous stratagem for the reconciliation of contradictions. "Man based on himself" is Hegelian terminology applied to Feuerbach. "Pleasure without activity" and "activity without pleasure", this contradiction on which Herr Grün sets Wieland and Klopstock to play the above variations, is borrowed from the Complete Works of M[oses] Hess. The only source which we miss is literary history itself, which has not the remotest inkling of the above hotch-potch and is therefore rightly ignored by Herr Grün.
+
+
+
+**[p. 257]**
+
+Rome, thou art lacking in Naples' gifts, she in those
+
+that thou layst claim to; Were but the two of you one, it had been too much for the earth.3
+
+This historical construction prepares the way for Goethe's entry into German literature. "Man based on himself" by Lessing can continue his evolution only in Goethe's hands. For to Herr Grün belongs the credit of having discovered "man" in Goethe, not natural man, begotten by man and woman in the pleasures of the flesh, but man in the higher sense, dialectical man, the caput mortuumh in the crucible, in which God the Father, Son and Holy Ghost have been calcined, the cousin germain of Homunculus in Faust—in short, not man as Goethe speaks of him, but man as such, as Herr Grün speaks of him. Who is "man as such", then, of whom Herr Grün speaks?
+
+"There is nothing in Goethe that is not human content" (p. XVI).—On p. XXI we hear "that Goethe so portrayed and conceived of man as such as we wish to realise him today".—On p. XXII: "Goethe today, and that means his works, is a true compendium of humanity."—Goethe "is humanity fulfilled" (page XXV).— "Goethe's literary works are (!) the ideal of human society" (p. 12).—"Goethe could not become a national poet because he was destined to be the poet of all that is human" (p. 25).—Yet, according to p. 14, "our nation"—that is, the Germans—is nevertheless supposed to "discern its own essence transfigured" in Goethe.
+
+This is the first revelation about "the essence of man", and we may trust Herr Grün all the more in this matter because he has no doubt "examined the concept of man" with the utmost thoroughness. Goethe portrays "man" as Herr Grün wishes to realise him, and at the same time he portrays the German nation transfigured—"man" is thus none other than "the German transfigured". We have confirmation of this throughout. Just as Goethe is not "a national poet" but "the poet of all that is human", so too the German nation is not a "national" nation, but the nation "of all that is human". For this reason we read on p. XVI again: "Goethe's literary works, emanating from life, neither had nor have anything to do with reality." Just like "man", just like "the Germans". And on p. 4: "At this very time French socialism aims to bring happiness to France,
+
+[^1]: a Ludwig I of Bavaria, "Florenz" (paraphrased).— Ed. b Distillation product, distillate.— Ed.
+
+
+
+
+
+**[p. 258]**
+
+Let us duly note this first revelation then: "Man" is the German "transfigured".
+
+[Deutsche-Brüsseler-Zeitung No. 95, November 28, 1847]
+
+Let us now observe how Herr Grün pays homage to "the poet of all that is human", the "human content in Goethe". We shall thereby best discover who "man" is, of whom Herr Grün is speaking. We shall find that Herr Grün here reveals the most secret thoughts of true socialism, which is typical of the way his general craving to outshout all his cronies leads him rashly to trumpet out to the world matters which the rest of the band prefer to keep to themselves. His transformation of Goethe into "the poet of all that is human" was incidentally facilitated for him by the fact that Goethe himself had a habit of using the words "man" and "human" with a special kind of emphasis. Goethe, it is true, used them only in the sense in which they were applied in his own day and later also by Hegel, for instance the attribute "human" was bestowed on the Greeks in particular as opposed to heathen and Christian barbarians, long before these expressions acquired their mystically philosophical meaning through Feuerbach. With Goethe especially they usually have a most unphilosophical and flesh-and-blood meaning. To Herr Grün belongs the credit of being the first to have turned Goethe into a disciple of Feuerbach and a true socialist.
+
+We cannot of course speak of Goethe himself in any detail here. We would just draw attention to one point. In his works Goethe's attitude to contemporary German society is a dual one. Sometimes he is hostile towards it; he attempts to escape from what he finds repulsive in it, as in Iphigenie and above all throughout the Italian journey; he rebels against it as Götz, Prometheus and Faust, he lashes it with his bitterest satire as Mephistopheles. But then sometimes he is on friendly terms with it, "accommodates" himself to it, as in the majority of the Zahme Xenien and many prose writings; he celebrates it, as in the Maskenzüge, even defends it against the oncoming movement of history, as particularly in all the writings in which he comes to speak of the French Revolution. It is not just some
+
+
+
+**[p. 259]**
+
+
+
+[^1]: a Tired of the struggle.—Ed. b L. Börne, Pariser Briefe; W. Menzel, Die deutsche Literatur.—Ed. c Little entertainments (involving supplementary expenditure).—Ed.
+
+[^2]: II—IH'Jti
+
+
+
+We shall see in respect of which of these aspects Goethe's works are a "true compendium of humanity", "humanity fulfilled" and the "ideal of human society".
+
+Let us first of all take Goethe's critique of the existing society and then move on to the positive description of the "ideal of human society". In view of the wealthy content of Grün's book, it goes without saying that in either area we are only highlighting a few points of characteristic brilliance.
+
+As a critic of society Goethe does indeed perform miracles. He "condemns civilisation" (pp. 34-36) by giving voice to a few romantic complaints that it blurs everything that is characteristic and distinctive about man. He "prophesies the world of the bourgeoisie" (p. 78) by depicting in Prometheus tout bonnement the origin of private property. On p. 229 he is "judge over the world, the Minos of civil- isation". But all these things are mere trifles.
+
+On p. 253 Herr Grün quotes Catechisation:
+
+Reflect, my child! From whom have you these talents? You cannot have them from yourself, you know.— Why, father gave me everything.— And who gave them to him?—My grandfather.— No, no! From whom could he, your grandfather, receive them? — Well, he just took them.
+
+Hurrah! trumpets Herr Grün at the top of his voice, la propriété, c'est le vo P—Proudhon in person!0
+
+Leverrier can go back home with his planet and surrender his medal to Herr Grün—for this is something greater than Leverrier, this is something greater even than Jackson and his sulphuric ether fumes. For the man who condensed Proudhon's theft thesis, which is indeed disquieting for many peaceful members of the bourgeoisie, to the innocuous dimensions of the above epigram by Goethe—the only reward for him is the grand cordon of the Legion of Honour.
+
+The Bürgergeneral presents more difficulties. Herr Grün gazes at it for a while from every side, makes a few doubtful grimaces, which is unusual for him, and begins to cogitate: "true enough somewhat wishy-washy this does not amount to a condemnation of the Revolution" (p. 150) Wait! now he has it! What is the object at
+
+[^1]: a Quite simply.—Ed. b Property is theft.—Ed. c An allusion to P. J. Proudhon, Qu'est-ce que la propriété?—Ed.
+
+
+
+
+
+**[p. 261]**
+
+If two old women are quarrelling beneath Herr Grün's window over the head of a salted herring, may Herr Grün never find it too much trouble to descend from his room with its fragrance of "roses" and mignonette to inform them that for them too "it is the property question that is being brought to the fore". The gratitude of all right-thinking people will be the best reward for him.
+
+[Deutsche-Briisseler-Zeitung No. 96, December 2, 1847]
+
+Goethe performed one of the greatest feats of criticism when he wrote Werther. Werther is not by any means merely a sentimental love-story, as those who have hitherto read Goethe "from the human aspect" believed.
+
+In Werther "the human content has found so fitting a form that nothing can be found in any of the literatures of the world which might even remotely deserve to be set beside it" (p. 96). "Werther's love for Lotte is a mere instrument, a vehicle for the tragedy of the radical pantheism of emotion Werther is the man who has no vertebra, who has not yet become a subject" (p. 93 [p. 94]). Werther shoots himself not from infatuation but "because he, that unhappy pantheistic spirit, could not come to terms with the world" (p. 94). " Werther depicts the whole rotten condition of society with artistic mastery, it seizes the wrongs of society by their deepest roots, by their philosophico-religious basis" (which "basis" everybody knows to be of more recent origin than the "wrongs"), "by the vague and nebulous understanding Pure, well-ventilated conceptions of true human nature" (and above all vertebra, Herr Grün, vertebra!) "would be the death of that state of wretchedness, those worm-eaten, crumbling conditions which we call bourgeois life!" [p. 95].
+
+An example of how " Werther depicts the rotten condition of society with artistic mastery". Werther writes:
+
+This cry of lamentation from a lachrymose emotionalist at the discrepancy between bourgeois reality and his no less bourgeois illusions about this reality, this faint-hearted sigh which derives solely from a lack of the most ordinary experience, is given out by Herr Grün on p. 84 as incisive social criticism. Herr Grün even asserts that the "despairing agony of life" which the above words express, "this
+
+[^1]: "Adventures? Why do I use this silly word our false bourgeois relationships, they are the real adventures, they are the real monstrosities!"3
+
+[^2]: a J. W. Goethe, "Briefe aus der Schweiz" (written in the form of excerpts from letters supposedly found among the papers of the main character of Die Leiden des jungen Werthers).— Ed.
+
+[^3]: 10*
+
+
+
+
+
+**[p. 262]**
+
+By the same token it is self-evident, according to p. 108, that in Stella too Goethe is dealing with "social material", although here only "the most disreputable circumstances" (p. 107) are depicted. True socialism is much more broad-minded than our Lord Jesus. For where two or three are forgathered—they need not even do so in its name—then it is in the midst of them and there is "social material". Like its disciple Herr Grün, it generally bears a striking resemblance to "that kind of dull-witted, self-satisfied nosey-parker who makes everything his business but gets to the bottom of nothing" (p. 47).
+
+Our readers will perhaps remember a letter Wilhelm Meister writes to his brother-in-law3 in the last volume of the Lehrjahre, in which, after a few rather trite comments on the advantages of growing up in well-to-do circumstances, the superiority of the aristocracy over the narrow-minded bourgeoisie is acknowledged and the subordinate position of the latter as well as of all other non-aristocratic classes is sanctioned on the grounds that it is not possible to change it for the present. It is said that only the individual is able in certain circumstances to attain a level of equality with the aristocracy> Herr Grün remarks apropos of this:
+
+And there let the matter rest. Let us come to the much-discussed central point: Goethe's attitude to politics and to the French Revolution. Here Herr Grün's book provides an object lesson in what it means to endure through thick and thin; here Herr Grün's devotion gives a good account of itself.
+
+So that Goethe's attitude towards the Revolution may appear justified, Goethe must of course be above the Revolution and have transcended it even before it took place. As early as p. XXI we therefore learn:
+
+[^1]: "What Goethe says of the pre-eminence of the upper classes of society is absolutely true if one takes upper class as identical with educated class, and in Goethe's case this is so" <p[p]. 264[-65]).
+
+[^2]: "Goethe had so far outstripped the practical development of his age that he felt he could only adopt towards it an attitude of rejection, a defensive attitude."
+
+[^3]: a Werner.—Ed.
+
+[^4]: J. W. Goethe, Wilhelm Meisters Lehrjahre, Buch 5, Kap. 3.—Ed.
+
+
+
+
+
+**[p. 263]**
+
+This of course now sheds a new light for us on Goethe's statements about the Revolution. It is now clear that being high above it, having "disposed of it" as long as fifteen years previously, having "discarded it like an old pair of shoes" and being a hundred years in advance of it, he could have no sympathy with it and could take no interest in a nation of "shouters for liberty", with whom he had settled his accounts way back in the year seventy-three. Herr Grün now has an easy time of it. Goethe may turn as much trite inherited wisdom into elegant distiches, he may philosophise upon it with as much philistine narrow-mindedness, he may shrink with as much petty-bourgeois horror from the great ice-floes which threaten his peaceable poet's niche, he may behave with as much pettiness, cowardice and servility as he will, but he cannot carry things too far for his patient gloss-writer. Herr Grün lifts him up on his tireless shoulders and carries him through the mire; indeed he transfers the whole mire to the account of true socialism, just to ensure that Goethe's boots stay clean. From the Campagne in Frankreich to the Natürliche Tochter, Herr Grün takes on responsibility (pp. 133-170) for everything, everything without exception, he shows a devotion
+
+[^1]: a In the germ.— Ed. J. W. Goethe, "Alexander von Joch über Belohnung und Strafen nach türkischen Gesetzen".— Ed.
+
+[^2]: c J. W. Goethe, "De Legislatoribus".—Ed.
+
+
+
+
+
+**[p. 264]**
+
+The sad destiny of France, let the mighty think on it, But verily the lowly should ponder it more. The mighty perished; but who defends the multitude From the multitude? The multitude was tyrant to itself.3
+
+"Who defends", shouts Herr Grün for all he is worth, with italics, question marks and all the "vehicles of the tragedy of the radical pantheism of emotion" [p. 93], "who, in particular, defends the unpropertied multitude, the so-called rabble, against the propertied multitude, the legislating rabble?" (p. 137). "Who in particular defends" Goethe against Herr Grün?
+
+In this way Herr Grün explains the whole series of worldly-wise bourgeois precepts contained in the Venetian Epigramme:
+
+they "are like a slap in the face delivered by the hand of Hercules which only now" (after the danger is past for the philistine) "appear to us to smack home really tolerably now that we have a great and bitter experience" (bitter indeed for the philistine) "behind us" (p. 136).
+
+From the Belagerung von Mainz Herr Grün
+
+The passage in which Goethe lays his humble devotion at the feet of Herr Rietz, the King of Prussia's b Gentleman, Cuckold and Pimp of the Bedchamber, Herr Grün does not think fit to quote.
+
+Apropos of the Bürgergeneral and the Ausgewanderte we read:
+
+Let us without more ado put this passage to the account of "man" whose "peaceful, domesticated nature" feels so much at ease in
+
+[^1]: "would not wish to pass over the following passage for anything in the world: "On Tuesday I hastened to pay homage to his Highness, and had the great good fortune to wait upon the Prince my ever gracious Lord", etc. [p. 147].
+
+[^2]: [Deutsche-Brüsseler-Zeitung No. 97, December 5, 1847]
+
+[^3]: "Goethe's whole antipathy towards the Revolution, whenever it was expressed in literary form, was concerned with the eternal lament at seeing people driven out from circumstances of well-deserved and well-accustomed property, which intriguers and envious men, etc., then usurped this same injustice of robbery. His peaceful, domesticated nature became indignant at this violation of the right of property, which, being arbitrarily inflicted, made destitute refugees of whole masses of people" (p. 151).
+
+[^4]: a J. W. Goethe, "Venezianische Epigramme".— Ed.
+
+[^5]: b Frederick William II.—Ed.
+
+
+
+
+
+**[p. 265]**
+
+In the light of this it does not surprise us that Herr Grün "finds the purest pleasure" (p. 165) in the bourgeois idyll Hermann und Dorothea, its timid, worldly-wise small-townsfolk and lamenting peasants who take to their heels in superstitious fear before the sans- culotte army and the horrors of war. Herr Grün
+
+"even accepts with relief the pusillanimous role which is assigned at the end to the German people:
+
+It befits not a German to be at the head of a movement Fleeing in terror, nor to waver first this way, then that."a
+
+Herr Grün is right to shed tears of sympathy for the victims of cruel times and to raise his eyes to heaven in patriotic despair at such strokes of fate. There are enough ruined and degenerate people anyway, who have no "human" heart in their bosoms, who prefer to join in singing the Marseillaise in the Republican camp and perhaps even make lewd jokes in Dorothea's deserted bedchamber. Herr Grün is a decent fellow who waxes indignant at the lack of feeling with which for instance a Hegel looks down on the "little, dumb flowers" which have been crushed underfoot by the onrush of history and mocks at the "litany of private virtues of modesty, humility, love of one's fellow-men and charity" which is held out "against the deeds of world history and those who perform them".»> Herr Grün is right to do this. He will no doubt receive his reward in heaven.
+
+Let us conclude these "human" remarks on the Revolution with the following: "A real humorist might well take the liberty of finding the Convention itself infinitely ridiculous", and until this "real humorist" is found, Herr Grün meanwhile provides the necessary instructions (pp. 151, 152).
+
+Herr Grün similarly sheds some surprising light upon Goethe's attitude towards politics after the Revolution. Just one example. We already know of the profound resentment "man" feels in his heart towards the liberals. The "poet of all that is human" must of course not be allowed to go to his rest without having specifically had it out with them, without having pinned an explicit memorandum on Messrs Welcker, Itzstein and .their cronies. This memorandum our
+
+[^1]: a J. W. Goethe, Hermann und Dorothea, 9. Gesang ("Urania").— Ed. b G. W. F. Hegel, Vorlesungen über die Philosophie der Geschichte, Einleitung.—Ed.
+
+
+
+
+
+**[p. 266]**
+
+All that is just the same old tripe, Do acquire some savvy! Don't be forever just marking time, But make some progress!
+
+Goethe's verdict: "Nothing is more repulsive than the majority, for it consists of a few strong leaders, of rogues who accommodate themselves, of weaklings who adapt themselves, and the mass jogging along behind without having the faintest idea what it wants"3—this verdict so typical of the philistine, whose ignorance and short-sightedness are only possible within the narrow bounds of a petty German principality, appears to Herr Grün as "the critique of the later" (i.e. modern) "constitutional state" .b How important it is one may discover "for instance in any Chamber of Deputies you care to choose" (p. 268). According to this, it is only out of ignorance that the "belly" of the French Chamber looks after itself and its like in such an excellent manner. A few pages later, on p. 271, Herr Grün finds "the July Revolution" "misbegotten", and as early as p. 34 the Customs Union111 is sharply criticised because it "makes yet more expensive the rags the unclothed and the shivering need to cover their nakedness, in order to make the pillars of the throne (!!), the liberal-minded money-masters" (whom everyone knows to be opposed to "the throne" throughout the Customs Union) "some- what more resistant to decay". Everyone knows how in Germany the philistines always bring out the "unclothed" and "shivering" when- ever it is a question of combating protective tariffs or any other progressive bourgeois measure, and "man" joins their number.
+
+What light does Goethe's critique of society and the state, as seen through Herr Grün's eyes, now shed on "the essence of man'1?
+
+Firstly, "man", according to p. 264, exhibits a most marked respect for "the educated estates" in general and a seemly deference towards a high aristocracy in particular. And then he is distinguished by a mighty terror of any great mass movement and any determined social action, at the approach of which he either scuttles timidly back into his fireside corner or takes to his heels with all his goods and chattels. As long as it lasts, such a movement is "a bitter experience" for him; scarcely is it over than he takes up a dominant position at the front of the stage and with the hand of Hercules delivers slaps in
+
+[^1]: a J. W. Goethe, Über Naturwissenschaft im Allgemeinen, einzelne Betrachtungen und Aphorismen.— Ed.
+
+[^2]: b The German original has: "Gesetzesstaat".—Ed.
+
+
+
+
+
+**[p. 267]**
+
+What actually does Goethe's critique of society as conveyed by Herr Grün amount to? What does "man" find in society to take exception to? Firstly that it does not correspond to his illusions. But these illusions are precisely the illusions of an ideologising philistine, especially a young one, and if philistine reality does not correspond to these illusions, this is only because they are illusions. For that very reason they correspond all the more fully to philistine reality. They differ from it only as the ideologising expression of a condition in general differs from that condition, and there can therefore be no further question of them being realised. A striking example of this is provided by Herr Grün's commentary on Werther.
+
+Secondly "man's" polemic is directed against everything that threatens Germany's philistine régime. His whole polemic against the Revolution is that of a philistine. His hatred of the liberals, the July Revolution and protective tariffs is the absolutely unmistak- able expression of the hatred an oppressed, inflexible petty bourgeois feels for the independent, progressive bourgeois. Let us give two further examples of this.
+
+Every one knows that the guild system marked the period of efflorescence of the petty bourgeoisie. On p. 40 Herr Grün says, speaking on behalf of Goethe, in other words, of "man": "In the Middle Ages the corporation brought together one strong man in defensive alliance with other strong men." The guildsmen of those days are "strong men" in the eyes of "man".
+
+But in Goethe's day the guild system was already in decay, competition was bursting in from all sides. As a true philistine, Goethe gives voice to a heart-rending wail at one point in his memoirs3 which Herr Grün quotes on p. 88, about the rot setting among the petty bourgeoisie, the ruination of well-to-do families, the decay of family life associated with this, the loosening of domestic
+
+[^1]: a J. W. Goethe, "Aus meinem Leben", Teil 2, Buch 7.—Ed.
+
+
+
+
+
+**[p. 268]**
+
+Let us now turn to the positive "human content" in Goethe. We can proceed more quickly now that we are on the track of "man".
+
+Before all else let us report the glad tidings that "Wilhelm Meister deserts his parental home" and that in Egmont "the citizens of Brussels are demanding privileges and liberties" for no other reason than to "become men" (p. XVII).
+
+Herr Grün has detected affinities with Proudhon in the elderly Goethe once before. On p. 320 he has this pleasure once again:
+
+"What he wanted, what we all want, to save our personalities, anarchy in the true sense of the word, on this topic Goethe has the following to say:
+
+Now why should anarchy have for me Such attraction in modern times? Each lives according to his lights And that is profit for me as well",3 etc.
+
+Herr Grün is beside himself with joy at finding in Goethe that truly "human" social anarchy which was first proclaimed by Proudhon and adopted by acclamation by the German true socialists. This time he is mistaken however. Goethe is speaking of the already existing "anarchy in modern times", which already "is" profit for him and by which each lives according to his lights, in other words of the independence in sociable intercourse which has been brought about by the dissolution of the feudal system and the guilds, by the rise of the bourgeoisie, and the exclusion of patriarchalism from the social life of the educated classes. Simply for grammatical reasons there can therefore be no question of the Herr Grün's beloved future anarchy in the higher sense. Goethe is here not talking at all about "what he wanted" but about what he found around him.
+
+But such a little slip should not disturb us. For we do have the poem: Eigentum.
+
+[^1]: I know that nothing is mine own Save the idea that peacefully Secretes itself from my spirit, And every instant of happiness Which destiny beneficent Gives me to savour fully.
+
+[^2]: a J. W. Goethe, Zahme Xenien, IV.—Ed.
+
+
+
+
+
+**[p. 269]**
+
+[Deutsche-Brüsseler-Zeitung No. 98, December 9, 1847]
+
+But let us leave these entertaining little exegetical diversions of Herr Grün's to their fate. They are in any case legion and each invariably leads on to others still more surprising. Let us rather resume our search for "man".
+
+"Man is happy within a restricted sphere," as we have read. So is the philistine.
+
+"Goethe's early works were of purely social?' (i.e. human) "character Goethe clung to what was most immediate, smallest, most domesticated" (p. 88).
+
+The first positive thing we discover about "man" is his delight in the "smallest, domesticated" still-life of the petty bourgeoisie.
+
+"If we can find a place in the world," says Goethe, as summarised by Herr Grün, "where to rest with our possessions, a field to provide us with food, a house to shelter us—is that not a Fatherland for us?"
+
+And, exclaims Herr Grün,
+
+Essentially "man" is dressed in a redingote à la propriétaire and by that too reveals himself as a thoroughbred épicier.3
+
+The German bourgeois, as everyone knows, is a fanatic for freedom at most for a brief moment, in his youth. That is characteristic of "man" too. Herr Grün mentions with approval how in his later years Goethe "damns" the "urge for freedom" which still haunts Götz, that "product of a free and ill-bred boy", and even quotes this cowardly recantation in extenso on p. 43. What Herr Grün understands by freedom can be deduced from the fact that in the same passage he identifies the freedom of the French Revolution with that of the free Switzers at the time of Goethe's Swiss journey, in other words, modern, constitutional and democratic freedom with the dominance of patricians and guilds in medieval Imperial Cities and especially with the early Germanic barbarism of cattle-rearing Alpine tribes. The montagnards of the Bernese Oberland even have the same name as the Montagnards of the National Convention! »>
+
+[^1]: "How these words express our deepest thoughts today!" (p. 32).
+
+[^2]: a Grocer.— Ed. Play on words: "montagnards" — literally "mountain-dwellers"; this was also the name taken by the Jacobins, the representatives of the Mountain Party in the Convention during the French Revolution.— Ed.
+
+
+
+
+
+**[p. 270]**
+
+The bourgeois cannot live without a "king he loves", a father to his country whom he holds dear. Nor can "man". That is why on p. 129 Karl August is for Goethe a "most excellent Prince". Stout old Herr Grün, still enthusing for "most excellent Princes" in the year 1846!
+
+An event is of interest to the bourgeois insofar as it impinges directly on his private circumstances.
+
+"To Goethe even the events of the day become alien objects which either add to or detract from his bourgeois comforts and which may arouse in him an aesthetic or human but never a political interest" (p. 20).
+
+Herr Grün "thus finds a human interest in a thing" if he notices that it "either adds to or detracts from his bourgeois comforts". Herr Grün here confesses as openly as possible that bourgeois comforts are the chief thing for "man".
+
+Faust and Wilhelm Meister provide Herr Grün with an occasion for special chapters. Let us take Faust first.
+
+On p. 116 we are told:
+
+We have already had examples of how that "humanistic man", Herr Grün, "is brought to the peak of his own nature by natura! science". We observe that this is inherent in the race.
+
+Then on p. 231 we hear that the "bones of brute and human skeletons" in the first scene signifies "the abstraction of our whole life"—and Herr Grün treats Faust in general exactly as though he had the Revelation of St. John the Theologian before him. The macrocosm signifies "Hegelian philosophy", which at the time when Goethe was writing this scene (1806) happened to exist only in Hegel's mind or at most in the manuscript of the Phänomenologie
+
+which Hegel was then working on. What has chronology to do with "human content"?
+
+The depiction of the moribund Holy Roman Empire in the Second Part of Faust Herr Grün (p. 240) imagines without more ado to be a
+
+[^1]: "Only the fact that Goethe came upon a clue to the mystery of the organisation of plants" enabled him "to complete his delineation of humanistic man" (for there is no way of escaping "human" man) "Faust. For Faust is brought to the peak of his own nature (!) just as much as by natural science."
+
+
+
+
+
+**[p. 271]**
+
+On p. 246 Herr Grün confides to us that the Second Part of Faust has become, with regard to its scientific aspect, "the canon of modern times, just as Dante's Divine Comedy was the canon of the Middle Ages". We would commend this to natural scientists who have hitherto sought very little in the Second Part of Faust, and to historians, who have sought something quite other than a "canon of the Middle Ages" in the Florentine's pro-Ghibelline poem!112 It seems as though Herr Grün is looking at history with the same eyes as Goethe, according to p. 49, looked at his own past: "In Italy Goethe surveyed his past with the eyesoi the Belvedere Apollo", eyes which pour comble de malheur* do not even have eyeballs.
+
+Wilhelm Meister is "a Communist", i.e. "in theory, on the basis of aesthetic outlook" (!!) (p. 254).
+
+On nothing does he set great store, And yet the whole wide world is his b (p. 257).
+
+Of course, he has enough money, and the world belongs to him, as it belongs to every bourgeois, without his needing to go to the trouble of becoming "a communist on the basis of aesthetic outlook".—Under the auspices of this "nothing" on which Wilhelm Meister sets great store and which, as we see from p. 256, is indeed an extensive and most substantial "nothing", even hangovers are eliminated. Herr Grün "drains every cup to the lees, without ill effect, without a headache". So much the better for "man" who may now quietly worship Bacchus with impunity. For the day when all these things shall come to pass, Herr Grün has meanwhile already discovered the drinking song for "true man" in On nothing do I set great store—"this song will be sung when mankind has arranged its affairs in a manner worthy of itself" ; but Herr Grün has reduced it to three verses and expunged those parts unsuitable for youth and "man".
+
+In W[ilhelm] M[eister] Goethe sets up
+
+Finally the Wahlverwandtschaften. This novel, moral enough in itself, is moralised even more by Herr Grün, so that it almost seems as
+
+[^1]: "the ideal of human society". "Man is not a teaching but a living, acting and creating being." "Wilhelm Meister is this man." "The essence of man is activity" (an essence he shares with any flea) pp. 257, 258, 261.
+
+[^2]: a As the final misfortune.— Ed. b J. W. Goethe, "Vanitas! Vanitatum vanitas!" (paraphrased).—Ed.
+
+
+
+
+
+**[p. 272]**
+
+"distinguished between love and marriage, so that for him love was a search ofmar- riage and marriage was love found and fulfilled" (p. 286).
+
+By this token, then, love is the searchoi "love that has been found". This is further elucidated to the effect that after "the freedom of youthful love", marriage must come about as "the final relationship of love" (p. 287). Exactly as in civilised countries a wise father first allows his son to sow his wild oats for a few years and then finds him a suitable wife as a "final relationship". However, whilst people in civilised countries have long passed the stage of regarding this "final relationship" as something morally binding, whilst on the contrary in those countries the husband keeps mistresses and his wife retaliates by cuckolding him, the philistine once again rescues Herr Grün:
+
+"If man has had a really free choice, if two people base their union on their mutual rational wishes" (there is no mention here of passion, flesh and blood) "it would require the outlook of a libertine to regard the upsetting of this relationship as a trifle, as not so fraught with suffering and unhappiness as Goethe did. But there can be no question of libertinism with Goethe" (p. 288).
+
+This passage qualifies the timid polemic against morality which Herr Grün permits himself from time to time. The philistine has arrived at the realisation that there is all the more reason for having to turn a blind eye to the behaviour of the young since it is precisely the most dissolute young men who afterwards make the best husbands. But if they should misbehave themselves again after the wedding—then no mercy, no pity on them; for that "would require the outlook of a libertine".
+
+"The outlook of a libertine!" "Libertinism!" One can just picture "man" as large as life before one, as he places his hand on his heart, and overflowing with pride exclaims: No! I am pure of all frivolity, of "fornication and licentiousness", I have never deliberately ruined the happiness of a contented marriage, I have always practised fidelity and honesty and have never lusted after my neighbour's wife—I am no "libertine"!
+
+"Man" is right. He is not made for amorous affairs with beautiful women, he has never turned his mind to seduction and adultery, he is no "libertine", but a man of conscience, an honourable, virtuous, German philistine. He is
+
+[^1]: l'épicier pacifique, Fumant sa pipe au fond de sa boutique; Il craint sa femme et son ton arrogant;
+
+
+
+
+
+**[p. 273]**
+
+(Parny, Goddam, chant III.)
+
+There remains just one observation for us to make. If above we have only considered one aspect of Goethe, that is the fault of Herr Grün alone. He does not present Goethe's towering stature at all. He either skims hurriedly over all works in which Goethe was really great and a genius, such as the Römische Elegieen of Goethe the "libertine", or he inundates them with a great torrent of trivialities, which only proves that he can make nothing of them. On the other hand, with what is for him uncommon industry he seeks out every instance of philistinism, petty priggery and narrow-mindedness, collates them, exaggerates them in the manner of a true literary hack, and rejoices every time he is able to find support for his own narrow-minded opinions on the authority of Goethe, whom he furthermore frequently distorts.
+
+History's revenge on Goethe for ignoring her every time she confronted him face to face was not the yapping of Menzel nor the narrow polemic of Börne. No,
+
+Just as Titania in the land of fairy magic Found Nick Bottom in her arms,b
+
+so one morning Goethe found Herr Grün in his arms. Herr Grün's apologia, the warm thanks he stammers out to Goethe for every philistine word, that is the bitterest revenge which offended history could pronounce upon the greatest German poet.
+
+Herr Grün, however, "can close his eyes in the awareness that he has not disgraced his destiny of being a man" (p. 248).
+
+[^1]: Written in 1846 and early 1847 Printed according to the newspaper
+
+[^2]: First published in the Deutsche-Brüsseler- Published in English for the first Zeitung Nos. 73, 74, 93, 94, 95, 96, 97 and time 98; September 12 and 16, November 21, 25 and 28, -December 2, 5 and 9, 1847
+
+[^3]: a the peaceful tradesman, Smoking his pipe at the back of his shop; He fears his wife and her domineering tone; He leaves to her the government of the house, Without a word he obeys her slightest signal; Thus he lives, cuckolded, beaten and content.— Ed.
+
+[^4]: b J. W. Goethe, Warnung (Zyklus "Epigrammatisch").—Ed.
+
+
+
+Frederick Engels
+
+THE ECONOMIC CONGRESS113
+
+It is well known that here there are several lawyers, officials, doctors, rentiers, merchants, etc., who, under pretence of an Association pour le libre échange (à l'instar de Paris),3 give one another instruction in the elements of political economy. For the last three days of the past week these gentlemen were swimming in bliss. They held their great congress of the greatest economists of all countries, they enjoyed the ineffable delights of hearing the truths of economics expounded, no longer from the mouths of a M[onsieur] Jules Bartels, a Le Hardy de ßeaulieu, a Faider or Faderb or other unknown celebrities, no, but from the mouths of the leading masters of the science. They were enraptured, enchanted, divinely happy, transported to the seventh heaven.
+
+Less enraptured, however, were the masters of the science themselves. They had come prepared for an easy battle, and the battle was very hard for them; they believed that they had only to come, see and conquer, and they conquered only in the voting, whereas they were decisively defeated in the discussion on the second day, and only by means of intrigues did they avoid a new and still more decisive defeat on the third dav. Even if their divinelv happy public noticed nothing of all this, they themselves could not but feel it painfully.
+
+We attended the congress. From the very beginning we had no particular respect for these masters of science, whose principal
+
+[^1]: a Association for Free Trade (after the example of Paris).— Ed.
+
+[^2]: Pun — Fader, from "fade" (dull, insipid), Faider, name of a participant in the economic congress.— Ed.
+
+
+
+
+
+**[p. 275]**
+
+The Englishmen comported themselves best at the congress. They had the greatest interest in the matter; they have the opening up of the continental markets at heart; for them the question of free trade is a matter of life and death. They showed this clearly enough, too; they, who nowhere speak anything but their English, condescended, in the interest of their beloved free trade,3 to speak French. One could clearly see how powerfully the matter affected their purses. The Frenchmen performed in the manner of pure ideologists and scientific dreamers. They did not even distinguish themselves by any French esprit or originality of conception. But at least they spoke good French, and that is something one seldom hears in Brus- sels.—The Dutchmen were tedious and professorial. The Dane, Herr David, was quite incomprehensible. The Belgians for the most part played the role of passive listeners, or at any rate never transcended the limits of their national industry—contrefaçon.*1 And finally the Germans, with the exception of Weerth, who, however, spoke more as an Englishman than a German, formed the partie honteuse of the whole congress. The palm would have fittingly been theirs, if a Belgian had not after all conquered it for his nation.
+
+First day. General discussion. Belgium opened it with M. Faider, who, in his entire behaviour, in his deportment and language, brought before us the whole of that strutting foppishness which gives itself such repulsive airs in the streets and promenades of Brussels. M. Faider peddled nothing but empty phrases, and hardly raised himself to the most elementary economic truths. Let us not detain
+
+[^1]: a English in the original.— Ed. b Imitation.—Ed.
+
+
+
+
+
+**[p. 276]**
+
+M. Wolowski, Professor etc. in Paris, mounted the rostrum. A smug, rhetorical, superficial, Frenchified Polish Jew, who has managed to combine in himself the bad qualities of all three nations with none of the good. M. Wolowski whipped up huge enthusiasm by means of a previously arranged, sophistically surprising speech. Unfortunately, however, this speech was not M. Wolowski's proper- ty, it was patched together from the Sophismes économiques of M. Frédéric Bastiat. This was naturally something the Brussels claqueurs could not know.—M. Wolowski regretted that a German protectionist would be opposing him and that the French protectionists had allowed the initiative to be taken from them in this way. For this he was punished. When concluding his speech M. Wolowski became comical in the highest degree. He came to speak of the working classes, to whom he promised golden mountains from free trade, and in whose name he made a hypocritically furious attack on the protectionists. Yes! He exclaimed, .working himself up into a rhetorical falsetto, yes, these protectionists, "ces gens qui n'ont rien là
+
+qui batte pour les classes laborieuses"3—here he pounded himself on his round little belly—these protectionists are the people who prevent us from fulfilling our most heartfelt wishes and help the workers out of their poverty! Unfortunately, his whole fury was too artificial to make any impression on the few workers who were present in the gallery.
+
+Herr Rittinghausen from Cologne, the representative of the German fatherland, read out an infinitely tedious essay in defence of the protective system. He spoke as a true German. With the most pitiful grimaces in the world he lamented Germany's sorry condition and its industrial impotence, and he downright beseeched the Englishmen that they might, after all, allow Germany to protect itself against their superior competition. Why, he said, gentlemen, you wish to give us freedom of trade, you wish us to compete freely with all nations, when we still have guilds almost everywhere, when we may not even compete freely among ourselves}
+
+M. Blanqui, Professor, Deputy, and Progressive Conservative from Paris, author of a wretched economic history1* and other inferior books, principal pillar of the so-called École française of economics, answered Herr Rittinghausen. A well-fed, stand-offish man with a face in which hypocritical severity, unctuousness and philanthropy
+
+[^1]: a "These people with nothing here which beats for the toiling classes." — Ed. b A. Blanqui, Histoire de l'économie politique en Europe.—Ed.
+
+
+
+
+
+**[p. 277]**
+
+dire.3 M. Blanqui spoke with the greatest possible volubility and the least possible wit, and this, naturally, was just the thing to impress the Brussels Free Traders. What he said is moreover ten times less significant than what he has previously written. Let us not detain ourselves with these empty phrases.
+
+Then came Dr. Bowring, radical Member of Parliament and heir to the wisdom of Bentham, whose skeleton he owns.114 He is himself a kind of Bentham skeleton. It was noticeable that the elections were over; Mr. Bowring no longer found it necessary to make concessions to the people, but spoke instead in the manner of a genuine bourgeois. He spoke fluent and correct French, with a strong English accent, and emphasised the effect of his words with the most vehement and droll gesticulations that we recall ever having seen. Mr. Bowring, the representative of the highly interested English bourgeoisie, declared that at last the time had come for all egoism to be cast aside and for each to establish his own prosperity on that of the others. Naturally the old economic "truth" cropped up that one can do more business with a millionaire and therefore make more out of him than out of the possessor of a mere thousand talers.—Finally, there was yet another inspired hymn to cet envoyé du ciel,** the smuggler.
+
+After him spoke M. Duchateau, President of the Valenciennes Association pour la protection du travail national,0 defending, as a result of M. Wolowski's provocation, the French protective system. He repeated, with great calm and lucidity, the well-known principles of the protectionists, in the quite correct opinion that these were sufficient to make the whole congress bitter for the free-trade gentlemen. He was undoubtedly the best speaker of the day.
+
+Mr. Ewart, Member of Parliament, answered him, in almost incomprehensible French, with the stalest and most platitudinous shibboleths of the Anti-Corn-Law League, long since known by heart to almost every street urchin in England.
+
+We mention M. Campan, a delegate from the Free Trade Society of Bordeaux, merely for the sake of the record. What he said was so insignificant that we can no longer recall a single word of it.
+
+Colonel Thompson, Member of Parliament, reduces the question to a simple story—in a certain town there exist cab-drivers who make a journey for 1V2 francs. Now an omnibus is introduced, which
+
+[^1]: a That goes without saying.—Ed. b This ambassador from heaven.—Ed. c Association for the protection of national labour.—Ed.
+
+
+
+
+
+**[p. 278]**
+
+The final speaker was^M. Dunoyer, a Counsellor of State in Paris, author of several books, among others De la liberté du travail, in which he accuses the workers of producing far too many children. He spoke with the vehemence proper to a Counsellor of State, and moreover very insignificantly. M. Dunoyer is a well-nourished ventru3
+
+with a bald skull and the red, forward-thrusting face of a dog, he is evidently accustomed to brook no contradictions, but is by no means as terrifying as he would like to be. M. Blanqui said of his cheap invective against the proletariat: "M. Dunoyer dit aux peuples les mêmes vérités au- stères qu'au dernier siècle les Voltaire et Rousseau disaient aux princes. "b
+
+With this the general discussion was closed. We shall report on the discussion of the individual questions on the second and third days in the next issue.115
+
+[^1]: Written between September 19 and 22, Printed according to the newspaper 1847
+
+[^2]: Published in English for the first First published in the Deutsche-Brüsseler- time Zeitung No. 76, September 23, 1847
+
+[^3]: a Belly, paunch.—Ed.
+
+[^4]: "M. Dunoyer tells the same hard truths to the people as did the Voltaires and Rousseaus to the princes in the last century."—Ed.
+
+
+
+Karl Marx
+
+THE PROTECTIONISTS, THE FREE TRADERS AND THE WORKING CLASS116
+
+The protectionists have never protected small industry, handicraft proper. Have Dr. List and his school in Germany by any chance demanded protective tariffs for the small linen industry, for hand loom-weaving, for handicraft production? No, when they demanded protective tariffs they did so only in order to oust handicraft production with machines and patriarchal industry with modern industry. In a word, they wish to extend the dominion of the bourgeoisie, and in particular of the big industrial capitalists. They went so far as to proclaim aloud the decline and fall of small industry and the petty bourgeoisie, of small farming and the small peasants, as a sad but inevitable and, as far as the industrial development of Germany is concerned, necessary occurrence.
+
+Besides the school of Dr. List there exists in Germany, the land of schools, yet another school, which demands not merely a system of protective tariffs, but a system of import prohibition proper. The leader of this school, Herr v. Gülich, has written a very scholarly history of industry and trade,3 which has also been translated into French. Herr v. Gülich is a sincere philanthropist; he is in earnest with regard to protecting handicraft production and national labour. Well now! What did he do? He began by refuting Dr. List, proved that in List's system the welfare of the working class is only a s Ham and a pretence, a ringing piece of hollow rhetoric, and then, for his part, he made the following proposals:
+
+1. To prohibit the importation of foreign manufactured products;
+
+[^1]: a G. Gülich, Geschichtliche Darstellung des Handels, der Gewerbe und des Ackerbaus der bedeutendsten handeltreibenden Staaten unserer Zeit.—Ed.
+
+
+
+
+
+**[p. 280]**
+
+Herr List and Herr v. Gülich form the limits between which the system moves. If it wishes to protect industrial progress, then it at once sacrifices handicraft production, labour; if it wishes to protect labour, then industrial progress is sacrificed.
+
+Let us return to the protectionists proper, who do not share the illusions of Herr v. Gülich.
+
+If they speak consciously and openly to the working class, then they summarise their philanthropy in the following words: It is better to be exploited by one's fellow-countrymen than by foreigners.
+
+I do not think the working class will be for ever satisfied with this solution, which, it must be confessed, is indeed very patriotic, but nonetheless a little too ascetic and spiritual for people whose only occupation consists in the production of riches, of material wealth.
+
+But the protectionists will say: "So when all is said and done we at least preserve the present state of society. Good or bad, we guarantee the labourer work for his hands, and prevent his being thrown on to the street by foreign competition." I shall not dispute this statement, I accept it. The preservation, the conservation of the present state of affairs is accordingly the best result the protectionists can achieve in the most favourable circumstances. Good, but the problem for the working class is not to preserve the present state of affairs, but to transform it into its opposite.
+
+The protectionists have one last refuge. They say that their system makes no claim to be a means of social reform, but that it is nonetheless necessary to begin with social reforms in one's own country, before one embarks on economic reforms internationally. After the protective system has been at first reactionary, then conservative, it finally becomes conservative-progressive. It will suffice to point out the contradiction lurking in this theory, which at first sight appears to have something seductive, practical and rational to it. A strange contradiction! The system of protective tariffs
+
+
+
+**[p. 281]**
+
+Incidentally, we have no need to detain ourselves with this matter. From the moment the protectionists concede that social reforms have no place in their system and are not a result of it, and that they form a special question—from this moment on they have already abandoned the social question. I shall accordingly leave the protectionists aside and speak of Free Trade in its relationship to the condition of the working class.
+
+Written in the second half Printed according to the 1848 of September 1847 edition
+
+First published in Zwei Reden über die Published in English for the first Freihandels- und Schutzzollfrage von Karl time Marx, Hamm, 1848
+
+Frederick Engels
+
+THE FREE TRADE CONGRESS AT BRUSSELS
+
+On the 16th, 17th, and 18th of September, there was held here (Brussels) a congress of political economists, manufacturers, trades- men, etc., to discuss the question of Free Trade. There were present about 150 members of all nations. There assisted, on the part of the English Free Traders, Dr. Bowring, M. P., Col. Thompson, M. P., Mr. Ewart, M. P., Mr. Brown, M. P., James Wilson, Esq., editor of the Economist, etc.; from France had arrived M. Wolowski, professor of jurisprudence; M. Blanqui, deputy, professor of political economy, author of a history of that science,3 and other works; M. Horace Say, son of the celebrated economist5; M. Ch. Dunoyer, member of the Privy Council, author of several works upon politics and economy, and others. From Germany there was no Free Trader present, but Holland, Denmark, Italy, etc., had sent representatives. Senor Ramon de la Sagra, of Madrid, intended to come, but came too late. The assistance of a whole host of Belgian Free Traders need hardly be mentioned, it being a matter of course.
+
+Thus the celebrities of the science had met to discuss the important question—whether Free Trade would benefit the world? You will think the discussions of such a splendid assembly—discussions carried on by economical stars of the first magnitude—must have been interesting in the highest degree. You will say that men like Dr. Bowring, Colonel Thompson, Blanqui and Dunoyer, must have pronounced speeches the most striking, must have produced arguments the most convincing, must have represented all questions under a light the most novel and surprising imaginable. Alas! Sir, if you had been present, you would have been piteously undeceived.
+
+[^1]: a A. Blanqui, Histoire de l'économie politique en Europe.—Ed.
+
+[^2]: Jean Baptiste Say.— Ed.
+
+
+
+
+
+**[p. 283]**
+
+M. Rittinghausen, a German Protectionist, and generally an insipid fellow. But up got M. Duchateau, a French manufacturer and Protectionist—a man who spoke for his purse, just as Mr. Ewart or Mr. Brown spoke for theirs, and gave them such a terrible opposition, that on the second day of the discussion, a great number, even of Free Traders, avowed that they had been beaten in argument. They took, however, their revenge at the vote—the resolutions passed, of course, almost unanimously.
+
+On the third day, a question was discussed which interests your readers. It was this: "Will the carrying out of universal Free Trade benefit the working classes?" The affirmative was supported by Mr. Brown, the South Lancashire Free Trader, in a lengthy speech, in English; he and Mr. Wilson were the only ones who spoke that language, the remainder all spoke French—Dr. Bowring, very well—Colonel Thompson, tolerably—Mr. Ewart, dreadfully. He repeated a part of the old League documents, in a whining tone, very much like a Church-of-England parson.
+
+After him got up Mr. Weerth, of Rhenish Prussia. You know, I believe, this gentleman—a young tradesman whose poetry is well known and very much liked throughout Germany, and who, during several years' stay in Yorkshire, was an eye-witness of the condition of the working people. He has a great many friends amongst them there, who will be glad to see that he has not forgotten them. As his speech will be to your readers the most interesting feature of the whole Congress, I shall report it at some length. He spoke as follows118:
+
+
+
+**[p. 284]**
+
+Mr. Weerth then declared his opinion to be, that the protective system in reality did not protect the working people, but that Free Trade—and he told it them plainly and distinctly, although he himself was a Free Trader—that Free Trade would never change their miserable condition. He did not at all join in the delusions of the Free Traders, as to the beneficial effects of the carrying out of their system upon the working classes. On the contrary, Free Trade, the full realisation of free competition, would force the working people as much into a keener competition amongst themselves as it would make capitalists compete more selfishly against each other. The perfect freedom of competition would inevitably give an enormous impulse to the invention of new machinery, and thus supersede more workmen than even now were daily superseded. It would stimulate production in every way, but for this very reason it would stimulate overproduction, overstocking of markets, and commercial revulsions, just in the same measure. The Free Traders pretended that those terrible revulsions would cease under a system of commercial freedom; why, just the contrary would be the case, they would increase and multiply more than ever. Possible, nay certain it was, that at first the greater cheapness of provisions would benefit the workpeople,—that a lessened cost of production would increase consumption and the demand for labour, but that
+
+
+
+**[p. 285]**
+
+"And do not think, gentlemen, that these are but my individual opinions; they are the opinions, too, of the English working men, a class whom I cherish and respect, because they are intelligent and energetic men, indeed, (cheers, "by courtesy") I shall prove that by a few facts. During full six years, the gentlemen of the League, whom we see here, courted the support of the working people, but in vain. The working men never forgot that the capitalists were their natural enemies; they recollected the League riots of 1842,119 and the masters' opposition against the Ten Hours Bill. It was only towards the end of 1845, that the Chartists, the élite of the working classes, associated for a moment with the League, in order to crush their common enemy, the landed aristocracy. But it was for a moment only, and never were they deceived by the delusive promises of Cobden, Bright and Co., nor did they hope the fulfilment of cheap bread, high wages, and plenty to do. No, not for a moment did they cease to trust in their own exertions only; to form a distinct party, led on by distinct chiefs, by the indefatigable Duncombe, and by Feargus O'Connor, who, in spite of all calumnies,—(here Mr. Weerth looked at Dr. Bowring, who made a quick, convulsive movement)—who, in spite of all calumnies, within a few weeks will sit upon the same bench with you in the House of Commons. In the name, then, of those millions who do not believe that Free Trade will do wonders for them, I call upon you to seek for some other means to effectively better their condition. Gentlemen, I call upon you for your own interests. You have no longer to fear the Emperor of all the Russias; you dread not an invasion of Cossacks, but if you do not take care you will have to fear the irruption of your own workmen, and they will be more terrible to you than all the Cossacks in the world. Gentlemen, the workpeople want no more words from you, they want deeds. And you have no reason to be astonished at that. They recollect very well, that in 1830 and 31, when they conquered the Reform Bill for you in London, when they fought for you in the streets of Paris and Brussels, that then they were courted, shaken hands with, and highly praised; but that when a few years after they demanded bread, then they were received with grape shot and the bayonet. ("Oh! no, no! yes, yes! Buzançais, Lyons.") I repeat, therefore, to you, carry your Free Trade, it will be well; but think, at the same time, about other measures for the working classes, or you will repent it." (Loud cheers.)
+
+Immediately after Mr. Weerth, up got Dr. Bowring to reply.
+
+He then went on to show the beneficial effects of Free Trade, as proved by the increased importation of articles of food into England
+
+[^1]: "Gentlemen," said he, "I can tell you that the hon. member who has just sat down has not been elected by the English working people to represent them in this Congress. On the contrary, the English people generally have given us their suffrages for this purpose, and, therefore, we claim our places as their true representatives."
+
+[^2]: a "Free Trade Congress in Brussels" in The Times, September 20, 1847.— Ed.
+
+
+
+
+
+**[p. 286]**
+
+
+
+[^1]: a i.e., the lifting of heavy duties on imported corn in 1846.— Ed.
+
+
+
+
+
+**[p. 287]**
+
+You see from this, what a nice discussion it was. Dr. Marx, of Brussels, whom you know as by far the most talented representative of German Democracy, had also claimed his turn to speak. He had prepared a speech, which, if it had been delivered, would have made it impossible for the congressional "gents" to vote upon the question. But Mr. Weerth's opposition had made them shy. They resolved to let none speak, of whose orthodoxy they were not quite sure. Thus, Messrs Wolowski, Wilson, and the whole precious lot spoke against time, and when it was four o'clock, there were still six or seven gentlemen who wanted to speak, but the chairman3 closed the discussion abruptly, and the whole set of fools, ignorants, and knaves called a congress of political economists, voted all votes against one (the poor German fool of a Protectionist aforesaid)—the Democrats did not vote at all—that Free Trade is extremely beneficial to the working people, and will free them from all misery and distress.
+
+As Mr. Marx's speech, although not delivered, contains the very best and most striking refutation of this barefaced lie, which can be imagined, and as its contents, in spite of so many hundred pages having been written pro and con upon the subject, will yet read quite novel in England, I enclose you some extracts from it.
+
+There are two sects of protectionists. The first sect, represented in Germany by Dr. List, who never intended to protect manual labour, on the contrary, they demanded protective duties in order to crush manual labour by machinery, to supersede patriarchal manufacture by modern manufacture. They always intended to prepare the reign of the monied classes (the bourgeoisie), and more particularly that of the large manufacturing capitalists. They openly proclaimed the ruin of petty manufacturers, of small tradesmen, and small farmers, as an event to be regretted, indeed, but quite inevitable, at the same time. The second school of protectionists, required not only
+
+[^1]: SPEECH OF DR. MARX ON PROTECTION, FREE TRADE, AND THE WORKING CLASSES
+
+[^2]: a Charles de Brouckère.— Ed.
+
+
+
+
+
+**[p. 288]**
+
+
+
+
+
+
+
+**[p. 290]**
+
+
+
+[^1]: Written at the end of September 1847 Reprinted from the newspaper
+
+[^2]: First published in The Northern Star No. 520, October 9, 1847 with an editorial note: "From Our German Correspondent"
+
+
+
+Frederick Engels
+
+THE COMMUNISTS AND KARL HEINZEN124
+
+FIRST ARTICLE
+
+[Deutsche-Brüsseler-Zeitung No. 79, October 3, 1847]
+
+Brussels, September 26. Today's number of the D[eutsche]- Br[iisseler]-Z[ei]t[un]g contains an article by Heinzen3 in which under the pretext of defending himself against a trivial accusation by the editors, he embarks on a long polemic against the Communists.
+
+The editors advise both sides to drop the polemic. In that case however they ought only to reproduce that part of Heinzen's article in which Heinzen really defends himself against the accusation of having attacked the Communists first. Even if "Heinzen has no paper at his disposal", that is no reason for placing one at his disposal for the publication of attacks which the editors of the paper themselves consider stupid.
+
+Incidentally, no greater service could have been rendered to the Communists than has been rendered through the publication of this article. Sillier and more narrow-minded criticisms than those Heinzen here makes of the Communists have never been made of any party. The article is the most dazzling vindication of the Communists. It proves that if they had not already attacked Heinzen, they would be obliged to do so at once.
+
+At the very outset Herr Heinzen presents himself as the representative of all the non-communist German radicals; his intention is to debate with the Communists as one party with another. He "is entitled to demand", he announces with the greatest assurance what "must be expected of" the Communists, what "must be demanded of them", what the "duty of real Communists is". He
+
+[^1]: a Published as a statement in the Polemik column with a note by the editors entitled "Karl Heinzen und die Kommunisten".— Ed.
+
+[^2]: 1 1 — 1826
+
+
+
+
+
+**[p. 292]**
+
+Who is Herr Heinzen, then, and what does he represent?
+
+Herr Heinzen is a former liberal, lower-ranking civil servant who in 1844 was still enthusiastic about legitimate progress and the wretched German Constitution, and who at best confessed in a confidential whisper that a republic might be desirable and possible, of course in the far distant future. Herr Heinzen was wrong however about the possibility of legal resistance in Prussia. The bad book he wrote on the bureaucracy3 (even Jacob Venedey wrote a far better book about Prussia years agob) compelled him to flee the country. Now the truth dawned on him. He declared legal resistance to be impossible, became a revolutionary and naturally a republican as well. In Switzerland he made the acquaintance of that savant sérient Rüge, who taught him the little philosophy he has, consisting of a confused hotch-potch of Feuerbachian atheism and humanism, reminiscences of Hegel and rhetorical phrases from Stirner. Thus equipped, Herr Heinzen considered himself mature and inaugu- rated his revolutionary propaganda, leaning on Ruge to the right and Freiligrath to the left.
+
+We are most certainly not criticising Herr Heinzen for his transition from liberalism to bloodthirsty radicalism. But we do maintain that he has made this transition as a result of merely personal circumstances. As long as Herr Heinzen was able to put up legal resistance, he attacked all those who admitted the necessity of a revolution. Scarcely was legal resistance rendered impossible for him when he declared it to be impossible absolutely, without taking into account that for the present this resistance is still perfectly possible for the German bourgeoisie, which is constantly putting up a highly legal resistance. Scarcely had the way back been cutoff for him when he declared the necessity of an immediate revolution. Instead of studying conditions in Germany, taking overall stock of them and deducing from this what progress, what development and what steps were necessary and possible, instead of obtaining for himself a clear picture of the complex situation of the individual classes in Germany with regard to each other and to the government and concluding from this what policy was to be followed, instead, in a word, of accommodating himself to the development of Germany, Herr
+
+[^1]: a K. Heinzen, Die Preussische Bureaukratie.—Ed. J. Venedey, Preussen und Preussenthum.— Ed. c Serious scholar.— Ed.
+
+
+
+
+
+**[p. 293]**
+
+Herr Heinzen was a violent opponent of philosophy as long as it remained progressive. Scarcely had it become reactionary, scarcely had it become the refuge of all waverers, weaklings and literary hacks, when Herr Heinzen did himself the disservice of joining it. And worse still, fate would have it that Herr Rüge, who himself has been a mere proselyte all his life, has found his only proselyte in
+
+Herr Heinzen. Herr Heinzen is thus condemned to provide Herr Rüge with the consolation that at least one person believed he had penetrated his verbal edifices.
+
+For what end is Herr Heinzen actually working then? For the instant establishment of a German republic combining American and 1793 traditions with a few measures borrowed from the Communists, and looking very black, red and gold.125 As a result of its industrial lethargy, Germany occupies such a wretched position in Europe that it can never seize an initiative, never be the first to proclaim a great revolution, never establish a republic on its own account without France and England. Any German republic that is supposed to be created independently of the development of the civilised countries, any German revolution that is supposed to be carried out on its own and, as happens in Herr Heinzen's case, leaves the real development of classes in Germany totally out of considera- tion, any such republic or revolution is nothing but black, red and gold day-dreaming. And in order to make this glorious German republic even more glorious, Herr Heinzen garnishes it with Feuerbachian, Rugified humanism, and proclaims it as the kingdom "of man" which is almost at hand. And the Germans are supposed to make something of all this topsy-turvy day-dreaming?
+
+But how does the great "agitator" Herr Heinzen conduct his propaganda? He declares the princes to be the chief authors of all poverty and distress. This assertion is not only ridiculous but exceedingly damaging. Herr Heinzen could not flatter the German princes, those impotent and feeble-minded puppets, more than by attributing to them fantastic, preternatural, daemonic omnipotence. If Herr Heinzen asserts that the princes can do so much evil, he is thereby also conceding them the power to perform as many good works. The conclusion this leads to is not the necessity of a revolution but the pious desire for a virtuous prince, for a good Emperor Joseph. In any case, the people know far better than Herr Heinzen who their oppressors are. Herr Heinzen will never transfer to the princes the hatred which the serf feels for the feudal lord and the worker for his employer. But of course Herr Heinzen is working in
+
+Herr Heinzen calls for an immediate insurrection. He has leaflets printed3 to this effect and attempts to distribute them in Germany. We would ask whether blindly lashing out with such senseless propaganda is not injurious in the highest degree to the interests of German democracy. We would ask whether experience has not proved how useless it is. Whether, at a time of far greater unrest, in the thirties, hundreds of thousands of such leaflets, pamphlets, etc., were not distributed in Germany and whether a single one of them had any success whatever. We would ask whether any person who is in his right mind at all can imagine that the people will pay any attention whatever to political sermonising and exhortations of this kind. We would ask whether Herr Heinzen has ever done anything else in his leaflets except exhort and sermonise. We would ask whether it is not positively ridiculous to trumpet calls for revolution out into the world in this way, without sense or understanding, without knowledge or consideration of circumstances.
+
+What is the task of a party press? To debate, first and foremost, to explain, to expound, to defend the party's demands, to rebut and refute the claims and assertions of the opposing party. What is the task of the German democratic press? To demonstrate the necessity for democracy by the worthlessness of the present government, which by and large represents the nobility, by the inadequacy of the constitutional system that brings the bourgeoisie to the helm, by the impossibility of the people helping itself so long as it does not have political power. Its task is to reveal the oppression of the proletarians, small peasants and urban petty bourgeoisie, for in Germany these constitute the "people", by the bureaucracy, the nobility and the bourgeoisie; how not only political but above all social oppression has come about, and by what means it can be eliminated; its task is to show that the conquest of political power by the proletarians, small peasants and urban petty bourgeoisie is the first condition for the application of these means. Its task is further to examine the extent to which a rapid realisation of democracy may be expected, what resources the party can command and what other parties it must ally itself with as long as it is too weak to act alone.—Well, and has Herr Heinzen done even one of these things?
+
+[^1]: a K. Hein^en, "Teutsche Revolution. Gesammelte Flugschriften"..— Ed.
+
+
+
+
+
+**[p. 295]**
+
+And to whom does Herr Heinzen address his revolutionary sermonising? First and foremost to the small peasants, to that class which in our day and age is least of all capable of seizing a revolutionary initiative. For 600 years, all progressive movements have issued so exclusively from the towns that the independent democratic movements of country people (Wat Tyler, Jack Cade, the Jacquerie, the Peasants' War126) were firstly always reactionary manifestations and were secondly always crushed. The industrial proletariat of the towns has become the vanguard of all modern democracy; the urban petty bourgeoisie and still more the peasants depend on its initiative completely. The French Revolution of 1789 and the most recent history of England, France and the eastern states of America prove this. And Herr Heinzen hopes the peasants will fight now, in the nineteenth century?
+
+But Herr Heinzen also promises social reforms. Of course, the indifference of the people towards his appeals has gradually forced him to. And what kind of reforms are these? They are such as the Communists themselves suggest in preparation for the abolition of private property. The only point Herr Heinzen makes that deserves recognition he has borrowed from the Communists, the Communists whom he attacks so violently, and even that is reduced in his hands to utter nonsense and mere day-dreaming. All measures to restrict competition and the accumulation of capital in the hands of individuals, all restriction or suppression of the law of inheritance, all organisation of labour by the state, etc., all these measures are not only possible as revolutionary measures, but actually necessary. They are possible because the whole insurgent proletariat is behind them and maintains them by force of arms. They are possible, despite all the difficulties and disadvantages which are alleged against them by economists, because these very difficulties and disadvantages will compel the proletariat to go further and further until private property has been completely abolished, in order not to lose again what it has already won. They are possible as preparatory steps, temporary transitional stages towards the abolition of private property, but not in any other way.
+
+Herr Heinzen however wants all these measures as permanent, final measures. They are not to be a preparation for anything, they are to be definitive. They are for him not a means but an end. They
+
+
+
+**[p. 296]**
+
+Herr Heinzen of course imagines that property relations, the law of inheritance, etc., can at will be altered and trimmed to shape. Herr
+
+Heinzen—one of the most ignorant men of this century—may, of course, not know that the property relations of any given era are the necessary result of the mode of production and exchange of that era. Herr Heinzen may not know that one cannot transform large-scale landownership into small-scale without the whole pattern of agriculture being transformed, and that otherwise large-scale landownership will very rapidly re-assert itself. Herr Heinzen may not know what a close relationship exists between today's large-scale industry, the concentration of capital and the creation of the proletariat. Herr Heinzen may not know that a country as industrially dependent and subservient as Germany can never presume to undertake on its own account a transformation of its property relations other than one that is in the interests of the bourgeoisie and of free competition.
+
+In short: with the Communists these measures have sense and reason because they are not conceived as arbitrary measures but as consequences which will necessarily and of themselves ensue from the development of industry, agriculture, trade and communica- tions, from the development of the class struggle between bourgeoisie and proletariat which is dependent on these; which will ensue not as definitive measures but as transitory ones, mesures de salut public arising from the transitory struggle between the classes itself.
+
+With Herr Heinzen, they have neither sense nor reason, because they take the form of quite arbitrarily conceived, obtusely bourgeois
+
+
+
+**[p. 297]**
+
+The same Herr Heinzen who is only able to adopt the demands of the Communists after he has so cruelly confused them and transformed them into pure fantasies, that same Herr Heinzen criticises the Communists for "confusing the minds of the unedu- cated", for "chasing fantasies" and for "failing to keep their feet on the ground (!) of reality"!
+
+There we have Herr Heinzen in all his activity as an agitator, and we make no bones about our opinion that it brings nothing but harm and discredit upon the whole German radical party. A party writer requires quite different qualities from those possessed by Herr Heinzen, who, as we said, is one of the most ignorant men of our century. Herr Heinzen may have the best will in the world, he may be the most steadfast man in his convictions in the whole of Europe. We also know that he is personally a man of honour and has courage and endurance. But all that does not make him a party writer. To be that, one requires more than convictions, good will and a stentorian voice, to be that, one requires a little more intelligence, a little more lucidity, a better style and more knowledge than Herr Heinzen possesses and, as long experience has proved, than he is capable of acquiring.
+
+Herr Heinzen's flight has faced him with the necessity of becoming a party writer nevertheless. He was compelled to try to form a party of his own among the radicals. Thus he got into a situation he was not equal to, in which through his unsuccessful efforts to meet the demands of this situation he only makes himself ridiculous. He would make the German radicals look equally ridiculous if they left him the pretence that he was representing them, that he was making himself ridiculous in their name.
+
+But Herr Heinzen does not represent the German radicals. They have quite other representatives, e.g., Jacoby and others. Herr Heinzen represents no one and is recognised by no one as their representative, apart perhaps from some few German bourgeois who sent him money for the purposes of agitation. But we are mistaken: one class in Germany recognises him as its representative, adores him and roars its head off for him, outshouts whole tables of drinkers in the taverns for him (just as, according to Herr Heinzen, the Communists "outshouted the whole literary opposi-
+
+
+
+**[p. 298]**
+
+And this Heir Heinzen demands that the Communists should recognise him as representative of the radical bourgeoisie and debate with him in that capacity?
+
+For the moment, these are reasons enough to justify the polemic the Communists are conducting against Herr Heinzen. In the next issue we shall investigate the criticisms which Herr Heinzen makes of the Communists in No. 77 of the paper.
+
+If we were not completely convinced that Herr Heinzen is utterly incompetent as a party writer, we would advise him to subject Marx's
+
+Misere de la Philosophie to close study. But as things are, in response to his advice to us to read Fröbel's Neue Politik,** we can only give him the alternative advice to maintain absolute silence and wait quietly until "the fighting starts". We are convinced that Herr Heinzen will prove as good a batallion commander as he is a bad writer.
+
+So that Herr Heinzen cannot complain about anonymous attacks, we are signing this article.
+
+F. Engels
+
+The Communists—this we established in the first article—are attacking Heinzen not because he is no Communist, but because he is a bad democratic party writer. They are attacking him not in their capacity as Communists but in their capacity as democrats. It is purely coincidental that it is precisely the Communists who have opened the polemic against him; even if there were no Communists at all in the world, the democrats would still have to take the field against Heinzen. In this whole controversy it is only a question of: 1. whether Herr Heinzen as a party writer and agitator is capable of serving German democracy, which we deny; 2. whether Herr Heinzen's manner of agitation is a correct one, whether it is merely tolerable, which we likewise deny. It is therefore a question neither of communism nor of democracy, but just of Herr Heinzen's person and his personal eccentricities.
+
+[^1]: SECOND ARTICLE
+
+[^2]: [Deutsche-Brüsseler-Zeitung No. 80, October 7, 1847]
+
+[^3]: a Commercial travellers.—Ed. b J. Frobel, "System der socialen Politik", zweite Auflage der Neuen Politik, Th. I-II (the first edition entitled Neue Politik appeared under the pen-name "Junius").—Ed.
+
+
+
+
+
+**[p. 299]**
+
+Now to Herr Heinzen. Herr Heinzen declares the Communists had begun a quarrel with him, not he with them. The well-known argument of the street- porter, then, which we will readily concede to him. He calls his conflict with the Communists "the absurd split which the Commu- nists have provoked in the camp of the German radicals". He says that as long as three years ago he had been concerned to prevent the approaching split as far as his powers and circumstances might permit. These fruitless exertions were followed, he says, by attacks on him by the Communists.
+
+Herr Heinzen, as everyone perfectly well knows, was not yet in the radical camp three years ago. At that time Herr Heinzen was progressive-within-the-law and liberal. A split with him was there- fore by no means a split in the camp of the radicals.
+
+Herr Heinzen met some Communists here in Brussels at the beginning of 1845. Far from attacking Herr Heinzen for his ostensible political radicalism, they rather took the greatest trouble to bring the then liberal Herr Heinzen over to just this radicalism. But in vain. Herr Heinzen only became a democrat in Switzerland.
+
+"I later became more and more convinced (!) of the need for a vigorous struggle against the Communists"—in other words, of the need for an absurd split in the radical camp! We ask the German democrats whether someone who contradicts himself so absurdly is fitted to be a party writer?
+
+But who are the Communists by whom Herr Heinzen claims he was attacked? The above innuendoes and particularly the ensuing
+
+
+
+**[p. 300]**
+
+"were outshouting the whole camp of the literary opposition, confusing the minds of the uneducated, decrying even the most radical men in the most uninhibited manner, they were intent on paralysing the political struggle as far as possible, indeed, they were finally positively allying themselves even with reaction. Further- more they often descended, obviously as a result of their doctrine, to base and false in- triguesin practical life"
+
+Out of the fog and vagueness of these criticisms looms an easily recognisable figure: that of the literary hack, Herr Karl Grün. Three years ago Herr Grün had some personal dealings with Herr Heinzen, whereupon Herr Grün attacked Herr Heinzen in the Trier'sche Zeitung, Herr Grün attempted to outshout the whole camp of the literary opposition, Herr Grün strove to paralyse the political struggle as far as possible, etc.
+
+But since when has Herr Grün been a representative of communism? If he thrust himself on the Communists three years ago, he has never been recognised as a Communist, he has never openly declared himself to be a Communist, and more than a year ago he thought it proper to inveigh against the Communists.
+
+Moreover, even at that time, for Herr Heinzen's benefit, Marx repudiated Herr Grün, just as he later publicly showed him up in his true colours at the first opportunity.3
+
+Concerning Herr Heinzen's final "base and false" insinuation about the Communists, one incident which occurred between Herr Grün and Herr Heinzen, and nothing more, lies behind this. This incident concerns the two gentlemen in question and not the Communists at all. We are not even so exactly acquainted with this incident as to be able to pass judgment on it. But let us assume Herr
+
+Heinzen is in the right. If he then, after Marx and other Communists have repudiated his adversary, after it has been shown beyond all doubt that his adversary was never a Communist, if Herr Heinzen then still presents the incident as a necessary consequence of communist doctrine, it is monstrously perfidious of him.
+
+And furthermore, if in his above reproaches Herr Heinzen has in mind persons other than Herr Grün, he can only mean those true socialists whose admittedly reactionary theories have long ago been repudiated by the Communists. All members of this now completely
+
+[^1]: a The reference is apparently to the "Declaration Against Karl Grün" (see this vol- ume, pp. 72-74) and Chapter IV of Volume II of The German Ideology published in Au- gust-September 1847 in the journal Das Westphälische Dampfboot as an article under the title "Karl Grün: Die Soziale Bewegung in Frankreich und Belgien (Darmstadt, 1845)orthe Historiography of True Socialism".—Ed.
+
+
+
+
+
+**[p. 301]**
+
+But what of the real Communists then? Herr Heinzen speaks of honourable exceptions and talented men, of whom he foresees that they will reject communist solidarity (!). The Communists have already rejected solidarity with the writings and actions of the true socialists. Of all the above reproaches, not a single one applies to the Communists, unless it be the conclusion of the whole passage, which reads as follows:
+
+mocked all those sacred and sublime ideas, virtue, justice, morality, etc., which Herr Heinzen imagines form the basis of all society. We accept this reproach. The Communists will not allow the moral indignation of that honourable man Herr Heinzen to prevent them from mocking these eternal verities. The Communists, moreover, maintain that these eternal verities are by no means the basis, but on the contrary the product, of the society in which they feature.
+
+If, incidentally, Herr Heinzen foresaw that the Communists would reject solidarity with those people he takes it into his head to associate with them—what is the point of all his absurd reproaches and lying insinuations? If Herr Heinzen only knows the Com- munists from hearsay, as almost appears to be the case, if he knows so little who they are that he demands they should designate themselves more closely, and so to speak introduce themselves to him, what brazenness is this he exhibits in polemicising against them?
+
+[^1]: "The Communists in the arrogance of their imagined superiority laughed to scorn everything which is indispensable for forming the basis of an association of honourable people."
+
+[^2]: Herr Heinzen appears to be alluding here to the fact that Communists have made fun of his sternly moral demeanour anc1
+
+
+
+And a few lines later:
+
+"Those who are really Communists now must be allowed the consistency and honesty" (what a decent philistine speaks here!) "of coming forward and openly professing their doctrine and declaring their dissociation from those who are not Communists They are under the moral obligation" (how typical of the philistine these expressions are) "not to maintain unscrupulously (!) the confusion which is created in the minds of a thousand suffering, uneducated minds by the impossibility (!!), dreamt of or falsely advertised as a possibility, of finding a way, based on real conditions, to implement that doctrine (!). It is the duty" (the philistine again) "of the real Communists either completely to clarify things for all their unenlightened adherents and to lead them to a definite goal, or else to detach themselves from them and not to use them."
+
+If Herr Rüge had produced these last three periods, he could have been well pleased. Entirely matching the philistine demands is the philistine confusion of thought, which is concerned only with the matter and not with the form and for that very reason says the exact opposite of what it wants to say. Herr Heinzen demands that the real Communists should detach themselves from the merely seeming ones. They should put an end to the confusion which (that is what he wants to say) arises from the mixing up of two different trends. But as soon as the two words "Communists" and "confusion" collide in his mind, confusion arises there too. Herr Heinzen loses the thread; his constantly reiterated formula, that the Communists in general are confusing the minds of the uneducated, trips him up, he forgets the real Communists and the unreal Communists, he stumbles with farcical clumsiness over a host of impossibilities dreamt of or falsely advertised as possibilities, and finally falls flat on his face on the solid ground of real conditions, where he regains his faculty of reflection. Now he is reminded that he meant to talk about something quite different, that it was not a question of whether this or that was possible. He returns to his theme, but is still so dazed that he does not even cross out that magnificent sentence in which he executed the somersault just described.
+
+So much for the style. Regarding the matter, we repeat that, honest German that he is, Herr Heinzen comes too late with his demands, and that the Communists repudiated those true socialists long ago. But then we see here once again that the application of sly insinuations is by no means irreconcilable with the character of a decent philistine. For Herr Heinzen gives it clearly enough to be
+
+
+
+**[p. 303]**
+
+We merely take note of these insinuations, we do not take issue with them. We leave it to the communist workers to pass judgment on them themselves.
+
+At last, after all these preliminaries, diversions, appeals, insinua- tions and somersaults by Herr Heinzen, we come to his theoretical attacks on and reflections about the Communists.
+
+Herr Heinzen
+
+Herr Heinzen imagines communism is a certain doctrine which proceeds from a definite theoretical principle as its core and draws further conclusions from that. Herr Heinzen is very much mistaken. Communism is not a doctrine but a movement; it proceeds not from principles but from facts. The Communists do not base themselves on this or that philosophy as their point of departure but on the whole course of previous history and specifically its actual results in the civilised countries at the present time. Communism has followed from large-scale industry and its consequences, from the establish- ment of the world market, of the concomitant uninhibited competi- tion, from the ever more violent and more universal trade crises, which have already become full-fledged crises of the world market, from the creation of the proletariat and the concentration of capital, from the ensuing class struggle between proletariat and bourgeoisie. Communism, insofar as it is a theory, is the theoretical expression of
+
+[^1]: "discerns the core of the communist doctrine simply in the abolition of private property (including that earned through labour) and in the principle of the communal utilisation of the earth's riches which follows inescapably from that abolition."
+
+
+
+
+
+**[p. 304]**
+
+Herr Heinzen will now no doubt realise that in assessing communism he has to do rather more than discern its core simply in the abolition of private property; that he would do better to undertake certain studies in political economy than to gabble wildly about the abolition of private property; that he cannot know the first thing about the consequences of the abolition of private property if he does not also know its conditions.
+
+However, in this respect, Herr Heinzen labours under such gross ignorance that he even says "the communal utilisation of the earth's riches" (another fine expression) is the consequence of the abolition of private property. Precisely the contrary is the case. Because large-scale industry, the development of machinery, communica- tions and world trade are assuming such gigantic proportions that their exploitation by individual capitalists is becoming daily more impossible; because the mounting crises of the world market are the most striking proof of this; because the productive forces and the means of exchange which characterise the present mode of production and exchange are daily becoming increasingly more than individual exchange and private property can manage; because, in a word, the moment is approaching when communal management of industry, of agriculture and of exchange will become a material necessity for industry, agriculture and exchange themselves—for this reason private property will be abolished.
+
+So when Herr Heinzen forcibly separates the abolition of private property, which is of course the condition for the liberation of the proletariat, from the conditions that attach to it, when he considers it quite out of all connection with the real world simply as an ivory-tower fantasy, it becomes a pure cliché about which he can only talk platitudinous nonsense. This he does as follows:
+
+[^1]: "By its above-mentioned casting-off of all private property, communism necessarily also abolishes individual existence." (So Herr Heinzen is reproaching us for wanting to turn people into Siamese twins.) "The consequence of this is once more the incorporation of each individual into a perhaps (!!) communally organised barracks economy." (Would the reader kindly note that this is avowedly only the consequence of Herr Heinzen's own absurd remarks about individual existence.) "By these means communism destroys individuality independence freedom." (The same old twaddle as we had from the true socialists and the bourgeoisie. As though there was any individuality to be destroyed in the individuals whom the division of labour has today turned against their will into cobblers, factory workers, bourgeois, lawyers, peasants, in other words, into slaves of a particular form of labour and of the mores, way of life, prejudices and blinkered attitudes, etc., that go with that form of labour!) "It sacrifices the individual person with its necessary attribute or basis" (that "or" is marvellous) "of earned private property to the 'phantom of the community or
+
+
+
+
+
+**[p. 305]**
+
+Herr Heinzen attaches particular importance to earned private property and in so doing once again proves his crass unfamiliarity with the matter on which he is speaking. Herr Heinzen's philistine justice, which allows to each man what he has earned, is unfortunate- ly frustrated by large-scale industry. As long as large-scale industry is not so far advanced that it frees itself completely from the fetters of private property, thus long does it permit no other distribution of its products than that at present occurring, thus long will the capitalist pocket his profit and the worker increasingly know by practice just what a minimum wage is. M. Proudhon attempted to develop a system for earned property which would relate it to existing conditions, and, we all know, he failed spectacularly. Herr Heinzen, it is true, will never risk a similar experiment, for in order to do so he would need to study, and he will not do that. But let the example of M. Proudhon teach him to expose his earned property less to public scrutiny.
+
+And if Herr Heinzen reproaches the Communists for chasing fantasies and failing to keep their feet on the ground of reality—to whom does this reproach properly apply?
+
+Herr Heinzen goes on to say a number of other things which we need not enter into. We merely observe that his sentences get worse and worse the further he proceeds. The clumsiness of his language, which can never find the right word, would of itself suffice to discredit any party which acknowledged him as its literary represen- tative. The solidity of his conviction constantly makes him say something quite different from what he intends to say. Thus each of his sentences contains a twofold nonsense: firstly the nonsense he intends to say, and secondly the one he doesn't intend to say but nevertheless says. We gave an example of it above. It only remains for us to observe that Herr Heinzen repeats his old superstition about the power of the princes when he says that the power which must be overthrown and which is none other than the power of the State, is and always has been the progenitor and'preserver of all injustice, and that his aim is to establish a State really based on justice (!) and within this fantasy structure
+
+His intentions are as good as his style is bad, and that is the fate of the well-meaning in this bad world.
+
+[^1]: "to undertake all those social reforms which have emerged in the course of events in general (!), as correct (!) in theory and possible (!) in practice"!!!
+
+
+
+
+
+**[p. 306]**
+
+Void of talent, yet a character.3
+
+Our articles will fill Herr Heinzen with all the righteous indigna- tion of an outraged honest philistine, but for all that he is not going to give up either his style of writing or his discreditable and ineffectual manner of agitation. We found his threat to string us up on the nearest lamp-post when the day for action and decision comes most entertaining.
+
+In short: the Communists must co-operate with the German radicals and desire to do so. But they reserve the right to attack any writer who discredits the entire party. This, and no other, was our intention in attacking Heinzen.
+
+Brussels, October 3, 1847 ^ _ l. Engels
+
+N. B. We have just received a pamphlet written by a workerb: Der Heinzen'sche Staat, eine Kritik von Stephan, Bern, Rätzer. If Herr Heinzen wrote half so well as this worker, he might be well satisfied. From this pamphlet Herr Heinzen can see clearly enough, amongst other things, why the workers want nothing to do with his peasant republic. We also observe that this pamphlet is the first written by a worker which does not adopt a moral attitude but attempts to trace the political struggles of the present back to the struggle of the various classes of society with one another.
+
+[^1]: Written on September 26 and October 3, 1847
+
+[^2]: First published in the Deutsche-Brüsseler- Zeitung Nos. 79 and 80, October 3 and 7, 1847 Signed: F. Engels
+
+[^3]: Printed according to the newspaper
+
+[^4]: Published in English for the first time
+
+[^5]: a H. Heine, Atta Troll, ch. 24.—Ed. b Stephan Born.—Ed.
+
+
+
+F r e d e r i c k Engels
+
+[THE COMMERCIAL CRISIS IN ENGLAND.— THE CHARTIST MOVEMENT.—IRELAND]128
+
+The commercial crisis to which England finds itself exposed at the moment is, indeed, more severe than any of the preceding crises. Neither in 1837 nor in 1842 was the depression as universal as at the present time. All the branches of England's vast industry have been paralysed at the peak of its development; everywhere there is stagnation, everywhere one sees nothing but workers thrown out on the streets. It goes without saying that such a state of affairs gives rise to extreme unrest among the workers who, exploited by the industrialists during the period of commercial prosperity, now find themselves dismissed en masse and abandoned to their fate. Consequently meetings of discontented workers are rapidly increas- ing. The Northern Star, the organ of the Chartist workers, uses more than seven of its large columns to report on meetings held in the past week3; the list of meetings announced for the present week fills another three columns. The same newspaper mentions a brochure published by a worker, Mr. John Noakes,b in which the author makes an open and direct attack on the right of the aristocracy to own its lands.
+
+[^1]: "English soil," he says, "is the property of the people, from whom our aristocrats seized it either by force or by trickery. The people must see that their inalienable right to property prevails; the proceeds of the land should be public property and used in the interest of the public. Perhaps I shall be told that these are revolutionary remarks.
+
+[^2]: a Reports on the Chartist meetings in The Northern Star No. 521, October 16, 1847.—Ed.
+
+[^3]: b John Noakes, The Right of the Aristocracy to the Soil, considered. The report on its publication appeared in The Northern Star No. 522, October 23, 1847.—Ed.
+
+
+
+
+
+**[p. 308]**
+
+It will not seem surprising that in these circumstances the Chartists should have recourse to most unusual measures; their leader, the famous Feargus O'Connor, has just announced that he is shortly to leave for Scotland, where he will call meetings in all the towns and collect signatures for the national petition for the People's Charter, which will be sent to the next Parliament. At the same time, he announced that before the opening of Parliament, the Chartist press is to be increased by the addition of a daily newspaper, the Democrat.129
+
+It will be recalled that at the last elections Mr. Harney, editor-in-chief of The Northern Star, was put forward as the Chartist candidate for Tiverton, a borough which is represented in Parlia- ment by Lord Palmerston, the Foreign Secretary. Mr. Harney, who won on the show of hands, decided to retire when Lord Palmerston demanded a poll.130 Now something has happened which shows how the feelings of the inhabitants of Tiverton differ from those of the small number of parliamentary electors. There was a vacancy to fill on the borough council; the municipal electors, a far more numerous class than that of the parliamentary electors, gave the vacant seat to Mr. Rowcliffe, the person who had proposed Mr. Harney at the elections. Moreover, the Chartists are preparing all over England for the municipal elections which will take place throughout the country at the beginning of November.
+
+But let us turn now to England's greatest manufacturing district, Lancashire, a part of the country which has suffered under the burden of industrial stagnation more than any other. The situation in Lancashire is alarming in the highest degree. Most of the factories have already stopped work entirely, and those which are still operating employ their workers for only two or at the most three days a week. But this is still not all: the industrialists of Ashton, a very important town for the cotton industry, have announced to their workers that in a week's time they are going to reduce wages by 10 per cent. This news, which is causing alarm among the workers, is spreading across the country. A few days later a meeting of workers' delegates from all over the county was held in Manchester; this meeting resolved to send a deputation to the owners to induce them not to carry out the threatened reduction and, if this deputation achieved no results, to announce a strike of all workers employed in the Lancashire cotton industry. This strike, together with the strike of the Birmingham iron-workers and miners which has already
+
+
+
+**[p. 309]**
+
+In the meantime starving Ireland is writhing in the most terrible convulsions. The workhouses are overflowing with beggars, the ruined property owners are refusing to pay the Poor Tax, and the hungry people gather in their thousands to ransack the barns and cattle-sheds of the farmers and even of the Catholic priests, who were still sacred to them a short time ago.
+
+It looks as though the Irish will not die of hunger as calmly next winter as they did last winter. Irish immigration to England is getting more alarming each day. It is estimated that an average of 50,000 Irish arrive each year; the number so far this year is already over 220,000. In September, 345 were arriving daily and in October this figure increased to 511. This means that the competition between the workers will become stronger, and it would not be at all surprising if the present crisis caused such an uproar that it compelled the government to grant reforms of a most important nature.
+
+Written on October 23, 1847 Printed according to the news- paper First published in La Réforme, October 26, 1847 Translated from the French
+
+Frederick Engels
+
+THE MASTERS AND THE WORKERS IN ENGLAND132
+
+TO THE WORKER EDITORS OF L'ATELIER
+
+Gentlemen,
+
+I have just read in your October issue an article entitled: Les maîtres et les- ouvriers en Angleterre; this article mentions a meeting reported by la Presse of so-called delegates of workers employed in the Lancashire cotton industry, a meeting which took place on August 29 last in Manchester. The resolutions passed at this meeting were such as to prove to la Presse that there is perfect harmony between capital and labour in England.
+
+You did quite well, gentlemen, to reserve your judgment on the authenticity of a report which a newspaper of the French bourgeoisie has published, based on newspapers of the English bourgeoisie. The report is accurate, it is true; the resolutions were adopted just as la Presse gives them; there is only one small statement lacking in accuracy, but it is precisely this small inaccuracy that is the crux of the matter: the meeting which la Presse describes was not a meeting of workers, but a meeting of foremen.
+
+Gentlemen, I spent two years in the heart of Lancashire itself, and these two years were spent among the workers; I saw them both at their public meetings and in their small committees, I knew their leaders and their speakers, and I think I can assure you that in no other country in the world will you find men more sincerely devoted to democratic principles or more firmly resolved to cast off the yoke of the capitalist exploiters, under which they find themselves suffering at present, than these Lancashire cotton factory workers. How, gentlemen, could these same workers whom I have seen with my own eyes throw several dozen factory owners off a meeting hall platform, whom I have seen, their eyes glinting and fists raised, cast
+
+
+
+**[p. 311]**
+
+But let us take a slightly closer look at the matter. Does not the reduction in work mean precisely the same thing for the worker as a reduction in wages? Evidently it does; in both cases the worker's position deteriorates to an equal extent. There was therefore no possible reason for the workers to thank their masters for having preferred the first method of reducing the worker's income to the second. However, gentlemen, if you study the English newspapers for late August, you will see that the cotton manufacturers had good reason to prefer a reduction in working hours to one in wages. At that time the price of raw cotton was rising; the same issue of the London Globe which reports the meeting in question3 also says that the Liverpool speculators were going to take over the cotton market to produce an artificial rise in price. What do the Manchester manufacturers do in such cases? They send their foremen to meetings and make them pass resolutions like those which la Presse communicated to you. This is a tried and tested device which is used each time the speculators try to raise the price of cotton. It is a warning to the speculators to be careful not to attempt to raise the price too high; for in that case the manufacturers would reduce consumption and in so doing, inevitably produce a drop in price. So the meeting which gives la Presse grounds for so much rejoicing and acclamation is nothing but one of those foremen's assemblies which do not fool anyone in England.
+
+In order to give you further proof of the extent to which this meeting was the exclusive work of the capitalists, it should suffice to tell you that the only newspaper to which the resolutions were sent, the newspaper from which all the other newspapers borrowed them, was the Manchester Guardian, the organ of the manufacturers. The democratic workers' paper, The Northern Star, also gives them; but adds that it has taken them from this capitalist newspaper, a damning observation in the eyes of the workers.b
+
+Yours, etc.
+
+[^1]: Written about October 25, 1847 Printed according to the journal
+
+[^2]: First published in the journal Translated from the French l'Atelier No. 2, November 1847
+
+[^3]: a "General Suspension of Labour in Cotton Factories", in The Globe, September 2, 1847.— Ed.
+
+[^4]: b The Northern Star No. 515, September 4, 1847.—Ed.
+
+
+
+Karl Marx
+
+MORALISING CRITICISM AND CRITICAL MORALITY133
+
+A CONTRIBUTION TO GERMAN CULTURAL HISTORY CONTRA KARL HEINZEN
+
+[Deutsche-Brüsseler-Zeitung No. 86, October 28, 1847]
+
+Shortly before and during the period of the Reformation there developed amongst the Germans a type of literature whose very name is striking—grobian literature. In our own day we are approaching an era of revolution analogous to that of the sixteenth century. Small wonder that among the Germans grobian literature is emerging once more. Interest in historical development easily overcomes the aesthetic revulsion which this kind of writing provokes even in a person of quite unrefined taste and which it provoked back in the fifteenth and sixteenth centuries.
+
+Flat, bombastic, bragging, thrasonical, putting on a great show of rude vigour in attack, yet hysterically sensitive to the same quality in others; brandishing the sword with enormous waste of energy, lifting it high in the air only to let it fall down flat; constantly preaching morality and constantly offending against it; sentiment and turpi- tude most absurdly conjoined; concerned only with the point at issue, yet always missing the point; using with equal arrogance petty- bourgeois scholarly semi-erudition against popular wisdom, and so-called "sound common sense" against science; discharging itself in ungovernable breadth with a certain complacent levity; clothing a philistine message in a plebeian form; wrestling with the literary language to- give it, so to speak, a purely corporeal character; willingly pointing at the writer's body in the background, which is itching in every fibre to give a few exhibitions of its strength, to display its broad shoulders and publicly to stretch its limbs; proclaiming a healthy mind in a healthy body; unconsciously infected by the sixteenth century's most abstruse controversies and by its fever of the body; in thrall to dogmatic, narrow thinking and at the same time appealing to petty practice in the face
+
+
+
+**[p. 313]**
+
+Heinzen's manifesto against the Communists in No. 84 of the Deutsche-Brüsseler-Zeitung has been our most immediate instigation in studying that degenerate variety of literature whose historically interesting aspect for Germany we have indicated. We shall describe the literary species represented by Herr Heinzen on the basis of his manifesto, exactly as literary historians characterise the writers of the sixteenth century from the surviving writings of the sixteenth century, for instance the "goose-preacher".3
+
+Only a Hector can have a premonition that he will fall by the hand of an Achilles.
+
+[^1]: [Deutsche-Brüsseler-Zeitung No. 87, October 31, 1847]*
+
+[^2]: Biron. Hide thy head, Achilles: here comes Hector in arms.
+
+[^3]: King. Hector was but a Troyan in respect of this. Boyet. But is this Hector? Dumain. I think Hector was not so clean-timbered.
+
+[^4]: Biron. This cannot be Hector. Dumain. He's a god or a painter; for he makes faces.** But that Herr Heinzen is Hector, of that there is no doubt.
+
+[^5]: "I have long been visited," he confesses to us, "by a premonition that I would fall by the hand of a communist Achilles. Now that I have been attacked by a Thersites, the danger thus averted makes me bold once more," etc.
+
+[^6]: * My reason for answering Herr Heinzen is not to rebut the attack on Engels. Herr Heinzen's article does not need a rebuttal. I am answering because Heinzen's manifesto furnishes entertaining material for analysis. K. M. ** Shakespeare, Love's Labour Lost [Act V, Scene l]. 1 3 5
+
+[^7]: a Thomas Murner.—Ed.
+
+
+
+
+
+**[p. 314]**
+
+Ajax. I will beat thee into handsomeness.
+
+Thersites. I shall sooner rail thee into wit; but thy horse will sooner con an oration than thou learn a prayer without book. Thou canst strike, canst thou? a red murrain o' thy jade's tricks!
+
+Ajax. Toadstool, learn me the proclamation.
+
+Thersites. Thou art proclaimed a fool, I think.
+
+Ajax. You whoreson cur.
+
+Thersites. Do, do. Ajax. Thou stool for a witch! Thersites. Ay, do, do; thou scurvy-valiant ass! thou art here but to thrash Trojans; and thou art bought and sold among those of any wit, like a barbarian slave a great deal of your wit too lies in your sinews, or else there be liars.
+
+Thersites. A wonder! Achilles. What?
+
+Thersites. Ajax goes up and down the field, asking for himself. Achilles. How so?
+
+Thersites. He must fight singly tomorrow, and is so prophetically proud of an heroical cudgelling that he raves in saying nothing.
+
+Whichever character-mask Herr Heinzen now appears wear- ing—Hector or Ajax—scarcely has he entered the arena when he proclaims to the spectators in a mighty voice that his adversary has not dealt him the "coup de grâce". With all the composure and epic breadth of an ancient Homeric hero, he expounds the reasons for his escape. "I owe my escape," he tells us, "to an error on nature'spart." "Nature" has not "fitted" me for my adversary's level. He towers over him, the taller by two heads, and that is why the two "swinging blows" of his "little executioner" could not reach his "literary neck".
+
+Herr Engels, it is stressed most emphatically and repeatedly, Herr Engels is "little", a "little executioner", a "little person". He then says, with one of those turns of phrase such as we only come across in the old heroic lays, or in the puppet play of the giant Goliath and the small David: "If you were hanging that high"—from a lamp-
+
+[^1]: Achilles. How can that be?
+
+[^2]: Thersites. Why, he stalks up and down like a peacock, a stride and a stand; ruminates like a hostess that hath no arithmetic but her brain to set down her reckoning; bites his lip with a politic regard, as who would say "There were wit in this head, an 'twould out" I had rather be a tick in a sheep than such a valiant ignorance.*
+
+[^3]: * Shakespeare, Troilus and Cressida [Act II, Scene 1 and Act III, Scene 3].
+
+
+
+
+
+**[p. 315]**
+
+It is not just his "neck", but his whole "nature", his whole body for which Herr Heinzen thus finds "literary" application. He has put his "little" adversary beside him in order to set off his own physical perfection in fitting contrast. The deformed "dwarf" carries an executioner's axe under his tiny arm, perhaps one of those little guillotines which were given to children as toys in 1794. He, the terrible warrior on the other hand, wields no other weapon in his furious-playful arrogance than the—"birch-rod", of which, he informs us, he has long made use to "chastise" the "naughtiness" of those bad "boys", the Communists. The giant is content to confront his "insect-sized foe" as a pedagogue, instead of crushing the rash little fellow underfoot. He is content to speak to him as the children's friend, to teach him a lesson in morality and reprimand him with the utmost severity for vicious wickedness, especially "lying", "silly, puerile lying", "insolence", his "boyish tone", lack of respect and other shortcomings of youth. And if in the process the schoolmasterly warrior's rod sometimes swishes cruelly about the pupil's ears, if from time to time over-vigorous language interrupts his moral sentences and even partially destroys their effect, one should not for a moment forget that a warrior cannot impart moral instruction in the same way as ordinary schoolmasters, for example a Quintus Fixlein, and that nature comes in again by the window if one chases her out of the door. One should furthermore reflect that what would repel us as obscenity from the mouth of an elf like Engels, has for ear and heart the splendid resonance of nature herself when it comes from the mouth of a colossus like Heinzen. And are we to measure the language of heroes by the restricted linguistic standards of the common citizen? No more so than we should think Homer descends to the level of, for instance, grobian literature, when he calls one of his favourite heroes, Ajax, "as stiff-necked as an ass".
+
+The giant's intentions were honest when he showed the Commu- nists his birch-rod in No. 77 of the Deutsche-Brüsseler-Zeitung.a And the "little" wretch for whose opinion he did not even ask—several times he expresses his warrior-like astonishment at the incom- prehensible audacity of the pigmy—repaid him so unkindly. "It was not intended as a piece of advice," he complains. "Herr Engels wants to kill me, he wants to murder me, the wicked man."
+
+And what of his own part? As when he faced the Prussian government, here too he had "enthusiastically begun a battle, in
+
+[^1]: a An article by Heinzen published as a statement in the Polemik column.— Ed.
+
+
+
+
+
+**[p. 316]**
+
+Isegrim showing his rage and fury, stretched out his paws and Came at him with wide-gaping jaws and with powerful leaping.
+
+Reineke, lighter than he, escaped his raging opponent, And then hastily wetted his coarse-haired tail-brush with his Acid-sharp water and trailed it through dust to load it with sand-grains. Isegrim thought, now he had him at bay! But sly Reineke struck him Over the eyes with his tail, preventing him seeing and hearing. He had used such a strategem often, many a creature Had to his cost felt the noxious force of his acid-sharp water.***
+
+[Deutsche-Brüsseler-Zeitung No. 90, November 11, 1847]
+
+"I have been a republican, Herr Engels, as long as I have concerned myself with politics, and my convictions have not been turning about, they have been without wavering and fickleness unlike what has gone on in the heads of so many Com- munists.****
+
+"It is true I have only just become a revolutionary. It is part of the Communists' tactics that, aware of their own incorrigibility, they criticise their adversaries as soon as they cor- rect themselves."*****
+
+Herr Heinzen never became a republican, he has been one since his political birth. On his side, therefore, immutability, the immobility of a final state, consistency. On the side of his adversaries, wavering, fickleness, turning about. Herr Heinzen has not always been a revolutionary, he has become one. Now, of course, the turning about is on Herr Heinzen's side, but then the immoral character of turning about has been turned about too; it is now known as "correcting themselves". On the Communists' side, on the other hand, immutability has lost its character of high morality. What has become of it? "Incorrigibility."
+
+Remaining constant or turning about, both are moral, both are immoral; moral on the side of the philistine, immoral on the side of his adversary. For the art of the philistine as critic consists in calling out rouge et noir» at the right time, the right word at the right time.
+
+[^1]: * Karl Heinzen, [Ein] Steckbrief. ** Ibid. *** Goethe, Reineke Fuchs [Canto Twelve]. **** Heinzen's Manifesto, Deutsche-Brüsseler-Zeitung No. 84. ***** Ibid.
+
+[^2]: a Red and black (as at the gaming table) was given in the errata in the November 18 issue instead of the original "wohl und weh" — good and bad.— Ed.
+
+
+
+
+
+**[p. 317]**
+
+Herr Heinzen reports amongst other things that he is still just as ignorant of philosophy as in 1844. Hegel's "language" he has "continued to find indigestible".
+
+So much for the facts of the matter. Now for the moral processing of them.
+
+Because Herr Heinzen has always found Hegel's language "indi- gestible", he has not, like "Engels and others", succumbed to the immoral arrogance of ever priding himself on that same Hegelian language, any more than, by all accounts so far, Westphalian peasants "pride themselves" on the Sanskrit language. However, true moral behaviour consists in avoiding the motivation for immoral behaviour, and how can one better secure oneself against immoral "priding oneself" on a language than by taking good care not to understand that language!
+
+Herr Heinzen, who knows nothing of philosophy, has for that reason, as he thinks, not attended the philosophers' "school" either. His school was "sound common sense" and the "fulness of life".
+
+There is no more proven remedy for the moral danger of denying one's school than not going to school!
+
+Any development, whatever its substance may be, can be represented as a series of different stages of development that are connected in such a way that one forms the negation of the other. If, for example, a people develops from absolute monarchy to constitutional monarchy, it negates its former political being. In no sphere can one undergo a development without negating one's previous mode of existence. Negating translated into the language of morality means: denying.
+
+Denying! With this catchword the philistine as critic can condemn any development without understanding it; he can solemnly set up his undevelopable undevelopment beside it as moral immaculate- ness. Thus the religious phantasy of the nations has by and large stigmatised history, by transposing the age of innocence, the golden age, into pre-history, into the time when no historical development at all took place, and hence no negating and no denying. Thus in noisy eras of revolution, in times of strong, passionate negation and denial, as in the 18th century, there emerge honest, well-meaning men,
+
+[^1]: "At the same time," he exclaims with the modest pride of the just, "this has preserved me from the danger of denying my school."
+
+
+
+
+
+**[p. 318]**
+
+But let us leave our worthy philistine undisturbed to pasture on his own diligence! Let us follow him to where he fancies he attacks the "heart of the matter". Throughout we shall find the same method.
+
+"I cannot help it if Herr Engels and other Communists are too blind to realise that power also controls property and that injustice in property relations is only maintained by power.—I call any man a fool and a coward who bears the bourgeois malice on account of his acquisition of money and lets a king be on account of his acquisition of power." *
+
+"Power also controls property!" Property, at all events, is also a kind of power. Economists call capital, for instance, "power over the labour of others".
+
+We are therefore faced with two kinds of power, on the one hand the power of property, in other words, of the property-owners, on the other hand political power, the power of the state. "Power also controls property" means: property does not control the political power but rather it is harassed by it, for example by arbitrary taxes, by confiscations, by privileges, by the disruptive interference of the bureaucracy in industry and trade and the like.
+
+In other words: the bourgeoisie has not yet taken political shape as a class. The power of the state is not yet its own power. In countries where the bourgeoisie has already conquered political power and political rule is none other than the rule, not of the individual bourgeois over his workers, but of the bourgeois class over the whole of society, Herr Heinzen's dictum has lost its meaning. The propertyless of course remain untouched by political rule insofar as it directly affects property.
+
+Whilst, therefore, Herr Heinzen fancied he was expressing a truth as eternal as it was original, he has only expressed the fact that the German bourgeoisie must conquer political power, in other words, he says what Engels says, but unconsciously, honestly thinking he is saying the opposite. He is only expressing, with some emotion, a transient relationship between the German bourgeoisie and the German state power^ as an eternal truth, and thereby showing how to make a "solid core" out of a "movement".
+
+[^1]: * Heinzen's Manifesto, No. 84 of the D[eutsche]-B[rvsseler]-Z[eitung].
+
+
+
+
+
+**[p. 319]**
+
+Either Herr Heinzen here understands "injustice in property relations" as the above-mentioned pressure to which the absolute monarchy still subjects the bourgeoisie even in its "most sacred" interests, in which case he is only repeating what has just been said—or he understands "injustice in property relations" as the economic conditions of the workers, in which case his pronounce- ment has the following meaning:
+
+The present bourgeois property relations are "maintained" by the state power which the bourgeoisie has organised for the protection of its property relations. The proletariat must therefore overthrow the political power where it is already in the hands of the bourgeoisie. It must itself become a power, in the first place a revolutionary power.
+
+Again, Herr Heinzen is unconsciously saying the same thing as Engels is saying, but again in the steadfast conviction that he is saying the opposite. What he says he does not mean, and what he means he does not say.
+
+Incidentally, if the bourgeoisie is politically, that is, by its state power, "maintaining injustice in property relations", it is not creating it. The "injustice in property relations" which is determined by the modern division of labour, the modern form of exchange, competi- tion, concentration, etc., by no means arises from the political rule of the bourgeois class, but vice versa, the political rule of the bourgeois class arises from these modern relations of production which bourgeois economists proclaim to be necessary and eternal laws. If therefore the proletariat overthrows the political rule of the bourgeoisie, its victory will only be temporary, only an element in the service of the bourgeois revolution itself, as in the year 1794, as long as in the course of history, in its "movement", the material conditions have not yet been created which make necessary the abolition of the bourgeois mode of production and therefore also the definitive overthrow of the political rule of the bourgeoisie. The terror in France could thus by its mighty hammer-blows only serve to spirit away, as it were, the ruins of feudalism from French soil. The timidly considerate bourgeoisie would not have accomplished this task in decades. The bloody action of the people thus only prepared the way for it. In the same way, the overthrow of the absolute monarchy would be merely temporary if the economic conditions for the rule of the bourgeois class had not yet become ripe. Men build a new world for themselves, not from the "treasures of this earth", as grobian superstition imagines, but from the historical achievements
+
+
+
+**[p. 320]**
+
+It is characteristic of the whole grobianism of "sound common sense", which feeds upon the "fulness of life" and does not stunt its natural faculties with any philosophical or other studies, that where it succeeds in seeing differences, it does not see unity, and that where it sees unity, it does not see differences. If it propounds differentiated determinants, they at once become fossilised in its hands, and it can see only the most reprehensible sophistry when these wooden concepts are knocked together so that they take fire.
+
+When Herr Heinzen, for instance, says that money and power, property and rule, theacquisition of money and the acquisition of power are not the same, he is committing a tautology inherent in the mere words themselves, and this merely verbal differentiation he considers an heroic deed which with all the faculties of a clairvoyant he brings into play against the Communists, who are so "blind" as not to stop in their tracks at this childlike first perception.
+
+How "acquisition of money" turns into "acquisition of power", how "property" turns into "political rule", in other words, how instead of the rigid difference to which Herr Heinzen gives the force of dogma, there are rather effective relations between the two forces up to the point where they merge, of this he may swiftly convince himself by observing how the serfs bought their freedom, how the communes136 bought their municipal rights, how the townspeople on the one hand, by trade and industry, attracted the money out of the pockets of the feudal lords and vaporised their landed property into bills of exchange, and on the other hand helped the absolute monarchy to its victory over the thus undermined feudal magnates, and bought privileges from it; how they later themselves exploited the financial crises of the absolute monarchy itself, etc., etc.; how the most absolute monarchies become dependent on the stock-exchange barons through the system of state debts—a product of modern industry and modern trade; how in international relations between peoples, industrial monopoly turns directly into political rule, as for instance, the Princes of the Holy Alliance in the "German war of liberation" were merely the hired mercenaries of England,137 etc., etc.
+
+This self-important grobianism of "sound common sense", however, by fixing such distinctions as between acquisition of money
+
+[^1]: a The word "new" was given in the errata in the November 18 issue instead of the original "more developed".— Ed.
+
+
+
+
+
+**[p. 321]**
+
+Herr Heinzen will live to see the power of property even in Prussia achieve a mariage forcé3 with political power. Let us hear what he says next:
+
+"You are trying to make social questions the central concern of our age, and you fail to see that there is no more important social question than that of monarchy or republic."*
+
+A moment ago, Herr Heinzen saw only the distinction between the power of money and political power; now he sees only the unity of the political question and the social question. Of course he continues to see the "ridiculous blindness" and "cowardly ignominy" of his antagonists.
+
+The political relationships of men are of course also social, societal relationships, like all relations between men and men. All questions that concern the relations of men with each other are therefore also social questions.
+
+With this view, which belongs in a catechism for eight-year-old children, this grobian naivety believes it has not only said something but has affected the balance in the conflicts of modern times.
+
+It so happens that the "social questions" which have been "dealt with in our own day" increase in importance in proportion as we leave behind us the realm of absolute monarchy. Socialism and commun- ism did not emanate from Germany but from England, France and North America.
+
+The first manifestation of a truly active communist party is contained within the bourgeois revolution, at the moment when the constitutional monarchy is eliminated. The most consistent republi- cans, in England the Levellers,138 in France Babeuf, Buonarroti, etc., were the first to proclaim these "social questions". The Babeuf
+
+shows how these republicans derived from the "movement" of
+
+[^1]: Conspiracy, by Babeufs friend and party-comrade Buonarroti,b
+
+[^2]: * Heinzen's Manifesto, No. 84 [of the Deutsche-Brüsseler-Zeitung].
+
+[^3]: d Forced marriage.—Ed. b Ph. Buonarroti, Conspiration pour l'égalité dite de Babeuf.— Ed.
+
+
+
+
+
+**[p. 322]**
+
+The question of property as it has been raised in "our own day" is quite unrecognisable even formulated as a question in the form Heinzen gives it: "whether it is just that one man should possess everything and another man nothing, whether the individual should be permitted to possess anything at all" and similar simplistic questions of conscience and clichés about justice.
+
+The question of property assumes different forms according to the different levels of development of industry in general and according to its particular level of development in the different countries.
+
+For the Galician peasant, for instance, the question of property is reduced to the transformation of feudal landed property into small bourgeois landownership. For him it has the same meaning as it had for the French peasant before 1789, the English agricultural day labourer on the other hand has no relationship with the landowner at all. He merely has a relationship with the tenant farmer, in other words, with the industrial capitalist who is practising agriculture in factory fashion. This industrial capitalist in turn, who pays the landowner a rent, has on the other hand a direct relationship with the landowner. The abolition of landed property is thus the most important question of property as it exists for the English industrial bourgeoisie, and their struggle against the Corn Laws139 had no other significance. The abolition of capital on the other hand is the question of property as it affects the English agricultural day labourer just as much as the English factory worker.
+
+In the English as well as the French revolution, the question of property presented itself in such a way that it was a matter of asserting free competition and of abolishing all feudal property relations, such as landed estates, guilds, monopolies, etc., which had been transformed into fetters for the industry which had developed from the 16th to the 18th century.
+
+In "our own day", finally, the significance of the question of property consists in it being a matter of eliminating the conflicts which have arisen from large-scale industry, the development of the world market and free competition.
+
+The question of property, depending on the different levels of development of industry, has always been the vital question for a particular class. In the 17th and 18th centuries, when the point at issue was the abolition of feudal property relations, the question of property was the vital question for the bourgeois class. In the
+
+
+
+**[p. 323]**
+
+The question of property, which in "our own day" is a question of world-historical significance, has thus a meaning only in modern bourgeois society. The more advanced this society is, in other words, the further the bourgeoisie has developed economically in a country and therefore the more state power has assumed a bourgeois character, the more glaringly does the social question obtrude itself, in France more glaringly than in Germany, in England more glaringly than in France, in a constitutional monarchy more glaringly than in an absolute monarchy, in a republic more glaringly than in a constitutional monarchy. Thus, for example, the conflicts of the credit system, speculation, etc., are nowhere more acute than in North America. Nowhere, either, does social inequality obtrude itself more harshly than in the eastern states of North America, because nowhere is it less disguised by political inequality. If pauperism has not yet developed there as much as in England, this is explained by economic circumstances which it is not our task to elucidate further here. Meanwhile, pauperism is making the most gratifying progress.
+
+One of the most famous North American political economists, Thomas Cooper, who is also a radical, proposes:
+
+1. To prohibit those without property from marrying. 2. To abolish universal suffrage, for, he exclaims:
+
+[^1]: "In this country, where there are no privileged orders, where all classes of society have equal rights" (the difficulty however lies in the existence of classes) "and where our population is far from pressing on the means of subsistence, it is indeed alarming to find the increase of pauperism progressing with such rapidity." (Report by Mr. Meredith to the Pennsylvania Congress. ) "It is proved that pauperism in Massachusetts has increased by three-fifths within 25 years." (From Niles' Register, Niles being an American.3)
+
+[^2]: "Society was instituted for the protection of property What reasonable claim can they have, who by eternal economic laws will eternally be without property of their own, to legislate on the property of others? What common motive and common interest is there between these two classes of inhabitants?
+
+[^3]: "Either the working class is not revolutionary, in which case it represents the interests of the employers, on whom their livelihood depends. At the last election in New England, the master-manufacturers, to ensure votes for themselves, had the candidates' names printed on calico, and each of their workers wore such a piece of calico on their trouser-fronts.
+
+[^4]: a Niles' Weekly Register.— Ed.
+
+[^5]: IL>—ISL'6
+
+
+
+
+
+**[p. 324]**
+
+Just as in England the workers form a political party under the name of the Chartists, so do the workers in North America under the name of the National Reformers142 and their batde-cry is not at all rule of the princes or the republic, but rule of the working class or the rule of the bourgeois class.
+
+Since therefore it is precisely in modern bourgeois society with its corresponding forms of state, the constitutional or republican representative state, that the "question of property" has become the most important "social question", it is very much the narrow need of the German bourgeois that interjects: the question of the monarchy is the most important "socialquestion of the time". It is in a very similar way that Dr. List, in the foreword to his Nationalökonomie* expresses his so naïve irritation that pauperism and not protective tariffs should have been "misconstrued" as the most important social question of our time.
+
+[Deutsche-Brüsseler-Zeitung No. 92, November 18, 1847]
+
+The ^distinction between money and power was at the same time a personal distinction between die two combatants.
+
+The "litde" one appears as a kind of cut-purse who only takes on enemies who have "money". The daring muscle-man by contrast fights with the "mighty" of this earth.
+
+Indosso la corazza, e l'elmo in testa.** And, he mutters,
+
+But best off of all are the "mighty" of the earth who visibly heave a sigh of relief whilst Herr Heinzen lashes out at his pupil:
+
+We have just been present at a moral lesson, in which the great man revealed with surprising simplicity the connection between
+
+[^1]: "and incidentally, you are better off than I".***
+
+[^2]: "Like all Communists, you have now lost the capacity to recognise the connection be- tween politics and social conditions."****
+
+[^3]: * Thomas Cooper, Lectures on [the Elements of] Political Economy, Columbia, pp. 361 & 365.141
+
+[^4]: ** Ariost[o, L'l Orlando Furioso [Canto I, 11]: Harness on his back and helmet on his head.
+
+[^5]: *** Heinzen's Manifesto, Deutsche-Brüsseler-Zeitung No. 84. **** Ibid.
+
+[^6]: a F. List, Das nationale System der politischen Oekonomie.— Ed.
+
+
+
+
+
+**[p. 325]**
+
+The princes, or the rule of the princes, he tells us, are the "chief authors of all poverty and distress". Where the rule of the princes is eliminated, this kind of explanation is of course eliminated too, and the slave-economy, which caused the downfall of the republics of antiquity, the slave-economy, which will provoke the most fearful conflicts in the southern states of republican North America,* the slave-economy can exclaim, like John Falstaff, "if reasons were as plenty as blackberries!"3
+
+And in the first place, who or what has created the princes or the rule of the princes}
+
+Once upon a time, the people had to place the most eminent personalities at their head to conduct general affairs. Later, this position became hereditary within families, etc. And eventually the stupidity and depravity of men tolerated this abuse for centuries.
+
+If one were to summon a congress of all the most primitive would-be politicians in Europe, they would be able to give no other answer. And if one were to open all Herr Heinzen's works, they would provide no other answer.
+
+Doughty "sound common sense" believes it explains the rule of princes by declaring itself opposed to it. The difficulty, from the standpoint of this norm of common sense, would, however, seem to consist in explaining how the opponent of sound common sense and of the moral dignity of man was born and how he dragged out his remarkably tenacious life for centuries. Nothing is simpler. The cen- turies did without sound common sense and the moral dignity of man. In other words, the sense and morality of centuries were in ac- cordance with the rule of the princes instead of contradicting it. And it is precisely this sense and morality of past centuries which today's "sound common sense" does not understand. It does not understand it, but despises it. It takes refuge from history in morality, and now it can allow free rein to the whole armoury of its moral indig- nation.
+
+In the same way as political "sound common sense" here explains the origin and continued existence of the rule of the princes as the work of unreason, in the same way does religious "sound common sense" explain heresy and unbelief as works of the devil. In the same
+
+[^1]: * Cf. on this topic the memoirs of Jefferson, who was one of the group of founders of the American Republic and was twice president.
+
+[^2]: a Shakespeare, Henry IV, Part One, Act II, Scene 4.— Ed.
+
+[^3]: 12*
+
+
+
+
+
+**[p. 326]**
+
+However, once Herr Heinzen has by means of moral platitudes proved the origin of the rule of the princes, the "connection between the rule of the princes and social conditions" follows quite naturally from this. Listen:
+
+"An individual man takes possession of the state for himself, sacrifices a whole nation, more or less, not just materially, but morally too, to his own person and its entourage; institutes within it a scale of humiliation by degrees, classifies it variously into estates like so many fat and lean cattle, and basically just for the benefit of his own, individual person makes each member of the state society officially the enemy of the other."*
+
+Herr Heinzen sees the princes at the peak of the social structure in Germany. He does not for a moment doubt that they have created its social foundation and are re-creating it each day. What simpler explanation could there be for the connection between the monarchy and social conditions, whose official political expression it is, than by having the princes create this connection! What is the connection between the representative assemblies and modern bourgeois society which they represent? They created it. The political deity with its apparatus and gradations has thus created the secular world, whose most sacred object it is. In the same way the religious deity will have created earthly conditions, which are fantastically and in deified form reflected in it.
+
+The grobianism which retails such homespun wisdom with appropriate sentiment cannot of course fail to be equally astonished and morally outraged at the opponent who toils to demonstrate to it that the apple did not create the apple-tree.
+
+Modern histories have demonstrated that absolute monarchy ap- pears in those transitional periods when the old feudal estates are in decline and the medieval estate of burghers is evolving into the modern bourgeois class, without one of the contending parties having as yet finally disposed of the other. The elements on which absolute monarchy is based are thus by no means its own product; they rather form its social prerequisite, whose historical origins are too well known to be repeated here. The fact that absolute monarchy took shape later in Germany and is persisting longer, is explained solely by the stunted pattern of development of the German bourgeois class. The answers to the puzzles presented by this pattern of development are to be found in the history of trade and industry.
+
+The decline of the philistine German free cities, the destruction of the knightly estate, the defeat of the peasants143—the resulting
+
+[^1]: * Heinzen's Manifesto, loc. cit.
+
+
+
+
+
+**[p. 327]**
+
+The optical illusion, which enables sound common sense to "discern" the springhead of German society in the rule of the princes instead of the springhead of the rule of the princes in German society, is easily explained.
+
+It perceives at first glance—and it always considers its first glance to be particularly perceptive—that the German princes are pre- serving and maintaining control over the old social conditions in Germany with which their political existence stands and falls, and that they react violently against the elements of decomposition. Equally, it sees on the other hand the elements of decomposition fighting against the power of the princes. The five sound senses thus unanimously testify that the rule of the princes is the basis of the old society, of its gradations, its prejudices and its contradictions.
+
+When looked at more closely, these appearances however only refute the crude opinion of which they are the innocent occasion.
+
+The violently reactionary role played by the rule of the princes only proves that in the pores of the old society a new society has taken shape, which furthermore cannot but feel the political shell—the natural covering of the old society—as an unnatural fetter and blow it sky-high. The more primitive these new elements of social decomposition, the more conservative will even the most
+
+
+
+**[p. 328]**
+
+Once society's material conditions of existence have developed so far that the transformation of its official political form has become a vital necessity for it, the whole physiognomy of the old political power is transformed. Thus absolute monarchy now attempts, not to centralise, which was its actual progressive function, but to decentralise. Born from the defeat of the feudal estates and having the most active share in their destruction itself, it now seeks to retain at least the semblance of feudal distinctions. Formerly encouraging trade and industry and thereby at the same time the rise of the bourgeois class, as necessary conditions both for national strength and for its own glory, absolute monarchy now everywhere hampers trade and industry, which have become increasingly dangerous weapons in the hands of an already powerful bourgeoisie. From the town, the birth-place of its rise to power, it turns its alarmed and by now dull glance to the countryside which is fertile with the corpses of its old powerful opponents.
+
+But by "the connection between politics and social conditions" Herr Heinzen actually understands only the connection between the rule of the princes in Germany and the distress and misery in Germany.
+
+The monarchy, like every other form of state, is a direct burden on the working class on the material side only in the form of taxes. Taxes are the existence of the state expressed in economic terms. Civil servants and priests, soldiers and ballet-dancers, schoolmasters and police constables, Greek museums and Gothic steeples, civil list and services list—the common seed within which all these fabulous beings slumber in embryo is taxation.
+
+And what reasoning citizen would not have referred the starving people to taxes, to the ill-gotten gains of the princes, as the source of its misery?
+
+The German princes and Germany's distress! In other words, taxes on which the princes gorge themselves and which the people pay with their sweat and blood!
+
+
+
+**[p. 329]**
+
+The economic existence of the state is taxes. The economic existence of the worker is wages. To be ascertained: the relationship between taxes and wages.
+
+Competition necessarily reduces the average wage to the minimum, that is to say, to a wage which permits the workers penuriously to eke out their lives and the lives of their race. Taxes form a part of this minimum, for the political calling of the workers consists precisely in paying taxes. If all taxes which bear on the working class were abolished root and branch, the necessary consequence would be the reduction of wages by the whole amount of taxes which today goes into them. Either the employers' profit would rise as a direct consequence by the same quantity, or else no more than an alteration in the form of tax-collecting would have taken place. Instead of the present system, whereby the capitalist also advances, as part of the wage, the taxes which the worker has to pay, he [the capitalist] would no longer pay them in this roundabout way, but directly to the state.
+
+If in North America wages are higher than in Europe, this is by no means the consequence of lower taxes there. It is the consequence of the territorial, commercial and industrial situation there. The demand for workers in relation to the supply of workers is significantly greater than in Europe. And any novice knows the truth of this already from Adam Smith.
+
+For the bourgeoisie on the other hand both the way in which taxes are distributed and levied, and the use to which they are put, are a vital question, both on account of its influence on trade and industry and because taxes are the golden cord with which to strangle the absolute monarchy.
+
+Having provided such profound insights into "the connection between politics and social conditions" and between "class relations" and the power of the state, Herr Heinzen cries out in triumph:
+
+[^1]: "The 'narrow-minded communist view' which only treats people in terms of 'classes' and incites them against one another according to their 'craft', is something I must confess I have been innocent of in my revolutionary propaganda, because I make allowance for the 'possibility' that 'humanity' is not always determined by 'class' or the 'size of one's purse'."
+
+
+
+
+
+**[p. 330]**
+
+And this, his own "narrow-minded view", derived entirely from his very own "fulness of life" and his very own "sound common sense" is what Herr Heinzen humorously calls a "narrow-minded communist view".
+
+But let us for a moment assume that Herr Heinzen knows what he is talking about, that he is therefore not talking about "the distinction between the size" of purses and "craft-bickering".
+
+It is perfectly "possible" that what individual persons do is not "al- ways" determined by the class to which they belong, although this is no more crucial to the class struggle than an aristocrat going over to the tiers-état was crucial to the French Revolution. And then these aristocrats at least joined a specific class, the revolutionary class, the bourgeoisie. But for Herr Heinzen all classes melt away before the solemn concept of "humanity".
+
+However, if Herr Heinzen believes that whole classes which are based on economic conditions independent of their own will and are forced into the most virulent contradiction by these conditions, can by means of the quality of "humanity", which attaches to all men, shed their real relationships, how easy must it be for one particular prince to rise by the power of "humanity" above his "princely condition", above his "princely craft"? Why then does he resent it when Engels discerns a "good Emperor Joseph" behind his revolutionary phrases?
+
+But if on the one hand Herr Heinzen obliterates all differences, by addressing himself vaguely to the "humanity" of the Germans, which would oblige him to include the princes in his exhortations too, on the other hand he nevertheless finds himself compelled to acknowledge the existence of one difference amidst German humanity, for without a difference there can be no contradiction and without a contradiction there can be no material for political sermonising.
+
+So Herr Heinzen divides German humanity into princes and subjects. The perception and expression of this contradiction is on his part an exhibition of moral strength, a proof of personal daring,
+
+
+
+**[p. 331]**
+
+Along come the "narrow-minded" Communists now and see not only the political difference between prince and subject but also the social difference between classes.
+
+Whereas Herr Heinzen's moral greatness a moment before consisted in perceiving and expressing the difference, his greatness now consists rather in overlooking it, averting his eyes from it and hushing it up. Expression of the contradiction ceases to be the language of revolution and becomes the language of reaction and the malicious "incitement" of brothers, united in their humanity, against one another.
+
+It is common knowledge that shortly after the July revolution, the victorious bourgeoisie, in the September Laws, made the "incitement of the various classes of the nation against each other" a serious political offence, probably for reasons of "humanity" too, with penalties of imprisonment, fines, etc.145 It is also common knowledge that the English bourgeois journals know no better way of denouncing the Chartist leaders and Chartist writers than by accusing them of inciting the various classes of the nation against each other. It is even common knowledge that German writers are lying in deep dungeons for this incitement of the various classes of the nation against each other.
+
+Is not Herr Heinzen now speaking the language of the French September Laws, of the English bourgeois papers and the Prussian criminal code?
+
+Not a bit of it. The well-meaning Herr Heinzen fears only that the Communists "were seeking to ensure the princes a revolutionary fontanel".146
+
+Thus the Belgian liberals assure us that the radicals have a secret understanding with the Catholics; the French liberals assure us that the democrats have an understanding with the legitimists; the English free traders assure us that the Chartists have an understanding with the Tories. And the liberal Herr Heinzen assures us that the Communists have an understanding with the princes.
+
+Germany, as I already made clear in the Deutsch-Französische
+
+
+
+**[p. 332]**
+
+Herr Heinzen can think of no other explanation for these contradictory circumstances, which of course are also reflected in German literature, except by laying them on his opponents' consciences and interpreting them as a consequence of the counter- revolutionary activity of the Communists.
+
+The German workers meanwhile know very well that the absolute monarchy does not waver for a moment, nor can it do so, in greeting them, in the service of the bourgeoisie, with cannon-balls and whip-lashes. Why, then, should they prefer the brutal harassment of the absolute government with its semi-feudal retinue to direct bourgeois rule? The workers know very well that it is not just politically that the bourgeoisie will have to make broader concessions to them than the absolute monarchy, but that in serving the interests of its trade and industry it will create, willy-nilly, the conditions for the uniting of the working class, and the uniting of the workers is the first requirement for their victory. The workers know that the abolition of bourgeois property relations is not brought about by preserving those of feudalism. They know that the revolutionary movement of the bourgeoisie against the feudal estates and the absolute monarchy can only accelerate their own revolutionary movement. They know that their own struggle against the bourgeoi-
+
+[^1]: a See K. Marx, "Contribution to the Critique of Hegel's Philosophy of Law". Introduction (present edition, Vol. 3, pp. 175-87).—Ed.
+
+
+
+
+
+**[p. 333]**
+
+That the workers really react in this way has been magnificently exemplified by the English Chartists in the most recent Anti-Corn Law League movement. Not for a moment did they believe the lies and inventions of the bourgeois radicals, not for a moment did they abandon the struggle against them, but quite consciously helped their enemies to victory over the Tories, and on the day after the abolition of the Corn Laws they were facing each other at the hustings, no longer Tories and free traders, but free traders and Chartists. And they won seats in parliament, in opposition to these bourgeois radicals.149
+
+No more than Herr Heinzen understands the workers does he understand the bourgeois liberals, for all that he is unconsciously working in their service. He thinks it is necessary to repeat, where they are concerned, the old warnings against the "easy-going ways and submissiveness of the Germans". He, the philistine, takes in absolute earnest the obsequious expressions that were served up by a Camphausen or a Hansemann. The bourgeois gentlemen would smile at such naivety.They know better where the shoe pinches. They are aware that in revolutions the rabble gets insolent and lays hands on things. The bourgeois gentlemen therefore seek as far as possible to make the change from absolute to bourgeois monarchy without a revolution, in an amicable fashion.
+
+But the absolute monarchy in Prussia, as earlier in England and France, will not let itself be amicably changed into a bourgeois monarchy. It will not abdicate amicably. The princes' hands are tied both by their personal prejudices and by a whole bureaucracy of officials, soldiers and clerics—integral parts of absolute monarchy who are far from willing to exchange their ruling position for a subservient one in respect of the bourgeoisie. Then the feudal estates also hold back; for them it is a question of life or death, in other words, of property or expropriation. It is clear that the absolute monarch, for all the servile homage of the bourgeoisie, sees his true interest on the side of these estates.
+
+The siren-songs of a Camphausen or a Hansemann will no more convince Frederick William IV, therefore, than the honeyed lan- guage of a Lally-Tollendal, a Mounier, a Malouet or a Mirabeau could talk a Louis XVI into casting in his lot with the bourgeoisie rather than with the feudal lords and remnants of the absolute monarchy.
+
+
+
+**[p. 334]**
+
+[Deutsche-Brüsseler-Zeitung No. 94, November 25, 1847]
+
+To this party, the party of men, or to humanity resident in Germany, the founder of states Karl Heinzen offers the "best republic", the best republic he himself has hatched, the "federal republic with social institutions". Rousseau once designed a "best" political world for the Poles3 as did Mably for the Corsicans.150 The great citizen of Geneva has found an even greater successor.
+
+"I am contented"—what modesty!—"to claim that just as I can assemble.a flower only from petals, so also I can assemble a republic only from republican elements."*
+
+A man who knows how to assemble a flower from petals, even though it were only a daisy, cannot fail in the construction of the "best republic", let the wicked world think of it what it will.
+
+Despite all slanderous tongues, the valiant founder of states takes as a model the charters of republican North America. Whatever seems offensive to him, he paints out with his grobian brush. Thus he brings about an amended edition—in usum delphini,h in other words for the use and edification of "German man". And having thus "outlined the features of the republic, that is, of a specific republic", he hoists his "little" disrespectful pupil up into the air "by his communist ears" and dashes him down with the question whether he too could "create" a world, and indeed a "best world"? And he does not desist from hoisting the "little one" up "into the air" by his "communist ears" until he has "banged" his "nose" against the gigantic picture of the "new" world, the best republic. For with his very own hands he has hung a colossal picture of the world, devised by himself, on the highest peak of the Swiss Alps.
+
+[^1]: * Heinzen's Manifesto, Deutsche-Brüsseler-Zeitung No. 84.
+
+[^2]: a J. J. Rousseau, Considérations sur le gouvernement de Pologne, et sur sa réformation projettée.— Ed.
+
+[^3]: For the use of the Dauphin. (These words were used in the second half of the seventeenth century to mark the edition of Latin works intended for the heir to the French throne, from which "offensive" material had been removed.) — Ed.
+
+
+
+
+
+**[p. 335]**
+
+And horrified, the republican Ajax drops the communist Ther- sites to the ground and out of his shaggy bosom heaves the— terrible words:
+
+"You are carrying absurdity to extremes, Herr Engels!" And really, Herr Engels! Do you not believe "that the American federal system" is the "best political form" "which the art of politics has yet devised"? You shake your little head? What? You deny absolutely that the "American federal system" has been devised by "the art of politics"? And that "best political forms of society" exist in abstracto? That's going a bit too far!
+
+You are at the same time so "devoid of shame and conscience" as to suggest to us that the honest German who wishes his faithful fatherland to enjoy the benefits of the North American Constitu- tion—embellished and improved at that, that he resembles that idiotic merchant who copied his rich competitor's accounts and then imagined that having possession of this copy, he had also taken possession of the coveted wealth!
+
+And you threaten us with the "executioner's axe" under your little arm, with the miniature guillotine which you were given as a toy in 1794? Barbaroux, you mumble, and other persons of impressive height and girth, were shortened by a full head in those days when we used to play guillotine because they happened to proclaim "the American federal system" to be "the best political form".151 And such will be the fate of all other Goliaths, to whom it occurs in any democratic revolution in Europe and especially in Germany, which is still quite feudally fragmented, to wish to put the "American federal system" in place of the one indivisible republic and its levelling centralisation.
+
+But good God! The men of the Comité de salut public152 and those bloodhounds of Jacobins behind them were monsters, and Heinzen's "best republic" has been "devised" by the "statecraft of heretofore" as the "best political form" for "men", for good men, for human humans!
+
+Really! "You are carrying absurdity to the extreme, Herr Engels!" And what is more, this Herculean founder of states does not copy the North American "federal republic" in every detail. He adorns it with "social institutions", he will "regulate property relations according to rational principles", and the seven great "measures" with which he disposed of the "evils" of the old bourgeois society are
+
+[^1]: a "To shit is not to paint." — Ed.
+
+
+
+
+
+**[p. 336]**
+
+We live of course in an age when "the better people are increasingly passing away" and the "best" are not even understood at all.
+
+Take, for instance, any well-meaning citizen and ask his honest opinion as to what is wrong with present "property relations"? And the decent fellow will put his index finger to the tip of his nose, twice draw deep and pensive breath and then express his "humble" view that it is a shame that many people have "nothing", not even the barest necessities, and that others, to the detriment not only of propertyless wretches but also of honest citizens, are with aristocratic brazenness accumulating millions! Aurea mediocritas! Golden medioc- rity! the honest member of the middle class will exclaim! It is just a matter of avoiding extremes! What rational political constitution would be compatible with these extremes, these oh so abominable extremes!
+
+And now take a look at Heinzen's "federal republic" with "social institutions" and its seven measures for the "humanisation of society". We find that each citizen is assured a "minimum" of wealth below which he cannot fall, and a maximum of wealth is prescribed which he may not exceed.
+
+Has not Herr Heinzen solved all the difficulties, then, by reiterating in the form of state decrees the pious desire of all good citizens that no person should have too little and none, indeed, too much, and simply by so doing made it reality?
+
+And in the same manner, which is as simple as it is splendid, Herr Heinzen has resolved all economic conflicts. He has regulated property according to the rational principles corresponding to an honest bourgeois equity. And please do not object that the "rational rules" of property are precisely the "economic laws" on whose cold-blooded inevitability all well-meaning "measures" will necessar- ily founder, though they be recommended by Incas and Campe's Books for Children and cherished by the stoutest patriots!
+
+How unfair to bring economic considerations into play against a man who, unlike some people, does not "boast of studies in political economy", but has from modesty managed so far in all his works
+
+
+
+**[p. 337]**
+
+Since private property, for instance, is not a simple relation or even an abstract concept, a principle, but consists in the totality of the bourgeois relations of production—for it is not a question of subordinate or extinct but of existing bourgeois private proper- ty—since all these bourgeois relations of production are class relations, an insight which any novice must have acquired from his Adam Smith or Ricardo—, a change in, or even the abolition of, these relations can only follow from a change in these classes and their relationships with each other, and a change in the relationship of classes is a historical change, a product of social activity as a whole, in a word, the product of a specific "historical movement". The writer may very well serve a movement of history as its mouthpiece, but he cannot of course create it.
+
+For example, in order to explain the elimination of feudal property relations, modern historians have had to describe how the bourgeoisie evolved to the point where it had developed its conditions of life sufficiently to be able to eliminate all the feudal estates and its own feudal mode of existence and hence also feudal production relations, which were the economic foundation of these feudal estates. The elimination of feudal property relations and the foundation of modern bourgeois society were thus by no means the product of a particular doctrine based upon and elaborated from a specific principle as its core. It was much more the case that the principles and theories put forward by the writers of the bourgeoisie during its struggle against feudalism were nothing but the theoreti- cal expression of a series of real events; indeed one can see that the extent to which this expression was more or less Utopian, dogmatic or doctrinaire corresponded exactly to the degree of advancement of the phase of real historical development.
+
+
+
+**[p. 338]**
+
+But, expostulates the mighty man in honest indignation: "My purpose was to urge the practical consequences, to get the 'represen- tatives' of communism to acknowledge those consequences", that is, those absurd consequences which, for a man who has only fantastic conceptions of bourgeois private property, are necessarily linked with its abolition. He thus wanted to compel Engels "to defend the whole absurdity" which according to Herr Heinzen's worthy scheme "he would have dug up". And Reineke Engels has so bitterly disappointed the honest Isegrim that he no longer finds in communism itself even a "core" to "bite on" and thus asks himself in wonderment "how this phenomenon is to be served up, so that it can be eaten"!
+
+And in vain the honest fellow seeks to calm himself with ingenious turns of phrase, for example, by asking whether a historical movement is a "movement of the emotions", etc., and even conjures up the spirit of the great "Ruge" to interpret this riddle of nature for him!
+
+"After what has happened," the disappointed man exclaims, "my heart is beating in a Siberian fashion, after what has happened I smell only treachery and dream of malice."*
+
+And really he explains the affair to himself finally by saying that Engels "denies his school", "beats a retreat that is as cowardly as it is ridiculous", "compromises the whole human race just so as to save his own person from being compromised", "denies the party or deserts it at the crucial moment", and a host of similar moralising outbursts of fury. Likewise Engels' distinctions between "true socialism" and "communism", between the Utopian communist systems and critical communism—are all nothing but "treachery and malice". Indeed nothing but Jesuitical "after-thought" distinctions, because they appear not to have been put at least so far to Herr
+
+Heinzen, nor to have been blown his way by the tempest of the fulness of life!
+
+And how ingeniously Herr Heinzen manages to interpret these contradictions to himself, insofar as they have found literary expression!
+
+[^1]: "Then there is Weitling, who is cleverer than you, and yet can certainly be considered a Communist."
+
+[^2]: * Karl Heinzen, Steckbrief.
+
+
+
+
+
+**[p. 339]**
+
+"What if Herr Grün claimed to be a Communist and were to expel Herr Engels?"
+
+Arrived at this point, it goes without saying, the honest fellow, who could not "emancipate himself to the extent of considering loyalty and faith, outmoded though they might be, to be superfluous amongst rational beings"—serves up the most absurd lies, for example, that Engels also intended to write about a "social movement in Belgium and France". But K[arl] Grün had "forestalled him". And then he had been "unable to find a publisher for his boring repetition" and other such fabrications Herr Heinzen has derived as "conclusions" from a "certain principle".
+
+That moralising criticism has turned out to be so wretched is due to its "nature" and is by no means to be regarded as a personal shortcoming of the Telamonian Ajax. For all his stupidities and baseness, this St. Grobian has the moral satisfaction of being stupid and base with conviction and thus being a fellow with some stuffing in him.
+
+Whatever the "facts" may do, which even the great Karl Heinzen allows to "run their course" unimpeded:
+
+Heinrich LXXII of Reuss-Schleitz-Ebersdorf has also been parad- ing his "principle" some 20 years now.
+
+N.B. We would recommend Stephan'sa critique, Der Heinzen'sche Staat, to the readers of the Deutsche-Brüsseler-Zeitung. The author has of course only used Herr Heinzen as a peg, he could just as well have seized upon any other literary nonentity in Germany to confront the reasoning and grumbling petty bourgeois with the viewpoint of the really revolutionary worker. Herr Heinzen knows of no other way of answering Stephan than by first of all asserting that what he has written is rubbish; so much for objective criticism. As he does not know Stephan personally, he resorts simply to calling him names like gamin and commis-voyageur.h But he has not yet blackened his opponent enough, he finally turns him into a policeman. One can see incidentally how just this last accusation is, since the French police,
+
+[^1]: "I," he proclaims, thrice beating his honest bosom, "I, meanwhile, bear my principle unflinchingly about with me and do not ditch it when a person asks me about it."
+
+[^2]: a Stephan Born.— Ed. b Guttersnipe and commercial traveller.— Ed.
+
+
+
+
+
+**[p. 340]**
+
+Having given the worker Stephan a practical moral lesson as described above, he apostrophises him in the following ingenuous terms:
+
+"For my own part, gladly though I would have engaged in discussions with a worker, I fail to see in insolence a fit substitute for competence."3
+
+The German workers will feel elated at the prospect of the democrat Karl Heinzen engaging in discussions with them as soon as they approach the great man with due modesty. Herr Heinzen is seeking to conceal his incompetence concerning Herr Stephan by the insolence of his outburst.
+
+K. M.
+
+Written at the end of October 1847 Printed according to the newspaper
+
+First published in the Deutsche-Brüsseler- Published in full in English for the Zeitung Nos. 86, 87, 90,92 and 94; first time October 28 and 31; November 11, 18 and 25, 1847
+
+[^1]: a K. Heinzen, "Ein 'Représentant' der Kommunisten".—Ed.
+
+
+
+Frederick Engels
+
+PRINCIPLES OF COMMUNISM155
+
+Question 1: What is communism? Answer: Communism is the doctrine of the conditions for the emancipation of the proletariat.
+
+Question 2: What is the proletariat? Answer: The proletariat is that class of society which procures its means of livelihood entirely and solely from the sale of its labour156
+
+and not from the profit derived from any capital; whose weal and woe, whose life and death, whose whole existence depend on the demand for labour, hence, on the alternation of times of good and bad business, on the fluctuations resulting from unbridled competi- tion. The proletariat, or class of proletarians, is, in a word, the working class of the nineteenth century.
+
+Question 3: Then there have not always been proletarians? Answer: No. Poor folk and working classes have always existed,157
+
+and the working classes have for the most part been poor. But such poor, such workers who live under the conditions just stated, that is, proletarians, have not always existed, any more than competition has always been free and unbridled.
+
+Question 4: How did the proletariat arise? Answer: The proletariat arose as a result of the industrial revolution which took place in England in the latter half of the last century and which has repeated itself since then in all the civilised countries of the world. This industrial revolution was brought about by the invention of the steam-engine, of various spinning machines, of the power-loom, and of a great number of other mechanical devices. These machines which were very expensive and, consequent- ly, could only be purchased by big capitalists, changed the entire
+
+
+
+**[p. 342]**
+
+I. The class of big capitalists who already now in all civilised countries almost exclusively own all the means of subsistence and the raw materials and instruments (machinery, factories, etc.), needed for the production of these means of subsistence. This class is the bourgeois class or the bourgeoisie.
+
+
+
+**[p. 343]**
+
+Question 5: Under what conditions does this sale of the labour of the proletarians to the bourgeois take place?
+
+Answer: Labour is a commodity like any other and its price is determined by the same laws as that of any other commodity. The price of a commodity under the domination of large-scale industry or of free competition, which, as we shall see, comes to the same thing, is on the average always equal to the cost of production of that commodity. The price of labour is, therefore, likewise equal to the cost of production of labour. The cost of production of labour consists precisely of the amount of the means of subsistence required for the worker to maintain himself in a condition in which he is capable of working and to prevent the working class from dying out. Therefore, the worker will not receive for his labour any more than is necessary for that purpose; the price of labour, or wages, will be the lowest, the minimum required for subsistence. Since business is now worse, now better, the worker will receive now more, now less, just as the factory owner receives now more, now less for his commodity. But just as on the average between good times and bad the factory owner receives for his commodity neither more nor less than the cost of its production, so also the worker will on the average receive neither more nor less than this minimum. This economic law of wages will come to be more stringently applied the more all branches of labour are taken over by large-scale industry.
+
+Question 6: What working classes existed before the industrial revolution?
+
+Answer: Depending on the different stages of the development of society, the working classes lived in different conditions and stood in different relations to the possessing and ruling classes. In ancient times the working people were the slaves of their owners, just as they still are in many backward countries and even in the southern part of the United States. In the Middle Ages they were the serfs of the landowning nobility, just as they still are in Hungary, Poland, and Russia. In the Middle Ages and up to the industrial revolution there were in the towns also journeymen in the service of petty-bourgeois craftsmen, and with the development of manufacture there gradual- ly emerged manufactory workers, who were already employed by the bigger capitalists.
+
+Question 7: In what way does the proletarian differ from the slave? Answer: The slave is sold once and for all, the proletarian has to sell
+
+
+
+**[p. 344]**
+
+Question 8: In what way does the proletarian differ from the serf? Answer: The serf has the possession and use of an instrument of production, a piece of land, in return for handing over a portion of the yield or for the performance of work. The proletarian works with instruments of production belonging to another person for the benefit of this other person in return for receiving a portion of the yield. The serf gives, to the proletarian is given. The serf has a guaranteed subsistence, the proletarian has not. The serf stands outside competition, the proletarian stands within it. The serf frees himself either by running away to the town and there becoming a handicraftsman or by giving his landlord money instead of labour and products and becoming a free tenant; or by driving out his feudal lord and himself becoming a proprietor, in short, by entering in one way or another into the possessing class and competition. The proletarian frees himself by doing away with competition, private property and all class distinctions.
+
+Question 9: In what way does the proletarian differ from the handicraftsman P3
+
+Question 10: In what way does the proletarian differ from the manufactory worker?
+
+Answer: The manufactory worker of the sixteenth to the eighteenth centuries almost everywhere still owned an instrument of production, his loom, the family spinning-wheels, and a little plot of
+
+[^1]: Half a page is left blank by Engels in the manuscript. The answer is in the "Draft of a Communist Confession of Faith" (see this volume, p. 101).—Ed.
+
+
+
+
+
+**[p. 345]**
+
+Question 11: What were the immediate results of the industrial revolution and the division of society into bourgeois and proletari- ans?
+
+Answer: Firstly, owing to the continual cheapening of the price of industrial products as a result of machine labour, the old system of manufacture or industry founded upon manual labour was com- pletely destroyed in all countries of the world. All semi-barbarian countries, which until now had been more or less outside historical development and whose industry had until now been based on manufacture, were thus forcibly torn out of their isolation. They bought the cheaper commodities of the English and let their own manufactory workers go to ruin. Thus countries that for thousands of years had made no progress, for example India, were revolution- ised through and through, and even China is now marching towards a revolution. It has reached the point that a new machine invented today in England, throws millions of workers in China out of work within a year. Large-scale industry has thus brought all the peoples of the earth into relationship with one another, thrown all the small local markets into the world market, prepared the way everywhere for civilisation and progress, and brought it about that everything that happens in the civilised countries must have its repercussions on all other countries. So if now in England or France the workers liberate themselves, this must lead to revolutions in all other countries, which sooner or later will also bring about the liberation of the workers in those countries.
+
+Secondly, wherever large-scale industry replaced manufacture, the industrial revolution developed the bourgeoisie, its wealth and its power, to the highest degree and made it the first class in the land. The result was that wherever this happened, the bourgeoisie obtained political power and ousted the hitherto ruling classes—the aristocracy, the guild-burghers and the absolute monarchy represent- ing both. The bourgeoisie annihilated the power of the aristocracy, the nobility, by abolishing entails or the ban on the sale of landed property, and all privileges of the nobility. It destroyed the power of the guild-burghers by abolishing all guilds and craft privileges. In
+
+
+
+**[p. 346]**
+
+Thirdly, the industrial revolution built up the proletariat in the same measure in which it built up the bourgeoisie. In the same proportion in which the bourgeois became wealthier, the proletari- ans became more numerous. For since proletarians can only be employed by capital and since capital only increases when it employs labour, the growth of the proletariat keeps exact pace with the growth of capital. At the same time it concentrates the bourgeois as well as the proletarians in large cities, in which industry can most profitably be carried on, and through this throwing together of great masses in one place it makes the proletarians conscious of their power. Further, the more it develops, the more machines are invented which displace manual labour, the more large-scale industry, as we already said, depresses wages to their minimum, and thereby makes the condition of the proletariat more and more unbearable. Thus, through the growing discontent of the proletariat, on the one hand, and through its growing power, on the other, the industrial revolution prepares a social revolution by the proletariat.
+
+Question 12: What were the further results of the industrial revolution ?
+
+Answer: In the steam-engine and the other machines large-scale industry created the means of increasing industrial production in a
+
+
+
+**[p. 347]**
+
+Question 13: What conclusions can be drawn from these regularly recurring trade crises?
+
+Answer: Firstly, that although in the initial stages of its develop- ment large-scale industry itself created free competition, it has now nevertheless outgrown free competition; that competition and in general the carrying on of industrial production by individuals have become a fetter upon large-scale industry which it must and will break; that large-scale industry, so long as it is conducted on its present basis, can only survive through a general confusion repeating itself every seven years which each time threatens all civilisation, not merely plunging the proletarians into misery but also ruining a great number of bourgeois; therefore that either large-scale industry itself must be given up, which is utterly impossible, or that it absolutely necessitates a completely new organisation of society, in which industrial production is no longer directed by individual factory owners, competing one against the other, but by the whole of society according to a fixed plan and according to the needs of all.
+
+Secondly, that large-scale industry and the unlimited expansion of production which it makes possible can bring into being a social order in which so much of all the necessities of life will be produced that every member of society will thereby be enabled to develop and exercise all his powers and abilities in perfect freedom. Thus, precisely that quality of large-scale industry which in present society
+
+
+
+**[p. 348]**
+
+1. that from now on all these ills are to be attributed only to the social order which no longer corresponds to the existing conditions;
+
+2. that the means are available to abolish these ills completely through a new social order.
+
+Question 14: What kind of new social order will this have to be? Answer: Above all, it will have to take the running of industry and all branches of production in general out of the hands of separate individuals competing with each other and instead will have to ensure that all these branches of production are run by society as a whole, i.e., for the social good, according to a social plan and with the participation of all members of society. It will therefore do away with competition and replace it by association. Since the running of industry by individuals had private ownership as its necessary consequence and since competition is nothing but the manner in which industry is run by individual private owners, private ownership cannot be separated from the individual running of industry and competition. Hence, private ownership will also have to be abolished, and in its stead there will be common use of all the instruments of production and the distribution of all products by common agreement, or the so-called community of property. The abolition of private ownership is indeed the most succinct and characteristic summary of the transformation of the entire social system necessarily following from the development of industry, and it is therefore rightly put forward by the Communists as their main demand.
+
+Question 15: The abolition of private property was therefore not possible earlier?
+
+Answer: No. Every change in the social order, every revolution in property relations, has been the necessary result of the creation of new productive forces which would no longer conform to the old property relations. Private property itself arose in this way. For private property has not always existed, but when towards the end of the Middle Ages a new mode of production appeared in the form of manufacture which could not be subordinated to the then existing feudal and guild property, manufacture, having outgrown the old property relations, created a new form of ownership—private ownership. For manufacture and the first stage of development of large-scale industry, no other form of ownership was possible than private ownership and no other order of society than that founded
+
+
+
+**[p. 349]**
+
+Question 16: Will it be possible to bring about the abolition of private property by peaceful methods?
+
+Answer: It is to be desired that this could happen, and Communists certainly would be the last to resist it. The Communists know only too well that all conspiracies are not only futile but even harmful. They know only too well that revolutions are not made deliberately and arbitrarily, but that everywhere and at all times they have been the necessary outcome of circumstances entirely independent of the will and the leadership of particular parties and entire classes. But they also see that the development of the proletariat is in nearly every civilised country forcibly suppressed, and that thus the opponents of the Communists are working with all their might towards a revolution. Should the oppressed proletariat in the end be goaded into a revolution, we Communists will then defend
+
+
+
+**[p. 350]**
+
+Question 17: Will it be possible to abolish private property at one stroke?
+
+Answer: No, such a thing would be just as impossible as at one stroke to increase the existing productive forces to the degree necessary for instituting community of property. Hence, the proletarian revolution, which in all probability is impending, will transform existing society only gradually, and be able to abolish private property only when the necessary quantity of the means of production has been created.
+
+Question 18: What will be the course of this revolution? Answer: In the first place it will inaugurate a democratic constitution and thereby, directly or indirectly, the political rule of the proletariat. Directly in England, where the proletariat already constitutes the majority of the people. Indirectly in France and in Germany, where the majority of the people consists not only of proletarians but also of small peasants and urban petty bourgeois, who are only now being proletarianised and in all their political interests are becoming more and more dependent on the proletariat and there- fore soon will have to conform to the demands of the proletariat. This will perhaps involve a second fight, but one that can end only in the victory of the proletariat.
+
+Democracy would be quite useless to the proletariat if it were not immediately used as a means of carrying through further measures directly attacking private ownership and securing the means of subsistence of the proletariat. Chief among these measures, already made necessary by the existing conditions, are the following:
+
+1. Limitation of private ownership by means of progres- sive taxation, high inheritance taxes, abolition of inheritance by collateral lines (brothers, nephews, etc.), compulsory loans and so forth.
+
+2. Gradual expropriation of landed proprietors, factory owners, railway and shipping magnates, partly through competition on the part of state industry and partly directly through compensation in assignations.
+
+3. Confiscation of the property of all emigrants and rebels against the majority of the people.
+
+4. Organisation of the labour or employment of the proletarians on national estates, in national factories and workshops, thereby putting an end to competition among the workers themselves and compelling the factory owners, as long as they still exist, to pay the same increased wages as the State.
+
+
+
+**[p. 351]**
+
+6. Centralisation of the credit and banking systems in the hands of the State by means of a national bank with state capital and the suppression of all private banks and bankers.
+
+7. Increase of national factories, workshops, railways, and ships, cultivation of all uncultivated land and improvement of land already cultivated in the same proportion in which the capital and workers at the disposal of the nation increase.
+
+8. Education of all children, as soon as they are old enough to do without the first maternal care, in national institutions and at the expense of the nation. Education combined with production.
+
+9. The erection of large palaces on national estates as common dwellings for communities of citizens engaged in industry as well as agriculture, and combining the advantages of both urban and rural life without the one-sidedness and disadvantages of either.
+
+10. The demolition of all insanitary and badly built dwellings and town districts.
+
+11. Equal right of inheritance to be enjoyed by illegitimate and legitimate children.
+
+12. Concentration of all means of transport in the hands of the nation.
+
+Of course, all these measures cannot be carried out at once. But one will always lead on to the other. Once the first radical onslaught upon private ownership has been made, the proletariat will see itself compelled to go always further, to concentrate all capital, all agriculture, all industry, all transport, and all exchange more and more in the hands of the State. All these measures work towards such results; and they will become realisable and will develop their centralising consequences in the same proportion in which the productive forces of the country will be multiplied by the labour of the proletariat. Finally, when all capital, all production, and all exchange are concentrated in the hands of the nation, private ownership will automatically have ceased to exist, money will have become superfluous, and production will have so increased and men will be so much changed that the last forms of the old social relations will also be able to fall away.
+
+Question 19: Will it be possible for this revolution to take place in one country alone?
+
+Answer: No. Large-scale industry, already by creating the world market, has so linked up all the peoples of the earth, and especially the civilised peoples, that each people is dependent on what happens
+
+
+
+**[p. 352]**
+
+Question 20: What will be the consequences of the final abolition of private ownership?
+
+Answer: Above all, through society's taking out of the hands of the private capitalists the use of all the productive forces and means of communication as well as the exchange and distribution of products and managing them according to a plan corresponding to the means available and the needs of the whole of society, all the evil consequences of the present running of large-scale industry will be done away with. There will be an end of crises; the extended production, which under the present system of society means overproduction and is such a great cause of misery, will then not even be adequate and will have to be expanded much further. Instead of creating misery, overproduction beyond the.immediate needs of society will mean the satisfaction of the needs of all, create new needs and at the same time the means to satisfy them. It will be the condition and the cause of new advances, and it will achieve these advances without thereby, as always hitherto, bringing the order of society into confusion. Once liberated from the pressure of private ownership, large-scale industry will develop on a scale that will make its present level of development seem as paltry as seems the manufacturing system compared with the large-scale industry of our time. This development of industry will provide society with a sufficient quantity of products to satisfy the needs of all. Similarly agriculture, which is also hindered by the pressure of private ownership and the parcelling of land from introducing the improvements already available and scientific advancements, will be given a quite new impulse, and place at society's disposal an
+
+
+
+**[p. 353]**
+
+It follows from this that the antagonism between town and country will likewise disappear. The carrying on of agriculture and industrial production by the same people, instead of by two different classes, is
+
+
+
+**[p. 354]**
+
+The general association of all members of society for the common and planned exploitation of the productive forces, the expansion of production to a degree where it will satisfy the needs of all, the termination of the condition where the needs of some are satisfied at the expense of others, the complete annihilation of classes and their antagonisms, the all-round development of the abilities of all the members of society through doing away with the hitherto existing division of labour, through industrial education, through change of activity, through the participation of all in the enjoyments provided by all, through the merging of town and country—such are the main results of the abolition of private property.
+
+Question 21: What influence will the communist order of society have upon the family?
+
+Answer: It will make the relation between the sexes a purely private relation which concerns only the persons involved, and in which society has no call to interfere. It is able to do this because it abolishes private property and educates children communally, thus destroying the twin foundation of hitherto existing marriage—the dependence through private property of the wife upon the husband and of the children upon the parents. Here also is the answer to the outcry of moralising philistines against the communist community of women. Community of women is a relationship that belongs altogether to bourgeois society and is completely realised today in prostitution. But prostitution is rooted in private property and falls with it. Thus instead of introducing the community of women, communist organisation puts an end to it.
+
+Question 22: What will be the attitude of the communist organisation towards existing nationalities?
+
+Question 23: What will be its attitude towards existing religions? —remains0
+
+[^1]: —remains3
+
+[^2]: a Apparently this means that the answer remains the same as to Question 21 of the "Draft of a Communist Confession of Faith". See this volume, p. 103.—Ed.
+
+[^3]: b See answer to Question 22 of the "Draft of a Communist Confession of Faith", this volume, p. 103.—Ed.
+
+
+
+
+
+**[p. 355]**
+
+1. it is striving after something utterly impossible; 2. it seeks to establish the rule of the aristocracy, the guild-masters and the manufacturers, with their retinue of absolute or feudal monarchs, officials, soldiers and priests, a society which was indeed free from the vices of present society, but brought at least as many other evils in its train and did not even hold out the prospect of the emancipation of the oppressed workers through a communist organisation;
+
+3. it always gives away its real intentions every time the proletariat becomes revolutionary and communist, when it immediately allies itself with the bourgeoisie against the proletarians.
+
+The second group consists of adherents of present society in whom the evils inseparable from it have awakened fears for its survival. They therefore endeavour to preserve present society but to remove the evils bound up with it. With this end in view, some of them propose measures of mere charity, and others grandiose systems of reform which, under the pretext of reorganising society, would retain the foundations of present society, and thus present society itself. These bourgeois socialists will also have to be continuous- ly fought by the Communists, since they work for the enemies of the Communists and defend the society which it is the Communists' aim to destroy.
+
+Finally, the third group consists of democratic socialists, who in the same way as the Communists desire part of the measures listed in Question a not, however, as a means of transition to communism but as measures sufficient to abolish the misery of present society and to cause its evils to disappear. These democratic socialists are either proletarians who are not yet sufficiently enlightened regard- ing the conditions of the emancipation of their class, or they are
+
+[^1]: a The manuscript has a blank space here. See answer to Question 18.—Ed.
+
+[^2]: ! .'J— 1826
+
+
+
+
+
+**[p. 356]**
+
+Question 25: What is the attitude of the Communists towards the other political parties of our day?
+
+Answer: This attitude differs from country to country.—In England, France, and Belgium, where the bourgeoisie rules, the Communists still have for the time being a common interest with the various democratic parties, which is all the greater the more in the socialist measures they are now everywhere advocating the demo- crats approach the aims of the Communists, that is, the more clearly and definitely they uphold the interests of the proletariat and the more they rely on the proletariat. In England, for instance, the Chartists, who are all workers, are incalculably nearer to the Communists than are the democratic petty bourgeois or so-called radicals.
+
+In America, where a democratic constitution has been introduced, the Communists must make common cause with the party that will turn this constitution against the bourgeoisie and use it in the interest of the proletariat, that is, with the national agrarian reformers.160
+
+In Switzerland the radicals, although still a very mixed party, are yet the only people with whom the Communists can have anything to do, and, further, among these radicals those in the cantons of Vaud and of Geneva are the most advanced.
+
+Finally, in Germany the decisive struggle between the bourgeoisie and the absolute monarchy is still to come. Since, however, the Communists cannot count on the decisive struggle between them- selves and the bourgeoisie until the bourgeoisie rules, it is in the interests of the Communists to help bring the bourgeoisie to power as soon as possible in order as soon as possible to overthrow them again. The Communists must therefore always take the side of the liberal bourgeois against the governments but they must ever be on their guard against sharing the self-deceptions of the bourgeois or believing their false assurances about the benefits which the victory of the bourgeoisie will bring to the proletariat. The only advantages which the victory of the bourgeoisie will provide for the Communists
+
+
+
+**[p. 357]**
+
+Written at the end of October 1847 Printed according to the manu- script First published separately in 1914
+
+Frederick Engels
+
+[THE AGRARIAN PROGRAMME OF THE CHARTISTS]161
+
+About two years ago the Chartist workers founded an association with the object of buying land and dividing it among its members into small holdings.162 It was hoped in this way to diminish the excessive competition between factory workers themselves, by keeping from the labour market some of these workers to form a quite new and essentially democratic class of small peasants. This project, whose author is none other than Feargus O'Connor himself, has had such success that the Chartist Land Company already num- bers from two to three hundred thousand members,3 that it disposes of social funds of £60,000 (a million and a half francs), and that its receipts, announced in The Northern Star, exceed £2,500 per week. In fact, the Company, of which I propose to give you later a more detailed account, has grown to such a size that it is already disquieting the landed aristocracy; for it is evident that this movement, if it continues to grow at the same rate as up to now, will end by becoming transformed into a national agitation for taking possession of the nation's land by the people. The bourgeoisie does not find this Company to its taste either; it sees it as a lever in the hands of the people which will allow the latter to free themselves without needing the help of the middle class. It is particularly the small bourgeoisie, more or less liberal, which looks askance at the Land Company because it already finds the Chartists much more independent of its support than before the founding of the association. Moreover, these same radicals, unable to explain the
+
+[^1]: a The Northern Star No. 524, November 6, 1847 has "consists of a vast number of members" instead of "already numbers from two to three hundred thousand members".—Ed.
+
+
+
+
+
+**[p. 359]**
+
+
+
+[^1]: a F. O'Connor, "To the Members of the National Land Company" and "O'Connor, F., Esq. (Treasurer) in Account with the National Land Company".—Ed.
+
+[^2]: b F. O'Connor, "To the Editors of the Nottingham Mercury, the Nonconformist, the Dispatch, the Globe, the Manchester Examiner and Lloyds' Trash".—Ed.
+
+
+
+
+
+**[p. 360]**
+
+When the meetings had ended, O'Connor declared that he would receive the contributions and subscriptions of the members of the Land Company, and the sum paid to him that evening exceeded
+
+il,000 (25,000 francs).
+
+At Nottingham, where O'Connor on the next day drew one of the greatest meetings which had ever taken place there, the same popular enthusiasm was caused by his speech.
+
+This was at least the hundredth time that Mr. O'Connor has triumphed in this brilliant way over the calumnies of the bourgeois press. Imperturbable amidst all these attacks, the indefatigable patriot continues his work, and the unanimous confidence of the English people is the best proof of his courage, his energy, his incorru ptibility.
+
+[^1]: Written on October 30, 1847 Printed according to the text in La Réforme First published in La Réforme, November 1, 1847 and Translated from the French The Northern Star No. 524, November 6, 1847
+
+
+
+Frederick Engels
+
+[THE CHARTIST BANQUET IN CONNECTION WITH THE ELECTIONS OF 1847] «»
+
+In a letter of the day before yesterday I was concerned to defend the Chartists and their leader Feargus O'Connor against the attacks of the radical bourgeois press.3 Today, to my great satisfaction, I can tell you something which confirms what I suggested about the spirit of the two parties. You will judge for yourselves to whom French democracy ought to give its sympathy: to the Chartists, sincere democrats without ulterior motives, or to the radical bourgeois who so carefully avoid using the words people's charter, universal suffrage, and limit themselves to proclaiming that they are partisans of complete suffragel 164
+
+Last month a banquet took place in London to celebrate the triumph of democratic opinion at the last elections. Eighteen radical members of Parliament were invited, but since the Chartists had initiated the banquet all these gentlemen defaulted, with the exception of O'Connor. The radicals, as we see, are behaving in a way which makes it quite predictable how they will honour their pledges made at the last elections.
+
+One dispensed with their presence the more readily as they had sent one of their worthy representatives—Doctor Epps, a timid man and a petty reformer, conciliatory towards everybody except the active and energetic men of our opinions; a philanthropic bourgeois who burns, he says, to free the people, but who does not want the people to free themselves without him; in fact, a worthy partisan of bourgeois radicalism.
+
+Doctor Epps proposed a first toast to the sovereignty of the people,
+
+[^1]: a See previous article.—Ed.
+
+
+
+
+
+**[p. 362]**
+
+"I do not think," he said, "that the sovereignty of the people can be obtained through a revolution. The French fought three days 65; they have been cheated out of national sovereignty. Nor do I think that it can be obtained by long speeches. Those who speak least do most. I do not like men who make a lot of noise; big words do not make big deeds."
+
+These indirect sallies against the Chartists were received with numerous marks of disapproval. It could not be otherwise, above all when Doctor Epps added:
+
+"The bourgeoisie has been slandered among the workers; as if the bourgeoisie was not the very class which alone can obtain political rights for the workers. ("No! No!") No? Is it not the bourgeois who are the electors? And is it not only the electors who can give the vote to those who do not have it? Is there anyone among you who would not become a bourgeois if he could? Ah! If the workers would give up their pots and their pipes, they would have money to support their political agitation, they could do much to contribute towards their freedom," etc., etc.
+
+Such is the language of the men who reject O'Connor and the Chartists!
+
+The speakers who succeeded Dr. Epps energetically rebutted the strange doctrines of the radical doctor, amid much applause by the assembly.
+
+Mr. Mac Grath, member of the executive committee of the Chartist Association,166 recalled that the people ought not to have confidence in the bourgeoisie, that they had to win their own rights by themselves; it was not proper to the dignity of the people to beg for what really belonged to them.
+
+Mr. Jones reminded the assembly that the bourgeoisie had always forgotten the people; and now that the bourgeoisie sees the growth of democracy, he said, it wants to use it to overthrow the landed aristocracy, and crush the democrats as soon as it has attained its objective.
+
+Mr. O'Connor, replying still more directly to Dr. Epps, asked him who had crushed the country with an enormous debt, if it were not die bourgeoisie? Who had deprived the workers of their political and social rights if not the bourgeoisie? Who had, that very evening, refused to respond to the people's invitation, if it were not the seventeen honourable bourgeois to whom the democrats had so unfortunately given their votes? No, no, capital never represents labour! The lion and the lamb would lie down together before capitalists and workers were united by interests and feelings!
+
+Mr. Harney, editor of The Northern Star, gave the last toast: "Our democratic brethren throughout the world! May their present struggle for
+
+
+
+**[p. 363]**
+
+There can be no true reform as long as sovereignty does not wholly belong to the nation; there is no national sovereignty as long as the principles of the constitution of 1793168 are not a reality.
+
+Mr. Harney then gave a picture of the progress of democracy in Germany, Italy and Switzerland, and ended by disavowing, for his part, in the most energetic terms, the strange doctrines of Dr. Epps about the rights of the bourgeoisie.
+
+Written on November 1, 1847 Printed according to the newspaper
+
+First published in La Réforme, Translated from the French November 6, 1847 . . . . . Published m English for the first time
+
+Frederick Engels
+
+THE MANIFESTO OF M. DE LAMARTINE
+
+You recently published this curious piece of workmanship.169 It consists of two very distinct parts: political measures and social measures. Now the political measures are, one and all, taken from the Constitution of 1791,170 with almost no alteration; that is, they are the return to the demands of the middle classes in the beginning of the revolution. At that time the whole of the middle classes, including even the smaller tradesmen, were invested with political power, while at present the participation in it is restrained to the large capitalists. What, then, is the meaning of the political measures proposed by M. de Lamartine? To give the government into the hands of the inferior bourgeoisie, but under the semblance of giving it to the whole people (this, and nothing else, is the meaning of his universal suffrage, with his double system of elections). And his social measures? Why, they are either things which presuppose that a successful revolution has already given the political power to the people—such as gratuitous education for all; or measures of pure charity, that is, measures to soften down the revolutionary energies of the proletarians; or mere high-sounding words without any practical meaning, such as extinction of mendicity by order in council, abolition of public distress by law, a ministry of the people's life, etc. They are, therefore, either totally useless to the people, or calculated to benefit them in such a degree only as will assure some sort of public tranquillity, or they are mere empty promises, which no man can keep—and in these two last cases they are worse than useless. In short, M. de Lamartine proves himself, both under a social and a political point of view, the faithful representative of the small tradesman, the inferior bourgeoisie, and [one] who shares in the illusion particular to this class: that he represents the working
+
+
+
+**[p. 365]**
+
+"Certainly," says the Réforme, "these are high words, revealing a mighty heart, a spirit sympathising with the cause of right. The fraternal feeling is panting visibly under the cloak of words, and our poets and philosophers will be excited by them into enthusiasm similar to that produced upon Periclean Greece by the sentence of Plato. But we have not now anything to do with Pericles, we live under the reign of Messrs Rothschild, Fulchiron and Duchâtel, that is under the triple incarnation of Money, blockheaded Fear, and Police; we have for a government, profits, privilege, and the municipal guard. Now, hopes M. de Lamartine that the league of consolidated interests, that the Sonderbundb of dollars, place and monopoly, will surrender and lay down arms at his appeal to national sovereignty and social fraternity? Why, for good as for evil, all things in this world are connected—one keeps up the other, nothing is isolated—and that is the reason why the most generous programme of the deputy for Mâconc will pass like perfumed zephyrs of summer, will die like empty trumpet sounds, as long as they shall bear the motherstain of all monopoly—feudal violation of Right and of Equality. And this league of the privileged classes is particularly closely united at this very moment, when the governmental system is the prey of convulsive fear.
+
+"As to the institutions he proposes, the official country and its leaders call such things the sweet meats of philosophy: Messrs Duchâtel and Guizot will laugh at them, and if the deputy for Mâcon does not look out elsewhere for arms and soldiers to defend his ideas, he will pass all his life at making fine words and no progress! And if he addresses himself to the million instead of the government, we tell him that he follows a false route, and never will win over to his system of graduated election, poor rate, and philanthropic charity, neither the Revolution, nor thinking men, nor the people. The principles, indeed, of social and political regeneration have been found fifty years ago. Universal suffrage, direct election, paid representation—these are the essential conditions of political sovereignty. Equality, liberty, fraternity—these are the principles which ought to rule all social institutions. Now, the poor rate is far from being based upon fraternity, whilst at the same time it is an insolent and very impotent denial of equality. What we want is not English middle-class expediency, but quite a new system of social economy, to realise the right and satisfy the wants of all."
+
+A few days after appeared the second manifesto of M. de Lamartine upon the foreign policy of France. In this he maintains that the peace system followed by the French government after 1830, was the only convenient mode of action. He covers by pompous
+
+[^1]: a There follows a free translation of extracts from an article by Louis Blanc analysing Lamartine 's "Déclaration de principes".—Ed.
+
+[^2]: b The allusion is to the Swiss Sonderbund, a separatist union of seven Catholic cantons.—Ed.
+
+[^3]: c Lamartine.—Ed.
+
+
+
+
+
+**[p. 366]**
+
+"M. de Lamartine sacrifices the legitimate and only instrument of freeing us—the holy war of principle—to a theory of peace which will be a mere weakness, a lie, and even an act of treason, as long as the relations from people to people are based upon the policy of diplomatists, and the egotism of governments. No doubt, peace is the ultimate necessity of civilisation; but what is peace with Nicholas of Russia? The disemboweller of whole nations, the hangman who nails infants to the gallows, who carries on a deadly war against even hope and recollection, who drowns in her tears and her blood a great, a glorious country! For mankind, for civilisation, for France herself, peace with this madman of a Jack Ketch is cowardice; for justice, for right, for the revolution, it is a crime! What is peace with Metternich, who hires hosts of assassins, who confiscates for the benefit of crowned epilepsy ,b the liberties of nations? What is peace with all those little Caesars of Europe, ruined debauchees, or villainous bigots who reign, to-day for the Jesuits, to-morrow for the courtezan? What is peace with the aristocratic and money-mongering English government, which tyrannises the seas, which kills liberty in Portugal, which squeezes money even out of the rags of its people? Peace with these Jews, these poison-mongers, we repeat it, is, for a country in revolution, cowardice, shame, crime, moral desertion, bankruptcy not only of interest, but of right and honour."
+
+The other Paris papers have equally expressed their dissent from M. de Lamartine's programme in different respects.171 He continues, however, illustrating its principles in his paper, the Bien Public of Mâcon. We shall in a few months be enabled to judge what effect his new move will make upon the Chamber of Deputies.
+
+[^1]: Written at the beginning Reprinted from the newspaper of November 1847
+
+[^2]: First published in The Northern Star No. 525, November 13, 1847 with an editorial note: "From Our Paris Correspondent"
+
+[^3]: a "Programme de M. Lamartine".—Ed.
+
+[^4]: b Ferdinand L—-Ed.
+
+
+
+Frederick Engels
+
+THE CIVIL WAR IN SWITZERLAND172
+
+At last the ceaseless bombast about the "cradle of freedom", about the "grandsons of William Tell and Winkelried", about the heroic victors of Sempach and Murten178 is being brought to an end. At last it has been revealed that the cradle of freedom is nothing but the centre of barbarism and the nursery of Jesuits, that the grand- sons of Tell and Winkelried can only be brought to reason by cannon-balls, and that the heroism at Sempach and Murten was nothing but the desperation of brutal and bigoted mountain tribes, obstinately resisting civilisation and progress.
+
+It is really very fortunate that European democracy is finally getting rid of this t/r-Swiss, puritan and reactionary ballast. As long as the democrats concentrated on the virtue, the happiness and the patriarchal simplicity of these Alpine shepherds, they themselves still appeared in a reactionary light. Now that they are supporting the struggle of civilised, industrial, modern-democratic Switzerland against the crude, Christian-Germanic democracy of the primitive, cattle-breeding cantons, they represent progress everywhere, now the last reactionary glimmer disappears, now they show that they are learning to understand the meaning of democracy in the 19th century.
+
+There are two regions in Europe where old Christian-Germanic barbarism has retained its most primitive form, almost down to acorn-eating—Norway and the High Alps, especially Ur- Switzerland.174 Both Norway and t/r-Switzerland still provide us with genuine examples of that breed of men who once beat the Romans to death in good Westphalian style with clubs and flails in the Teutoburg Forest.175 Both Norway and l/r-Switzerland are demo- cratically organised. But there are many varieties of democracy and
+
+
+
+**[p. 368]**
+
+The democratic movement in all civilised countries is, in the last analysis, striving for the political domination of the proletariat. It therefore presupposes that a proletariat exists, that a ruling bourgeoisie exists, that an industry exists which gives birth to the proletariat and which has brought the bourgeoisie to power.
+
+There is nothing of all this either in Norway or in L/r-Switzerland. In Norway, we have the very famous peasant regiment (bonde- regimente); in L/r-Switzerland a number of rough shepherds who, despite their democratic constitution, are ruled by a few big landowners, Abyberg, etc., in patriarchal fashion. A bourgeoisie only exists in exceptional cases in Norway, and not at all in Ur- Switzerland. The proletariat is practically non-existent.
+
+The democracy prevailing in civilised countries, modern democra- cy, has thus nothing whatever in common with Norwegian or L/r-Swiss democracy. It does not wish to bring about the Norwegian and l/r-Swiss state of affairs but something absolutely different. Let us nevertheless look a little closer at this primitive-Germanic democracy and deal first with L/r-Switzerland, which is what above all concerns us here.
+
+Is there a German philistine who does not rave about William Tell, the liberator of his Fatherland; a schoolmaster who does not celebrate Morgarten, Sempach and Murten along with Marathon, Plataea and Salamis176; a hysterical old maid who does not go into raptures over the strong leg calves and sturdy thighs of the chaste Alpine youths? The glory of L/r-Swiss valour, freedom, skill and strength has been endlessly praised in verse and prose from Aegidius Tschudi to Johannes von Müller, from Florian to Schiller. The carbines and cannons of the twelve cantons now provide a commentary on these enthusiastic panegyrics.
+
+The L/r-Swiss have drawn attention to themselves twice during the course of history. The first time, when they freed themselves gloriously from Austrian tyranny; the second at the present time, when they march off to fight in God's name for the Jesuits and the Fatherland.
+
+On closer examination, the glorious liberation from the talons of the Austrian eagle does not look at all good. The House of Austria was progressive just once in the whole of its career; this was at the beginning of its existence when it allied itself with the urban petty bourgeoisie against the nobility, and sought to found a German monarchy. It was progressive in the most philistine of ways but it was
+
+
+
+**[p. 369]**
+
+As if this were not enough, these simple, stiff-necked shepherds were soon punished in a quite different way. They escaped the domination of the Austrian nobility only to come under the yoke of the petty bourgeois of Zurich, Lucerne, Berne and Basel. These had already noted that the L/r-Swiss were just as strong and as stupid as their oxen. They agreed to join the Swiss Confederation and stayed peacefully at home behind their counters while the thick-headed Alpine shepherds fought out all their battles with the nobility and the princes for them. This is what happened at Sempach, Granson, Murten and Nancy.178 In return, these people were allowed to arrange their internal affairs as they wished and so they remained in blissful ignorance of how they were being exploited by their dear fellow-Confederationists.
+
+Since then nothing much has been heard of them. They busied themselves in all piety and propriety with milking the cows, with cheese-making, chastity and yodelling. From time to time they had folk assemblies at which they divided into horn-men, claw-men and other animal-like groups, and these gatherings never ended without a hearty, Christian-Germanic fight. They were poor but pure in heart, stupid but pious and well-pleasing to the Lord, brutal but broad-shouldered and had little brain but plenty of brawn. From time to time there were too many of them and then the young men went off on their "travels", i.e., enlisted in foreign armies where they displayed the most steadfast loyalty to the flag no matter what happened. One can only say of the Swiss that they let themselves be killed most conscientiously for their pay.
+
+The greatest boast of these burly L/r-Swiss was that from time immemorial they had never deviated by a hair's breadth from the customs of their forefathers, that they had retained the simple, chaste, upright and virtuous customs of their fathers unsullied throughout the centuries. And this is true. Every attempt at civilisation was defeated by the granite walls of their mountains and of their heads. From the days when Winkelried's first ancestor led his
+
+
+
+**[p. 370]**
+
+In recent times two invasions against these artless customs and primitive power have been attempted. The first was by the French in 1798. But these French, who spread a little civilisation everywhere else, failed with these Ur-Swiss. No trace of their presence has remained, they were unable to eliminate one single jot of the old customs and virtues. The second invasion took place about twenty years later and did at least bear a little fruit. This was the invasion of English travellers, of London lords and squiresb and the hordes of chandlers, soap-manufacturers, grocers and bone merchants who followed them. This invasion at least ended the old hospitality and transformed the honest inhabitants of the Alpine huts, who previously hardly knew what money was, into the most mean and rascally swindlers anywhere to be found. But this advance made no impact at all on the old simple customs. This not so very virtuous chicanery fitted in perfectly with the patriarchal virtues of chastity, skill, probity and loyalty. Even their piety suffered no injury; the priests were delighted to give them absolution for all the deceptions practised on British heretics.
+
+But it now looks as if all this moral purity is about to be thoroughly stirred up. It is to be hoped that the punitive detachments will do
+
+[^1]: a Luke 15:21 (paraphrased).—Ed.
+
+[^2]: In the original the words "lords" and "squires" are in English.—Ed.
+
+
+
+
+
+**[p. 371]**
+
+But no more of that. The L/r-Swiss must be fought with weapons quite different from mere ridicule. Democracy has to settle accounts with them about matters quite different from their patriarchal virtues.
+
+Who defended the Bastille on July 14, 1789 against the people who were storming it? Who shot down the workers of the Faubourg St. Antoine with grape-shot and rifle bullets from behind safe walls? —L/r-Swiss from the Sonderbund, grandsons of Tell, Stauffâcher
+
+and Winkelried.
+
+Who defended the traitor Louis XVI on August 10, 1792 from the just wrath of the people, in the Louvre and the Tuileries?—L/r-Swiss from the Sonderbund.
+
+Who suppressed the Neapolitan revolution of 1798 with the help of Nelson?—L/r-Swiss from the Sonderbund.
+
+Who re-established the absolute monarchy in Naples—with the help of Austrians—in 1823?—L/r-Swiss from the Sonderbund.
+
+Who fought to the last on July 29, 1830, again for a treacherous king3 and again shot Paris workers down from the windows and colonnades of the Louvre?—L/r-Swiss from the Sonderbund.
+
+Who suppressed the insurrections in Romagna in 1830 and 1831, again along with the Austrians, with a brutality which achieved world notoriety?—L/r-Swiss from the Sonderbund.
+
+In short, who holds the Italians down, to this day, forcing them to bow to the oppressive domination of their aristocrats, princes and
+
+[^1]: a Charles X.—Ed.
+
+
+
+
+
+**[p. 372]**
+
+In one word, wherever and whenever a revolutionary movement broke out in France either directly or indirectly advantageous to democracy, it was always t/r-Swiss mercenaries who fought it to the last, with the utmost resolution. And especially in Italy these Swiss mercenaries were always the most devoted servants and handy men of" Austria. A just punishment for the glorious liberation of Switzerland from the talons of the two-headed eagle!
+
+One should not think that these mercenaries were the refuse of their country, or that they were disavowed by their fellow- countrymen. Have not the people of Lucerne had a statue hewn out of the rock at their city gates by the pious Icelander Thorvaldsen, depicting a huge lion, bleeding from an arrow wound, covering the Bourbon fleur-de-lis with his paw, faithful unto death, in memory of the Swiss who died at the Louvre on August 10, 1792? This is the way Sonderbund honours the venal loyalty of its sons. It lives by the trade in human beings and glorifies it.
+
+Can the English, French and German democrats have had anything in common with this kind of democracy?
+
+Through its industry, its commerce and its political institutions, the bourgeoisie is already working everywhere to drag the small, self-contained localities which only live for themselves out of their isolation, to bring them into contact with one another, to merge their interests, to expand their local horizons, to destroy their local habits, strivings and ways of thinking, and to build up a great nation with common interests, customs and ideas out of the many hitherto mutually independent localities and provinces. The bourgeoisie is already carrying out considerable centralisation. The proletariat, far from suffering any disadvantage from this, will as a result rather be in a position to unite, to feel itself a class, to acquire a proper political point of view within the democracy, and finally to conquer the bourgeoisie. The democratic proletariat not only needs the kind of centralisation begun by the bourgeoisie but will have to extend it very much further. During the short time when the proletariat was at the helm of state in the French Revolution, during the rule of the Mountain party, it used all means—including grape-shot and the guillotine—to effect centralisation. When the democratic proletariat
+
+
+
+**[p. 373]**
+
+l/r-Switzerland, on the other hand, has never done anything but obstruct centralisation; with really brutish obstinacy it has insisted on its isolation from the whole outside world, on its local customs, habits, prejudices, narrow-mindedness and seclusion. It has stood still in the centre of Europe at the level of its original barbarism, while all other nations, even the other Swiss, have gone forward. It stands pat on cantonal sovereignty with all the obduracy of the crude primitive Germans, that is, on the right to be eternally stupid, bigoted, brutal, narrow-minded, recalcitrant and venal if it so wishes, whether its neighbours like it or not. If their own brutish situation comes under discussion, they no longer recognise such things as majorities, agreements or obligations. But in the 19th century it is no longer possible for two parts of one and the same country to exist side by side without any mutual intercourse and influence. The radical cantons affect the Sonderbund, the Sonderbund affects the radical cantons, where, too, very crude elements still exist here and there. The radical cantons are, therefore, interested in getting the Sonderbund to abandon its bigotry, narrow-mindedness and obdu- racy, and if it won't, then its self-will must be broken by force; and this is what is happening at this moment.
+
+The civil war which has now broken out can only help the cause of democracy. Even though there is still a great deal of primitive Germanic crudity to be found in the radical cantons, even though a peasant, or a bourgeois regiment, or a mixture of both is concealed behind their democracy, even though the most civilised cantons still lag behind the development of European civilisation and really modern elements only rise to the top slowly here and there, this is no great help to the Sonderbund. It is necessary, urgently necessary, that this last bastion of brutal, primitive Germanism, of barbarism, bigotry, patriarchal simplicity and moral purity, of immobility, of loyalty unto death to the highest bidder, should at last be destroyed. The more energetically the Swiss Diet sets to work and the more violently it shakes up this old nest of priests, the more claim it will have on the support of all really resolute democrats and the more it will prove that it understands its position. But of course the five great powers are there and the radicals themselves are afraid.
+
+As far as the Sonderbund is concerned, it is significant that the true sons of William Tell have to beg the House of Austria, Switzerland's hereditary foe, for help just when Austria is baser,
+
+
+
+**[p. 374]**
+
+Written about November 10, 1847 Printed according to the newspaper
+
+First published in the Deutsche-Brüsseler- Published in English for the first Zeitung No. 91, November 14, 1847 time
+
+Frederick Engels
+
+THE REFORM MOVEMENT IN FRANCE
+
+When, during the last session of the Legislative Chambers, M. E. de Girardin had brought to light those numerous and scandal- ous facts of corruption which he thought would overthrow the government; when, after all, the government had maintained themselves against the storm; when the celebrated Two Hundred and Twenty-Five3 declared themselves "satisfied" as to the innocence of the ministry, all seemed to be over, and the Parliamentary Opposition, towards the close of the session, fell back into the same impotency and lethargy which they had manifested at the beginning. But all was not over. Though Messrs Rothschild, Fould, Foulchiron, and Co. were satisfied, the people were not, nor was a large portion of the middle classes. The majority of the French bourgeoisie, especially those of the second and third rank, could not but see that the present class of electors became more and more the obedient servants of a small number of bankers, stock-jobbers, railway- speculators, large manufacturers, landed and mining proprietors, whose interest was the only interest cared for by the government. They saw that there was no hope for them ever to regain the position in the Chambers which, since 1830, they had been losing more and more every day, unless they extended the suffrage. They knew that electoral and parliamentary Reform was a dangerous experiment for them to try; but what could they do? Seeing that the haute finance, the lords of Paris Exchange, bought up the government and both the Chambers; seeing their own interests openly trampled upon; they were obliged either to submit patiently, and await humbly and
+
+[^1]: a The majority in the Chamber of Deputies supporting the Guizot govern- ment.—Ed.
+
+
+
+
+
+**[p. 376]**
+
+The Opposition, of all shades, therefore, united, some four months ago, in getting up a demonstration in favour of Electoral Reform. A public dinner was arranged and took place in July, at the Château-Rouge ball-rooms, at Paris. All fractions of Reformers were represented, and the assembly was rather mixed; but the Democrats, having been the most active, evidently predominated. They had made it a condition of their assistance, that the king's3 health should not be drunk, but be replaced by a toast in favour of the sovereignty of the people; the committee knowing well that in the most democratic town of France they could not get up a decent demonstration without the Democrats, were obliged to comply. If I recollect rightly, you gave, at the time, a full account of the banquet,179 which was in every respect more like a demonstration of the strength, both in number and intellect, of democracy at Paris, than anything else.
+
+The Journal des Débats failed not to raise a terrible outcry about this banquet.
+
+"What! no toast to the king? and this toast not omitted by negligence, by want of a sense of propriety—no, this omission put as a condition for their support by part of the getters-up! Why, what pretty company this calm and peaceful M. Duvergier de Hauranne—this moral-force, monarchical M. Odilon Barrot have got into! Why, this is not mere republicanism—this is revolutionism, physical-forcism, socialism, utopi- anism, anarchism and communism! Ah, but, gentlemen, we know you—we have had samples of your bloody deeds, we have proofs of what you are contending for! Fifty years ago, gentlemen, you called yourselves the club of the Jacobinsl"l S0
+
+Next day's National replied to the fierce and furious vituperation of the furiously moderate paper by a host of quotations from Louis Philippe's private journal, written in 1790 and 1791, where every day's note of the then "Citizen Égalitéb junior" commenced with the words:
+
+The central committee of the Opposition had invited their friends in the country to imitate the example given by the metropolis, in
+
+[^1]: "To-day I was at the Jacobins"—"To-day I took the liberty of saying a few words at the Jacobins which were warmly applauded"—"To-day I was called to the office of door-keeper at the Jacobins", etc.c
+
+[^2]: a Louis Philippe.—Ed. b The name which Duke of Orleans, Louis Philippe's father, took during the French Revolution.—Ed.
+
+[^3]: c "Journal du duc de Chartre" in Le National, August 12, 1847.—Ed.
+
+
+
+
+
+**[p. 377]**
+
+The first large banquet, after that of Paris, was held at Strasburg, in the beginning of September. It was rather a democratic one, and a working man, at the close of it, proposed a toast to the organisation of labour, which term, in France, expresses that which in England the National Association of United Trades181 are trying to carry out; viz. the freeing of labour from the oppression of capital by carrying on manufacturing, agricultural, and other purposes, for the account, either of the associated working men themselves, or of the people at large, under a democratic government.
+
+Then came the banquets of Bar-le-Duc, a bourgeois demonstration, finished by the Mayor proposing the health of the Constitutional
+
+[^1]: "Whoever would take such demonstration as a sample of the state of public opinion in France, would be very much mistaken indeed; they are got up by the middle classes only, and the people are entirely shut out from them. This agitation, if it be confined to the limits of the Bar-le-Duc banquet, will vanish like all bourgeois movements; like the Free Trade movement, which after a few hollow speeches died away very soon."3
+
+[^2]: "Banquet de Bar-le-Duc".—Ed.
+
+
+
+
+
+**[p. 378]**
+
+But the banquet of Saint-Quentin, again, was more or less democratic; and that of Orleans, in the last days of September, was, from beginning to end, a thoroughly democratic meeting. Judge of it by the toast to the working classes, responded to by M. Marie, one of the most celebrated barristers of Paris, and a democrat. He commenced his speech in the following terms:
+
+"To the working men—to those men, always neglected and forgotten, but always faithful to the interests of their country, always ready to die for its cause, be it in defending their native land against foreign aggression, be it in guarding our institutions, when menaced by inward foes! To those, from whom we demanded the days of July,182 and who gave them to us; terrible in their actions, generous in their triumph, resplendent with courage, probity, and disinterestedness!"3
+
+and concluded the toast in these words: "Liberty, equality, fraternity!" It is characteristic that the Orleans banquet was the only one at which we find it stated that covers were reserved for the representatives of the working people.
+
+The banquets of Culommiers, Melun, and Cosne, again, were mere bourgeoisie gatherings. The "Left Centre", the middle-class Liberals of the Constitutionnel and Siècle, amused themselves in listening to the speeches of MM. Barrot, Beaumont, Drouyn de Lhuys, and such like retailers of Reform. At Cosne, the democrats openly declared against the demonstration, because the king's health was insisted upon. The same narrow spirit prevailed at the banquet of La Charité, on the Loire.
+
+In return, the Reform dinner of Chartres was thoroughly democratic. No toast to the king—toasts for Electoral and Parliamen- tary Reform upon the largest base, for Poland and Italy, for the organisation of labour.
+
+This week banquets will take place at Lille, Valenciennes, Avesnes, and throughout the Department of the North generally. Those of Lille and Valenciennes, at least, will probably take a decidedly democratic turn. In the South of France, at Lyons, and in the West, other demonstrations are preparing. The Reform Movement is far from being near to its close.
+
+You see from this account that, from its very beginning, the Reform Movement of 1847 has been marked by a struggle betwixt the Liberals and the Democrats; that while the Liberals carried their ends in all the smaller localities, the Democrats were the stronger in
+
+[^1]: a Quoted from the article "Banquet réformiste du département du Loiret".—Ed.
+
+
+
+
+
+**[p. 379]**
+
+The Reform movement was seconded by the Departmental Councils, who met in September, and who are entirely composed by bourgeois. The Councils of the Departments of the Côté-d'Or, of Finisterre, of the Aisne, the Moselle, the Haut-Rhin, the Oise, the Vosges, the North, and others, demanded, more or less, extensive reforms, all of them, of course, confined to the limits of bourgeois Liberalism.
+
+But what, will you ask, are the reforms demanded? There are as many different systems of reform, as there are shades of Liberals and Radicals. The least thing asked for, is the extension of the Suffrage, to what is called the capacities, or what you, in England, would call the learned professions, even if they do not pay the 200 francs of direct taxes, which make, at present, a man a voter. Then the Liberals have some other propositions, more or less in common with the Radicals. These are:—
+
+1st. The extension of the incompatibilities, or the declaring of certain government offices to be incompatible with the functions of a representative. The government have, at present, more than 150 of their subordinate employees in the Deputies, all of which may, at any moment, be cashiered, and are, therefore, entirely dependent upon the Ministry.
+
+2nd. The enlargement of some electoral districts, some of which are composed of less than 150 voters, who are, therefore, entirely ruled through the influence of the government upon their local and personal interests.
+
+3rd. The electing of all deputies of a Department in a full meeting of all the electors, assembled at its principal town, by which means local interests are intended to be more or less submerged in the common interests of the whole Department, and thus render nugatory the corruption and influence of the government.
+
+Then, there are proposals for lowering the amount of the voting qualification in different degrees. The most radical of these propositions is that of the National, the paper of the Republican small tradesmen, for extending the suffrage to all men belonging to
+
+
+
+**[p. 380]**
+
+The Reform movement is, however, not to be considered as the totality of the agitation now going on in France. Far from it! At all these banquets be they Liberal or Democratic, the middle classes were predominating; that of Orleans was the only one in which working men took part. The movement of the working people is going on, side by side, with these banquets, silently, underground, almost invisible, for every one who does not take the trouble of looking after it. But it is going on more lively than ever. The government know this very well. They have given their permission to all these middle-class banquets; but when the typographic working men of Paris, in September, asked for the permission to hold their annual banquet, which, up to the present time, they had held every year, and which was in no manner of a political character, it was refused to them. The government are so afraid of the working people, that they do not allow them the slightest liberty. They are afraid, because the people have entirely given up all attempts at insurrection and rioting. The government desire a riot, they provoke it by every means. The police throw out small bombshells filled with incendiary papers; which, by the explosion of the shell, are spread all over the streets. A trades' affair in the Rue S. Honoré was profited by
+
+[^1]: a See this volume, p. 219.—\Ed.
+
+
+
+
+
+**[p. 381]**
+
+
+
+[^1]: a Louis Blanc, Organisation du travail.—Ed.
+
+
+
+
+
+**[p. 382]**
+
+Written in early November 1847 Reprinted from the newspaper
+
+First published in The Northern Star No. 526, November 20, 1847 with an editorial note: "From Our Paris Correspondent"
+
+Frederick Engels
+
+[THE CHARTIST MOVEMENT]1
+
+The opening of the recently elected Parliament that counts among its members distinguished representatives of the People's Party186
+
+could not but produce extraordinary excitement in the ranks of democracy. Everywhere the local Chartist associations are being reorganised. The number of meetings increases and the most diverse ways and means of taking action are being proposed and discussed. The Executive of the National Charter Association187 has just assumed leadership of this movement, outlining in an address to the British democrats the plan of campaign which the party will follow during the present session.
+
+[^1]: "In a few days," we are told, "a meeting will be held which in the face of the people dares to call itself the assembly of the commons of England. In a few days this assembly, elected by only one class of society, will begin its iniquitous and odious work of strengthening the interests of this class, to the detriment of the people.
+
+[^2]: "The people must protest en masse at the very beginning against the exercise of the legislative functions usurped by this assembly. You, Chartists of the United Kingdom, you have the means to do so; it is your duty to use them to advantage. We therefore submit to you a new national petition with the demands of the People's Charter. Cover it with millions of your signatures. Make it possible for us to present it as the expression of the will of the nation, as the solemn protest of the people against every law passed without the consent of the people, as a Bill, finally, for the restoration of the sovereignty out of which the nation has been tricked for so many centuries.
+
+[^3]: "But the petition by itself will not suffice to meet the needs of the moment. True, we have won a seat in the legislative chamber by electing Mr. O'Connor. The democratic members will find him to be a vigilant and energetic leader. But O'Connor must be supported by pressure from without, and it is you who should create this pressure from without, this strong and imposing public opinion. Let the sections of our Association be reorganised everywhere; let all our former members rejoin our ranks; let meetings be called everywhere; let everywhere the Charter be made the issue of the day; let each locality contribute its share to increase our funds. Be active,
+
+
+
+
+
+**[p. 384]**
+
+The Fraternal Democrats,188 a society consisting of democrats from almost every nation in Europe, has also just joined, openly and unreservedly, in the agitation of the Chartists. They adopted a resolution of the following tenor:
+
+"Whereas the English people will be unable effectively to support democracy's struggle in other countries until it has won democratic government for itself; and
+
+"whereas our society, established to succour the militant democracy of every country, is duty-bound to come to the aid of the English democrats in their effort to obtain an electoral reform on the basis of the Charter;
+
+"therefore the Fraternal Democrats undertake to support with all their strength the agitation for the People's Charter."b
+
+This fraternal society, which counts among its members the most distinguished democrats, both English and foreigners residing in London, is daily gaining in importance. It has grown to such proportions that the London liberals have considered it advisable to set up in opposition to it a bourgeois International League189 headed by Free-Trade parliamentary celebrities. The sole object of this new association, whose leadership includes Dr. Bowring, Col. Thompson and other champions of Free Trade, is to carry on Free-Trade propaganda abroad under cover of philanthropic and liberal phrases. But it seems that the association will not make much headway. During the six months of its existence it has done almost nothing, whereas the Fraternal Democrats have openly come out against any act of oppression, no matter who may attempt to commit it. Hence the democrats, both English and foreign, in so far as the latter are represented in London, have attached themselves to the Fraternal Democrats, declaring at the same time that they will not allow themselves to be exploited for the benefit of England's Free-Trade manufacturers.
+
+[^1]: Written on November 21, 1847 Printed according to the newspaper
+
+[^2]: First published in La Réforme, Translated from the French November 22, 1847
+
+[^3]: a "The Executive Committee to the Chartists of the United Kingdom", November 18, 1847.—Ed.
+
+[^4]: b Resolution of the Fraternal Democrats, November 15, 1847.—\Ed.
+
+
+
+Frederick Engels
+
+SPLIT IN THE CAMP.— THE RÉFORME AND THE NATIONAL.— MARCH OF DEMOCRACY190
+
+Since my last3 the banquets of Lille, Avesnes, and Valenciennes, have been held. Avesnes was merely constitutional; Valenciennes half-and-half; Lille a decided triumph of democracy over middle- class intrigue. Here are, shortly, the facts concerning this most important meeting:—
+
+Besides the liberals and the party of the National the democrats of the Réforme had been invited, and Messrs Ledru-Rollin and Flocon, editor of the last-named paper, had accepted the invitation. M. Odilon Barrot, the virtuous middle-class thunderer, was also invited. Every thing was ready, the toasts were prepared, when all of a sudden M. Odilon Barrot declared he could not assist, nor speak to his toast, "Parliamentary Reform", unless that reform was qualified by adding:—"as a means to insure the purity and sincerity of the institutions conquered in July 1830." This addition excluded, of course, the republicans. Great consternation of the committee ensued. M. Barrot was inflexible. At last it was resolved to submit the decision to the whole meeting. But the meeting very plainly declared they would have no alterations in the programme; they would not violate the understanding upon which the democrats had come to Lille. M. Odilon Barrot, along with his tail of liberal deputies and editors, scornfully retired; Messrs Flocon and Ledru-Rollin were sent for, the banquet took place in spite of the liberals, and M. Ledru's speech was rapturously applauded.
+
+Thus the treacherous plot of the middle-class reformers resulted in a glorious triumph of democracy. M. Odilon Barrot had to decamp shamefully and will never dare to show his face again in the democratic city of Lille. His only excuse was, he had understood the
+
+[^1]: a See this volume, pp. 375-82.—Ed.
+
+
+
+
+
+**[p. 386]**
+
+A few days after, M. Barrot got some consolation in the Avesnes banquet, a mere family meeting of some middle-class liberals. Here he had the pleasure of toasting the King.3 But at Valenciennes he was again obliged to pocket his favourite sentiment, dropped so sadly at Lille; no King's health was to be drunk, although the formidable getters-up of revolutions, at the shortest notice, were not at hand. The discomfited thunderer will have to devour his virtuous indignation until another hole-and-corner banquet will allow him to denounce "anarchism", "physical forcism", and "communism", to the astounded grocers and tallow-chandlers of some petty provincial town.
+
+The Lille banquet produced extraordinary discussions in the press. The Conservative papers shouted triumph at the division in the ranks of the reformers. M. Thiers' old and drowsy Constitution- nel, and the Siècle, M. Barrot's "own", all of a sudden were seized with the most dreadful convulsions.
+
+"No," shouted the indignant Siècle to its shopkeeping public, "no, we are none of these anarchists, we have nothing in common with these restorers of the reign of terror, with these followers of Marat and Robespierre: we would prefer to their reign of blood the present system, were it even a hundred times worse than it is!"
+
+And quite rightly; for such peaceful grocers and tallow-chandlers the white nightcap is a hundred times more fit than the red cap of the Jacobin. At the same time, however, that these papers heaped their vilest and most virulent abuse upon the Réforme, they treated the National with the utmost esteem. The National, indeed, has behaved, on this occasion, in a more than doubtful manner. Already at the banquet of Cosne, this paper blamed the conduct of several democrats who would not assist on account of the King's health being proposed. Now, again, it spoke very coolly of the Lille banquet, and deplored the accident which for a moment troubled the demonstra- tion, while several provincial allies of the National openly attacked the conduct of Messrs Ledru and Flocon. The Réforme now asked of that paper a more explicit declaration. The National declared his ar- ticle to be quite explicit enough. Then, asked the Réforme, what was the deplorable accident at Lille? What is it you deplore? Is it M. Bar- rot's or M. Ledru-Rollin's conduct you deplore? Is it M. Barrot's impudence or his bad luck you deplore? Is it M. Ledru's speech in favour of Universal Suffrage? Is it the discomfiture of monarchism, the triumph of democracy, you deplore? Do you avow, or not, what your provincial allies say on this occasion? Do you accept the praise
+
+[^1]: a Louis Philippe.—Ed.
+
+
+
+
+
+**[p. 387]**
+
+Réforme.
+
+The conduct of the National, indeed, deserves the strongest blame. This paper is getting more and more into the hands of the middle classes. It has of late always deserted the cause of democracy at the decisive moment; it has always preached union with the middle classes, and has on more than one occasion served none but Thiers and Odilon Barrot. If the National does not very soon change its conduct, it will cease to be counted as a democratic paper. And in this Lille affair, the National, out of mere personal antipathy against men more radical than itself, has not hesitated to sacrifice the very prin- ciples upon which [it] itself had contracted an alliance with the liberals in order to get up banquets. After what has passed, the National will never again be able to oppose seriously toasting the King at future banquets. The "past" of the National is not so very bright as to allow of its answering by silence only the questions of its contemporary. Think only of its defence of the Parisian Bastilles!191
+
+P.S.—The Reform Banquet of Dijon has come off this week. Thirteen hundred sat down at dinner. The whole affair was thoroughly democratic. No toast to the King, of course. All the speakers belonged to the party of the Réforme. MM. Louis Blanc, Flocon, E. Arago, and Ledru-Rollin, were the chief speakers. M. Flo- con, editor of the Réforme, spoke to the toast of the foreign dem- ocrats, and mentioned the English Chartists in a very honourable manner. Next week I shall give you his speech at full length, as well as a full report of the whole proceedings of this most important meeting.6
+
+[^1]: Written at the end of November 1847 Reprinted from the newspaper
+
+[^2]: First published in The Northern Star No. 528, December 4, 1847
+
+[^3]: a La Réforme, November 16, 1847.—Ed. b See this volume, pp. 397-401 and 409-11.—Ed.
+
+[^4]: ! 4— 1H2B
+
+
+
+Karl Marx and Frederick Engels
+
+[ON POLAND]
+
+SPEECHES AT THE INTERNATIONAL MEETING HELD IN LONDON ON NOVEMBER 29, 1847 TO MARK THE 17TH ANNIVERSARY OF THE POLISH UPRISING OF 1830
+
+MARX'S SPEECH
+
+The unification and brotherhood of nations is a phrase on the lips of all parties today, especially those of bourgeois free traders. A certain kind of brotherhood does of course exist among the bourgeois classes of all nations. It is the brotherhood of the oppressors against the oppressed, of the exploiters against the exploited. Just as, despite the competition and conflicts existing between the members of the bourgeoisie, the bourgeois class of one country is united by brotherly ties against the proletariat of that country, so the bourgeois of all countries, despite their mutual conflicts and competition on the world market, are united by brotherly ties against the proletariat of all countries. For the peoples to be able truly to unite, they must have common interests. And in order that their interests may become common, the existing property relations must be done away with, for these property relations involve the exploitation of some nations by others: the abolition of existing property relations is the concern only of the working class. It alone has also the means for doing this. The victory of the proletariat over the bourgeoisie is, at the same time, victory over the national and industrial conflicts which today range the peoples of the various countries against one another in hostility and enmity. And so the victory of the proletariat over the bourgeoisie is at the same time the signal of liberation for all oppressed nations.
+
+The old Poland is lost in any case and we would be the last to wish for its restoration. But it is not only the old Poland that is lost. The old Germany, the old France, the old England, the whole of the old society is lost. But the loss of the old society is no loss for those who have nothing to lose in the old society, and this is the case of the great majority in all countries at the present time. They have rather
+
+
+
+**[p. 389]**
+
+Of all countries, England is the one where the contradiction between the proletariat and the bourgeoisie is most highly devel- oped. The victory of the English proletarians over the English bourgeoisie is, therefore, decisive for the victory of all the oppressed over their oppressors. Hence Poland must be liberated not in Poland but in England. So you Chartists must not simply express pious wishes for the liberation of nations. Defeat your own internal enemies and you will then be able to pride yourselves on having defeated the entire old society.
+
+ENGELS' SPEECH
+
+Allow me, dear friends, to speak here today as an exception in my capacity as a German. For we German democrats have a special interest in the liberation of Poland. It was German princes who derived great advantages from the division of Poland and it is German soldiers who are still holding down Galicia and Posen. The responsibility for removing this disgrace from our nation rests on us Germans, on us German democrats above all. A nation cannot become free and at the same time continue to oppress other nations. The liberation of Germany cannot therefore take piace without the liberation of Poland from German oppression. And because of this, Poland and Germany have a common interest, and because of this, Polish and German democrats can work together for the liberation of both nations.—I also believe that the first decisive blow which will lead to the victory of democracy, to the liberation of all European nations, will be struck by the English Chartists. I have lived in England for a number of years now and openly aligned myself with the Chartist movement during this period. The English Chartists will be the first to rise because it is precisely in England that the struggle between the bourgeoisie and the proletariat is the most intense. And why is it the most intense? Because in England, as a result of modern industry, of the introduction of machinery, all oppressed classes are being merged together into a single great class with common interests, the class of the proletariat; because as a consequence, on the opposite side all classes of oppressors have likewise been united into a single class, the bourgeoisie. The struggle has thus been simplified and so it will be possible to decide it by one single heavy blow. Isn't this so? The aristocracy no longer has any power in
+
+[^1]: 14*
+
+
+
+
+
+**[p. 390]**
+
+
+
+[^1]: First published in the Deutsche-Brüsseler- Printed according to the newspaper Zeitung No. 98, December 9, 1847
+
+[^2]: Published in English for the first time
+
+
+
+Frederick Engels
+
+[THE ANNIVERSARY OF THE POLISH REVOLUTION
+
+O F 1830] 193
+
+Dear Citizen!
+
+I arrived yesterday evening just in time to attend the public meeting called to celebrate the anniversary of the Polish revolution of 1830.
+
+I have been present at many similar celebrations but I have never seen such general enthusiasm, such perfect and cordial agreement between men of all nations.
+
+The chairmanship was given to Mr. Arnott, an English workman. The first speech was by Mr. Ernest Jones, editor of The Northern Star, who, while speaking against the behaviour of the Polish aristocracy during the insurrection of 1830, gave much praise to the efforts made by Poland to escape from the yoke of her oppressors. His brilliant and powerful speech was loudly applauded.
+
+After him, M. Michelot gave a speech in French. Mr. Schapper from Germany followed him. He told the meeting that the Brussels Democratic Association had delegated to London Mr. Marx, German democrat and one of its vice-presidents, to establish relations of correspondence between the Brussels society and the London society of Fraternal Democrats,194 and also to prepare for a democratic congress of the different European nations.
+
+Mr. Marx was received with prolonged applause, when he came forward to address the assembly.
+
+In a speech in German, translated by Mr. Schapper, Mr. Marx declared that England would give the signal for the deliverance of Poland. Poland, he said, would be free only when the civilised nations of Western Europe had won democracy. Now, of all the democracies of Europe, the strongest and most numerous was that of England, organised throughout the whole country. It was in England that the antagonism between the proletariat and the bourgeoisie was most developed, that the decisive struggle between these two classes
+
+
+
+**[p. 392]**
+
+Mr. Harney, chief editor of The Northern Star, followed by thanking the democrats of Brussels for having immediately approached the democrats of London, taking no account of the advances made to them by the bourgeoisie of the London Inter- national League, 195 a society founded by the free traders in order to exploit foreign democrats in the interests of free trade and to compete with the society of Fraternal Democrats which was almost exclusively composed of workers.
+
+Mr. Engels, from Paris, a German democrat, then declared that Germany had a special interest in the freedom of Poland because the German governments exercised their despotism over a part of Poland. German democracy ought to have at heart the ending of this tyranny which shamed Germany.
+
+Mr. Tedesco, from Liège, in a vigorous speech, thanked the Polish fighters of 1830 for having loudly proclaimed the principle of insurrection. His speech, translated by Mr. Schapper, was warmly applauded.
+
+After some remarks by Mr. Charles Keen, Colonel Oborski replied for Poland.
+
+Mr. Wilson, an English workman who by his vigorous opposition recently almost brought about the break-up of a meeting of the International League, was the last to address the assembly.
+
+On the proposal of Messrs Harney and Engels, three cheers were given for the three great European democratic newspapers: the
+
+Réforme, The Northern Star, and the Deutsche-Brüsseler-Zeitung; on the proposal of Mr. Schapper, three groans were given for the three anti-democratic papers: the Journal des Débats, The Times and the Augsburg Zeitung.3
+
+The meeting ended with the singing of the Marseillaise, in which everybody joined, standing and with hats off.
+
+[^1]: Written on November 30, 1847 Printed according to the newspaper
+
+[^2]: First published in La Réforme, Translated from the French December 5, 1847 . Published in English lor the nrst time
+
+[^3]: a Augsburg Allgemeine Zeitung.— Ed.
+
+
+
+Frederick Engels
+
+REFORM BANQUET AT LILLE.— SPEECH OF M. LEDRU-ROLLIN
+
+In response to the toast:—"To the labourers,—to their imprescrip- tible rights,—to their sacred interests, hitherto unknown."2
+
+"Citizens,—Yes, to the labourers! to their imprescriptible rights,—to their sacred interests, hitherto unknown. To the unalienable rights of man, proclaimed in principle, by two glorious revolutions ; but artfully eluded in their application, and successfully re-wrested from the people, and which are now only a glorious, yet bitter remembrance! Political rights to the people, it is said, is madness. How entrust them with them, in their state of incapacity, of ignorance, of moral depravity? To give the people political freedom is a blind and dangerous power; it is revolution—blood —anarchy—chaos! Gentlemen, you know the people; you in this industrial city, at once so wealthy and so poor, believe you this picture to be true! Oh! doubtless, if we cast our eyes over the pages of certain romance w riters, to whom the grand side of things has appeared trivial, vulgar—who have sought for effect in the humorous, the fantastic, the exceptional, the people—-is it thus! Taking the normal life of our towns, from one point, where criminals escaped from justice, find a refuge, the way of life, the dregs of society, they have said, 'Such are the people!' Doubtless such would still be the people, did we put faith in those mercenary writers, who, to terrify the wealthy, cry out against the invasion of the barbarians! Barbarians! they have cast that epithet upon the people, as the most outrageous of insults. Ah! if barbarians always signify men full of simplicity, of strength, of social and youthful energy, those barbarians can alone save our worn-out official world, fast hastening to decay in powerlessness and corruption. No; a thousand times no, it is not the people. It is not upon the theatre of crime and debauchery, that it must be sought for. To be acquainted with it, we must transport ourselves into those manufacturing towns, where the merchant, struggling against unrestricted competition which crushes him, between the tyrannical pressure
+
+[^1]: a Ledru-Rollin's speech at the banquet at Lille on November 7, 1847 was translated by Engels according to the report in La Réforme, November 10, 1847.—Ed.
+
+[^2]: The reference is evidently to the revolutions of 1789-94 and 1830.— Ed.
+
+
+
+
+
+**[p. 394]**
+
+
+
+
+
+
+
+**[p. 396]**
+
+Compiled and translated into English Reprinted from the newspaper in the first half of December 1847
+
+First published in The Northern Star No. 530, December 18, 1847 with editorial note: "From Our Paris Correspondent"
+
+Frederick Engels
+
+REFORM MOVEMENT IN FRANCE.— BANQUET OF DIJON197
+
+This meeting of the Democracy of the Department of the Côte d'Or, was incontestably the most splendid one of the whole series of Reform Banquets. 1,300 sat down to dinner. There were present deputations from almost all the neighbouring towns, and even a Swiss deputation, composed of citizens from Neufchâtel, Geneva and Lucerne. The character of the meeting is very clearly marked out by the names of the principal speakers—MM. Louis Blanc, Flocon, Ledru-Rollin, Etienne Arago—all of them belonging to the Ultra-Democratic party, represented by the Réforme. We need not say that Louis Philippe was not toasted at this dinner.
+
+M. Signard, of Gray, a neighbouring town, spoke to the toast—"The Democrats of Lille who, at the late banquet of their town sternly refused to compromise with the sham-Liberals; and by their energy, union, and intelligence, saved the honour of Democ- racy."3
+
+M. Etienne Arago, a well-known literary character of Paris, and who but recently brought upon the stage an exceedingly successful comedy, entitled The Aristocracies, then spoke to the senti- ment—"The development of literature, science, and the fine arts"; exposing, in a brilliant speech, the rapid advance literature and science were sure to make under a free and democratic system.
+
+At the toast—"The future progress of France", the chairman called upon M. Louis Blanc, who was very enthusiastically received by the meeting. He delivered a splendid speech, containing many
+
+[^1]: a Here and below speeches are quoted according to the reports on the banquet of Dijon printed in La Réforme, November 24 and 25, 1847.—Ed.
+
+
+
+
+
+**[p. 398]**
+
+"We want union in Democracy. And no one may deceive himself, we do not think and labour for France only, but for the whole world, because the future of France contains in it the future of mankind. In fact, we are placed in this admirable position, that, without ever ceasing to be national, we are necessarily cosmopolite, and are even more cosmopolite than national. Whoever would call himself a Democrat, and be at the same time an Englishman, would give the lie to the history of his own country, for the part which England has always played, has been a struggle of egotism against fraternity. In the same manner, he who is a Frenchman, and would not be a cosmopolite, would give the lie to his country's past; for France never could make predominant any idea, except it was for the benefit of the whole world. Gentlemen, at the time of the Crusades, when Europe went to conquer the grave of Christ, it was France who took the movement under her wing. Afterwards, when the priests would impose upon us the yoke of Papist supremacy, the Gallican bishops defended the rights of conscience. And in the last days of the ancient monarchy, who supported young, republican America? France, always France! And what was true of monarchical France, how should it not be true of Republican France? Where, in the book of history, do we find anything resembling that admirable, self-sacrificing disinterestedness of the Republic, when, exhausted by the blood she had shed on our frontiers and on the scaffold, she found yet more blood to shed for her Batavian brethren? When beaten or victorious, she enlightens her very enemies by the sparks of her genius! Let Europe send us sixteen armies, and we shall send her liberty in return."
+
+Now, without intending to deprecate in any manner the heroic efforts of the French Revolution, and the immense gratitude the world owes to the great men of the Republic, we think that the relative position of France and England, with regard to cosmopolit- ism, is not at all justly delineated in the above sketch. We entirely deny the cosmopolitic200 character ascribed to France before the revolution, and the times of Louis XI and Richelieu may serve as proofs. But what is it M. Blanc ascribes to France? That she never could make predominant any idea, except it was to benefit the whole world. Well, we should think M. Louis Blanc could not show us any country in the world which could do otherwise than France is said to have done. Take England, for instance, which M. Blanc places in direct opposition to France. England invented the steam-engine; England erected the railway; two things which, we believe, are worth a good many ideas. Well, did England invent them for herself,
+
+
+
+**[p. 399]**
+
+If an Englishman "would call himself a democrat he would give the lie to the history of his own country", says M. Blanc. Well, we consider it as the veriest proof of sterling democracy, that it must give the lie to its country, that it must repudiate all responsibility for a past filled up with misery, tyranny, class oppression, and superstition. Let the French not make an exception to the other democrats; let them not take the responsibility for the doings of their Kings and Aristocrats of former times. Therefore, what M. Blanc thinks a disadvantage to English democrats, we think to be a great advantage, that they must repudiate the past, and only look to the future.
+
+A Frenchman is necessarily a cosmopolite. Yes, in a world ruled over by French influence, French manners, fashions, ideas, politics. In a world in which every nation has adopted the characteristics of French nationality. ,But that is exactly what the democrats of other nations will not like. Quite ready to give up the harshness of their own nationality, they expect the same from the French. They will not be satisfied in the assertion, on the part of the French, that they are cosmopolites; assertion which amounts to the demand urged upon all others to become Frenchmen.
+
+Compare Germany. Germany is the fatherland of an immense number of inventions—of the printing press, for instance. Germany has produced—and this is recognised upon all hands—a far greater number of generous and cosmopolitic ideas than France and England put together. And Germany, in practice, has always been humiliated, always been deceived in all her hopes. She can tell best
+
+
+
+**[p. 400]**
+
+So much upon this point. We wish to establish a discussion upon it, as this will only lead to a mutual understanding; to a firm union of French and English Democracy.
+
+After M. Blanc, M. Flocon spoke to the toast: "The Democrats of Europe."
+
+M. Flocon said:
+
+"Look around you, listen to the voices which arise from foreign countries; complaints or menace; sighs or hopes; what tell they? They invoke the principle of the French Revolution; they proclaim in the face of all despotisms, its immortal motto: Liberté, Egalité, Fraternité. Yes, those very nations, which in the delusions of slavery and ignorance, made an impious war on the revolution; they now come by thousands to take up its standard, and promise to be most ardent defenders of the glorious principles they did not understand in times past. This striking fact is before the eyes of all the world, and I know nothing more terrible to our enemies, nothing which could more effectually recall to our minds our duty. In England, at the side of the old factions, in the face of the richest and most tyrannical aristocracy of the world, the people are organising. An immense association, conducted by experienced leaders, enrols daily thousands of working men, who will undertake to avenge the wrongs of humanity. And the rights of man are not a new watchword in England. At the time of the old civil wars, in the midst of religious fanaticism and political passions, several parties clearly saw the great social truth:
+
+The speaker then reviewed briefly the Polish, Italian, and Swiss movements, and closed his speech as follows:
+
+The next toast: "The Sovereignty of the people", was spoken to by M. Ledru-Rollin, deputy.
+
+[^1]: When Adam delved and Eve span Where was then the gentleman?
+
+[^2]: That was proclaimed by the Covenanters almost three hundred years ago. The same question is again put; and the cotton lords disdain as much to listen to the complaint of the children of toil, as did the landlords in by-gone times. Therefore, asking what is right will not suffice, the people must be strong enough to take it, and the English people know this. In Belgium, at this very moment, a society is organising, uniting Democrats of all nations, a Democratic Congress206 is being prepared. In Germany, while the princes play the game of granting gracious constitutions, the people prepare themselves for working out their own salvation."
+
+[^3]: "Yes, the seed of the revolution is germinating, the soil is fertile, the splendid flower of hope adorns the fields of the future. But the winter has be'en long, and we ought soon to take to the sickle, to make our harvest. Let us then take up again the work of the revolution, where our fathers left it. Let us make haste, else we shall have to take it up where they commenced." (Loud applause.)
+
+
+
+This demonstration proves that the provincial Democrats are more and more leaving the party of the National, in order to rally around the party of the Réforme.
+
+Written in the first half of December 1847 Reprinted from the newspaper
+
+First published in The Northern Star No. 530, December 18, 1847 with an editorial note: "From Our Paris Correspondent"
+
+Karl Marx
+
+REMARKS ON THE ARTICLE BY M. ADOLPHE BARTELS207
+
+M. Adolphe Bartels claims that public life is finished for him. Indeed, he has withdrawn into private life and does not mean to leave it; he limits himself, each time some public event occurs, to hurling protests and proclaiming loudly that he believes he is his own master, that the movement has been made without him, M. Bar- tels, and in spite of him, M. Bartels, and that he has the right to refuse it his supreme sanction. It will be agreed that this is just as much a way of participating in public life as any other, and that by all these declarations, proclamations and protestations the public man hides behind the humble appearance of the private individual. This is the way in which the unappreciated and misunderstood genius reveals himself.
+
+M. A. Bartels knows very well that the democrats of the different nations, in forming a body under the name of a democratic association, have had no other object but to exchange ideas and come to an understanding about the principles which will serve to bring about the union and fraternity of peoples. It goes without saying that, in a society which proposes such a goal for itself, it is the duty of all foreigners to state their opinions frankly, and it is truly ridiculous to call them schoolmasters every time they take the floor to fulfil this duty in the association to which they belong. If M. A. Bartels accuses foreigners of wanting to teach lessons it is because they refuse to take lessons from him.
+
+M. A. Bartels will recall, no doubt, that in the provisional committee in which he took part he even proposed to make the Society of German Workers208 the nucleus of the new society to be founded. I had to reject this proposal, in the name of the German
+
+
+
+**[p. 403]**
+
+M. Bartels is free to decry our doctrines as "filthy and barbarous". He does not criticise, he does not prove, he condemns; and he gives proof of his orthodoxy by condemning in advance what he does not understand.
+
+We are more tolerant than M. A. Bartels. We overlook his "blue devils",3 which are quite innocent devils.
+
+M. A. Bartels being more theocratic than democratic, it is quite natural that he finds an accomplice in the Journal de Bruxelles. This paper accuses us of wanting to "improve the human race".209 Let it calm down! Fortunately, we Germans are not unaware that since 1640 the Congregatio de propaganda fide?10 has had the monopoly in improving the human race. We are too modest and too few to want to compete with the reverend fathers in that humanitarian industry. Let them take the trouble to compare the report in the Deutsche-Brüsseler- Zeitungb with that of The Northern Star, and they will be able to assure themselves that it is only by a mistake that The Northern Star makes me say "Chartists;—you will be hailed as the saviours of the human race." 2 n
+
+The Journal de Bruxelles is moved by a more charitable spirit when it reminds us of the example of Anacharsis Cloots mounting the scaffold for having wanted to be more patriotic than the patriots of 1793 and 1794. In this respect the reverend fathers are free from all reproach. They have never been more patriotic than the patriots. On the contrary, they have always and everywhere been accused of wanting to be more reactionary than the reactionaries and, what is still worse, of wanting to be more governmental than the national government. When we think of the said experiences which they have just undergone in Switzerland, we are all ready to recognise that the admonitions they address to us so that we should avoid the opposite extreme and similar dangers, are of a generosity worthy of the early Christians. We thank them for this
+
+[^1]: Written about December 17, 1847 Printed according to the newspaper
+
+[^2]: First published in French in the Translated from the French Deutsche-Brüsseler-Zeitung No. 101, December 19 1847 Published in English for the first time Signed: Karl Marx
+
+[^3]: a Blue devils—delirium tremens.—Ed. b See this volume, pp. 388-90.—Ed.
+
+
+
+Karl Marx
+
+LAMARTINE AND COMMUNISM
+
+Brussels, December 24. Once again the French papers carry a letter from M. de Lamartine. This time it is communism on which this poetic socialist at last gives his candid opinion having been challenged to do so by Cabet.212 At the same time Lamartine promises to set forth his views in detail on this "important subject" in the near future. For the present he contents himself with a few brief, oracular utterances:
+
+M. Lamartine is thus an opponent of communism, and what is more not merely of a communist system; in fact, he enters the lists on behalf of the "perpetuity of private property". For his "feeling" tells him three things: 1. that property civilises people, 2. that it is the organisation of the life principle in the world, and 3. that its opposite, communism, is too beautiful a dream for this bad world.
+
+No doubt M. Lamartine "feels" a better world, in which the "life principle" is differently "organised". In this bad world, however, it just so happens that "appropriation" is a precondition of life.
+
+[^1]: "My opinion of communism," he says, "may be summarised in a feeling(\), namely the following: were God to entrust me with a society of savages to civilise them and make into well-mannered people, the first institution I should give them would be that of property."
+
+[^2]: "The fact," continues M. Lamartine, "that man appropriates the elements to himself is a law of nature and a precondition of life. Man appropriates the air by breathing, space by striding through it, the land by cultivating it, and even time, by perpetuating himself through his children; property is the organisation of the life principle in the universe; communism would be the death of labour and of the whole of humanity."
+
+[^3]: "Your dream," M. Lamartine finally consoles M. Cabet, "is too beautiful for this earth."
+
+
+
+
+
+**[p. 405]**
+
+M. Lamartine sees no distinction between the epoch of transition from savagery to civilisation and our own epoch, any more than between the "appropriation" of air and the "appropriation" of the products of society; for both of these are "appropriations", forsooth, just as both epochs are "epochs of transition"!
+
+In his "detailed" polemic against communism M. Lamartine will no doubt find an opportunity to deduce "logically" from these general platitudes arising from his "feeling" a whole series of other, still more general platitudes.—Perhaps then we shall likewise find the opportunity to shed light upon his platitudes "in greater detail". —For the present we shall content ourselves with passing on to our readers the "feelings" which a monarchist-Catholic newspaper opposes to those of M. Lamartine. The Union monarchique namely, in yesterday's issue, speaks out against Lamartine's feelings as follows:
+
+The Union monarchique comforts the proletarians with God. The Bien Public, M. Lamartine's paper, comforts them with the "life principle".
+
+[^1]: "Here we see how these enlighteners of humanity leave it leaderless. The wretches! They have robbed the poor man of the God who comforted him; they have taken Heaven from him; they have left man alone with his want and his wretchedness. And then they come and say: 'You wish to possess the earth—it is not yours. You wish to enjoy the good things of life—they belong to others. You wish to share in wealth—that is out of the question. Stay poor, stay naked, stay abandoned—die!"'
+
+[^2]: Written on December 24, 1847 Printed according to the newspaper
+
+[^3]: First published in the Deutsche-Brüsseler- Published in English for the first Zeitung No. 103, December 26, 1847 time
+
+
+
+Frederick Engels
+
+THE RÉFORME AND THE NATIONAL™
+
+Following the Lille banquet a controversy developed between the Réforme and the National, which has now led to a decisive split between the two papers.
+
+The facts are as follows: From the inception of the reform banquets the National has attached itself even more openly than before to the dynastic opposition.214 At the Lille banquet M. Degeorge of the National withdrew together with Odilon Barrot. The National expressed its opinion of the Lille banquet in terms that were more than equivocal. Challenged by the Réforme to explain itself in more detail, it refused, with the excuse that it did not wish to start polemics with this newspaper. This was no reason at all for failing to comment on facts. To be brief, the Réforme did not let the matter drop and eventually attacked M. Garnier-Pagès of the National for a speech in which he denied the existence of classes and deleted the bourgeoisie and the proletariat in the general phrase of citoyens français. Now, at last, the National declared that it would defend its friends against a newspaper which cast suspicion on all worthy patriots, such as Carnot, Garnier-Pagès, etc.
+
+The National, very soon defeated on every point, could finally hit upon no other expedient than to accuse the Réforme of communism.
+
+[^1]: "You speak of indefinite strivings, of theories and systems which arise among the people, you censure us for openly attacking these—to put it bluntly—communistic strivings. Very well then, declare yourselves directly, either for or against communism. We declare for all to hear that we have nothing in common with the Communists, with these people who deny property, family and country. When the day of battle comes we shall fight not with, but against these abominable strivings. We have no peace, no tolerance for these odious fantasies, for this absurd and barbarous (sauvage) system
+
+
+
+
+
+**[p. 407]**
+
+To such grounds against communism the National adds its plans for improving the condition of the workers—postal reform, financial reform, luxury taxes, state subsidies, the abolition of the octrois,215
+
+and free competition.
+
+Correcting the ridiculous ideas of communism held by the National is not worth the effort. It is ludicrous, however, that the National is still parading the terrifying fantasy of a constantly threatening invasion by the "Great Powers", and that it still believes that beyond the Rhine and across the Channel there are millions of bayonets pointed against France, and hundreds of thousands of cannons aimed at Paris. The Réforme has quite correctly replied to this that in the event of an invasion by the Kings it will not be the fortifications which will serve as a rampart, but the peoples themselves.
+
+With reference to the article from the National quoted above the Réforme declares:
+
+We thank the Réforme for the energetic way in which it has stood for true democracy as against the National. We thank the Réforme for defending communism against it. We willingly acknowledge that the
+
+Réforme has always defended the Communists whenever they have been persecuted by the government. Alone of all the Paris newspapers, the Réforme defended the materialistic Communists when they were dragged to court by M. Delangle216; on this same occasion M. Cabet almost conceded that the government was right as against the materialists. We are glad that the Réforme, even in the more or less undeveloped forms in which communism has so far appeared, has discovered a kernel of truth to which it stands closer
+
+[^1]: "We are not communistic, and our reason is that communism disregards the laws of production, that it is not concerned with ensuring that enough is produced for the whole of society. But the economic proposals of the Communists stand closer to us than those of the National, which accepts the existing bourgeois economics without further ado. We shall defend the Communists against the police and the National also in the future, because we acknowledge at least their right of discussion, and because the doctrines that originate from the workers themselves always deserve considera- tion."
+
+[^2]: a Quoted from the leading article in La Réforme, December 21, 1847; the reply of this newspaper given below is from the same source.— Ed.
+
+
+
+
+
+**[p. 408]**
+
+In its repudiation of the National, furthermore, the Réforme h only pronouncing the same judgment that the democratic movement in Germany, England and Belgium, indeed everywhere except in France, has long since passed on it.
+
+Written at the end of December 1847 Printed according to the newspaper
+
+First published in the Deutsche-Brüsseler- Published in English for the first Zeitung No. 104, December 30, 1847 time
+
+Frederick Engels
+
+LOUIS BLANCS SPEECH AT THE DIJON BANQUET217
+
+The Northern Star in its report of the Dijon banquet criticises the speech of Louis Blanc in remarks with which we completely concur. The union of the democrats of different nations does not exclude mutual criticism. It is impossible without such criticism. Without criticism there is no understanding and consequently no union. We reproduce the remarks of The Northern Star in order that we too, for our part, may protest against preconceptions and illusions which are in direct and hostile opposition to the trends of modern democracy and which should be abandoned if the union of democrats of different nations is to remain more than an empty phrase.
+
+At the Dijon banquet, M. Blanc said:
+
+[^1]: "We want union in Democracy. And no one may deceive himself about this, we do not think and labour for France only, but for the whole world, because the future of France contains in it the future of mankind. In fact, we are placed in this admirable position, that, without ever ceasing to be national, we are necessarily cosmopolite, and are even more-cosmopolite than national. Whoever would call himself a Democrat, and be at the same time an Englishman, would give the lie to the history of his own country, for the part which England has always played in history has been the struggle for ego- tism against 'fraternité'. In the same manner, he who is a Frenchman, and would not be a cosmopolite, would give the lie to his country's past; for France never could make predominant any idea, except it was for the benefit of the whole world. Gentlemen, at the time of the Crusades, when Europe went to conquer the grave of Christ, it was France who took the movement under her wing. Afterwards, when the priests would impose upon us the yoke of Papist supremacy, the Gallican bishops defended the rights of conscience. And in the last days of the ancient monarchy, who supported young, republican America? France, always France! And what was true of monarchical France, how should it not be true of republican France? Where, in the book of history, do we find anything resembling that admirable, self-sacrificing disinterestedness of the French Republic, when, exhausted by the blood she had shed on our frontiers and on the scaffold, she found yet more blood to shed for her
+
+
+
+
+
+**[p. 410]**
+
+The Northern Star says with regard to this: "Now, without intending to deprecate in any manner the heroic efforts of the French Revolution, and the immense gratitude the world owes to the great men of the Republic, we think that the relative position of France and England, with regard to cosmopolit- ism, is not at all justly delineated in the above sketch. We entirely deny the cosmopolitic character ascribed to France before the revolution, and the times of Louis XI and Richelieu may serve as proofs. But what is it M. Blanc ascribes to France? That she never could make predominant any idea, except it was to benefit the whole world. Well, we should think M. Louis Blanc could not show us any country in the world which could do otherwise than France is said to have done. Take England, for instance, which M. Blanc places in direct opposition to France. England invented the steam-engine; England erected the railway; two things which, we believe, are worth a good many ideas. Well, did England invent them for herself, or for the world? The French glory in spreading civilisation everywhere, principally in Algiers. Well, who has spread civilisation in America, Asia, Africa, and Australia, but England? Who founded the very Republic, in the freeing of which France took some part? Eng- land—always England. If France assisted in freeing the American Republic from English tyranny, England freed the Dutch Republic, just two hundred years sooner, from Spanish oppression. If France gave, at the end of the last century, a glorious example to the whole world, we cannot silently pass by the fact that England, a hundred and fifty years sooner, gave that example, and found at that time, not even France prepared to follow. And, as far as ideas are concerned, those very ideas, which the French philosophers of the 18th century—which Voltaire, Rousseau, Diderot, D'Alembert, and others, did so much to popularise—where had these ideas first been originated, but in England? Let us never forget Milton, the first defender of regicide, Algernon Sydney, Bolingbroke, and Shaftes- bury, over their French more brilliant followers.
+
+'"If an Englishman would call himself a democrat he would give the lie to the history of his own country,' says M. Blanc.
+
+"Well, we consider it as the veriest proof of sterling democracy, that it must give the lie to its country, that it must repudiate all responsibility for a past filled up with misery, tyranny, class oppression, and superstition. Let the French not make an exception
+
+
+
+**[p. 411]**
+
+" 'A Frenchman is necessarily a cosmopolite,' says M. Blanc. Yes, in a world ruled over only by French influence, French manners, fashions, ideas, politics. In a world in which every nation has adopted the characteristics of French nationality. But that is exactly what the democrats of other nations will not accept. Quite ready to give up the harshness of their own nationality, they expect the same from the French. They will not be satisfied in the assertion, on the part of the French, that they are cosmopolites by the mere fact that they are French, an assertion which amounts to the demand urged upon all others to become Frenchmen.
+
+"Compare Germany. Germany is the fatherland of an immense number of inventions—of the printing press, for instance. Germany has produced—and this is recognised upon all hands—a far greater number of generous and cosmopolitic ideas than France and England put together. And Germany, in practice, has always been humiliated, always been deceived in all her hopes. She can tell best what French cosmopolitism has been. Just as France had to complain of the treachery of English policy, Germany experienced an equally treacherous policy on the part of France, from Louis XI down to Louis Philippe. If we were to apply the measure of M. Louis Blanc, the Germans would be the true cosmopolites. However the German democrats are far from having any such pretensions.,,
+
+[^1]: Written in December 1847 Printed according to the newspaper
+
+[^2]: First published in the Deutsche-Brüsseler- Published in English for the first Zeitung No. 104, December 30, 1847 time
+
+
+
+Frederick Engels
+
+CHARTIST AGITATION
+
+Since the opening of Parliament Chartist agitation has developed enormously. Petitions are being prepared, meetings held and Chartist agents are travelling everywhere. Besides the great National Petition for the People's Charter which this time, it is hoped, will collect four million signatures, two other petitions for the Chartist Land Company have just been submitted to the people; the first, edited by O'Connor and published in The Northern Star this week, can be summarised as follows:
+
+[^1]: "To the Honourable, the Commons of Great Britain and Ireland in Parliament assembled, Gentlemen:
+
+[^2]: "We, the undersigned, members of the Chartist Land Company and all workmen, considering that excessive speculation in the products of our work, the unlimited competition -md the continual increase in the mechanical means of production have everywhere closed outlets for our work;
+
+[^3]: "that as the mechanical means of production increase, manual labour decreases and workers are sacked;
+
+[^4]: "that your recent decision about the temporary suspension of work on the railways will throw thousands of workers out of work, which will flood the labour market and will make the employers again reduce the wages already reduced so many times;
+
+[^5]: "that, nevertheless, we shall ask no more than to live from the products of our work;
+
+[^6]: "that we reject all poor rates as an insult, serving only to give the capitalists a reserve to throw at any moment on the labour market in order to reduce wages by means of competition between the workers themselves;
+
+[^7]: "that while manufacturing industry no longer knows how to employ the masses of proletarians which it has produced, agricultural industry still offers a vast field for our work, for it is sure that by the use of labour the yield of the land of our country can be at least quadrupled;
+
+[^8]: "that therefore we have formed a company for purchasing land whereby each may be enabled to earn a livelihood for himself and family without being at the expense of
+
+
+
+
+
+**[p. 413]**
+
+"In this way we therefore pray you, gentlemen, to pass such a law which releases and affranchises the Land Company from paying the Stamp duties, as well as the duty on bricks, timber and other building materials and to pass the Bill which will be placed before you to this end."
+
+The Bill has also been drafted by Feargus O'Connor, who is soon going to present it to Parliament.
+
+The second petition demands the return to the people of the uncultivated land that is the property of the parishes. This land, which for thirty years has been sold in blocks to great landowners, ought, as the petition requests, to be divided into small fields to be leased or sold on easy terms of payment to the labourers of this land. This petition was adopted in London at a great meeting where Messrs Harney and Jones, editors of The Northern Star, supported it in the absence of O'Connor, who was kept in Parliament. It was also adopted at a large meeting in Norwich where Mr. Jones, who is one of the best speakers in England, again gave it his brilliant and irresistible support.
+
+The National Petition has finally3 been adopted by a large meeting in London. The principal speakers here were Messrs Keen, Schapper (German) and Harney. The address by the latter, above all, was marked by its democratic strength.
+
+[^1]: "What is our entire political and social system," he said, "but a gigantic fraud, erected and maintained for the benefit of idlers and impostors.
+
+[^2]: "Behold the Church! The bishops and archbishops appropriate to themselves enormous salaries while leaving the hard-working clergy only a few pounds a year. Millions of pounds, in the shape of tithes, are taken annually from the people; these tithes were originally destined mainly for the upkeep of the churches and the support of the poor; now there are separate rates for that, and the Church 'sacks' all the tithes. I ask, is not such a Church an organised imposture? (Cheers.)
+
+[^3]: "Behold our House of Commons, representing not the common people, but the aristocracy and the middle class, and dooming six-sevenths of the adult males of this country to political slavery by denying them the right to vote. Is not this house a legalised imposture? (Loud cheers.)
+
+[^4]: "Behold those venerable peers who, whilst the wail of distress is heard through the land, can sit, evening after evening, waiting for the Coercion Bill coming up from the Commons. Will any one be good enough to show me the utility of the Hospital of Incurables—will any one attempt to defend this hereditary imposture? (Cheers.)
+
+[^5]: "Of course, the respect I entertain for that blessed specimen of the 'wisdom of our ancestors'—the monarchy—forbids me to speak in other than the most loyal terms of so interesting a sovereign as Queen Victoria, who regularly, once a year, is delivered of a royal speech and a royal baby. (Laughter.) We have just had the speech, and I see an announcement that in March next we are to have the baby. Her most gracious Majesty expresses great concern for her people's sufferings, admires their patience, and
+
+[^6]: a December 20, 1847.—Ed.
+
+
+
+The speaker, having contrasted with this picture of official society the picture of the people's sufferings, concluded by demanding the adoption of the National Petition for the Charter. The petition was adopted unanimously. Mr. Duncombe will place it on the table in the House of Commons, when it has toured the country. I shall send you the translation of it as soon as I have obtained a copy.218
+
+Written at the end of December 1847 Printed according to the newspaper
+
+First published in La Réforme, Translated from the French December 30, 1847
+
+Published in English for the first time
+
+Karl Marx
+
+WAGES219
+
+[A]
+
+Explained already:
+
+1. Wages = price of the commodity. Hence, generally speaking, wages are determined in the same way as prices.
+
+Human activity=commodity. Manifestation of life, life activity, appears as mere means; existence divorced from this activity as purpose.
+
+2. As commodity wages depend on competition, demand and supply.
+
+3. The supply itself depends on the cost of production, i.e., on the labour time required for the production of a commodity.
+
+4. Inverse proportion of profits and wages. Opposition of the two classes whose economic existence are profits and wages.220
+
+5. Fight for increase or reduction of wages. Workers' associations. 6. Average or normal price of labour; the minimum is valid only for the class of workers, not for the individual. Combinations of workers to maintain wages.
+
+7. Influence on wages of the removal of taxes, protective tariffs, reduction of armies, etc. The minimum is given on average as = the price of the necessary means of subsistence.
+
+1. Hand-loom weavers** (working 15 hours per day). (Half a million of them.) 221
+
+[^1]: [B]
+
+[^2]: ADDITIONS
+
+[^3]: I. ATKINSON3
+
+[^4]: a W. Atkinson, Principles of Political Economy.— Ed. b Marx uses the English word.— Ed.
+
+
+
+
+
+**[p. 416]**
+
+(This example on the passing from one trade to another to be used in respect of the debate on free trade.222)
+
+2. Something to be said on population theory. 3. Influence of changed and expanded division of labour on the fixing of wages.
+
+II. CARLYLEC
+
+1. Not only the quantity of wages3 is to be considered. They vary in quality, depending on the play of circumstances.
+
+2. The advantage of wages: that from now on necessity, interest, haggling, alone link the worker to the employer. No longer anything patriarchal, as in the Middle Ages.
+
+4. The entire theory of Malthus and the economists amounts to saying that it lies with the workers to reduce the demand by not making any children.
+
+[^1]: Poor laws, extirpation of vermin, chargeable labourers.223
+
+[^2]: 3. The greater part of labour is not skilled labour.3
+
+[^3]: III. M'CULLOCHd
+
+[^4]: "The wages earned by the labourer are. only the common and ordinary rate of profit to the proprietors of the machine called man, thereto [dazu]e a sum to replace the wear and tear of the machines, or, which is the same thing, to supply the place of the old and decayed labourers with new ones" fp. 319J.f
+
+[^5]: 3 Marx uses the English word.— Ed. b Bowring's speech is quoted in W. Atkinson, Principles of Political Economy, pp. 36-38.— Ed.
+
+[^6]: c Th. Carlyle, Chartism.— Ed. d J. R. M'Culloch, The Principles of Political Economy.— Ed. e M'Culloch has here: "exclusive of".—Ed. The words "to replace of the machines" and "new ones" are in English in the original.— Ed.
+
+
+
+^^T£LZJ^
+
+u ^Pu SL'^ ^ Ä ^ v ^57*.*^?
+
+^ L V *»• ^ >• - • - s** T _ , x ^
+
+[^1]: First page of Marx's manuscript "Wages"
+
+
+
+
+
+
+
+**[p. 419]**
+
+1. "If the object sought be to render an operative a machine, whereby the greatest quantity of work in a given occupation may be extracted from him, no way so effective as division of labour" [p. 125].
+
+2. A reduction of wages drives the workers either to reduce their spending or to increase their productivity, in factories operated by machines, for instance (and in general), by working longer hours; or, with handicraftsmen, hand-loom weavers, etc., by working harder in the same hour. But since their wages have been reduced precisely because the demand has slackened, they thereby increase the supply at the unfavourable moment. The consequence is that their wages drop still lower, and then the bourgeois come along and say "If the people would only work".
+
+3. Altogether, the general law is that there cannot be two market prices, and that the lower market price prevails (given equal quality).
+
+Take 1,000 workers of equal skill; 50 are without work; the price is then determined not by the 950 who are employed but by the 50 who are unemployed.
+
+But this law of the market price weighs more heavily on the commodity labour than on other commodities, because the worker cannot lay up his commodity in store but must sell his life activity or, deprived of the means of subsistence, must die.
+
+The saleable commodity labour differs from other commodities in particular by its evanescent nature, by the impossibility of accumulating it, and by the fact that the supply cannot be increased or reduced with the same facility as with other products.
+
+4. The humanity of the capitalists consists in buying as much labour as possible at the cheapest price. Agricultural labourers earn more in summer than in winter, although in winter they need more food, fuel and warmer clothing.
+
+5. The abolition of Sunday, for example, would be a sheer loss to the workers. The masters seek to reduce wages by leaving them nominally the same but making the workers work a quarter of an hour more, for example, shortening meal times, etc.
+
+6. Wages affected by fashions, the changing seasons, and commer- cial fluctuations.224
+
+7. If the worker, supplanted by the machine, goes into another industry, that is as a rule a worse one. He never gets back into his former position.
+
+[^1]: a J. Wade, History of the Middle and Working Classes.— Ed.
+
+[^2]: 1 ;,_ 1 82ti
+
+
+
+
+
+**[p. 420]**
+
+One has suggested to the workers:
+
+1) savings banks; 2) to learn all possible trades (so that when there is a surplus of workers in one industry the same occurs at once in all industries).
+
+8. In times of stagnation: a) cessation of work; b) reduction of wages; c) the same wage, but employment for fewer days in the week.225
+
+9. Concerning the combinations of trade,3 it is to be remarked:
+
+1. The expenses of the workers (the costs). Invention of machines in consequence of the combinations. Other division of labour. Depression of wages. Deplacementb of factories to other localities.
+
+2. If they were all to succeed in keeping wages so high that profits were significantly reduced below the average profits of other countries, or so that capital would grow more slowly, the industry of a country would be ruined, and the workers together with the masters even more so.
+
+Although a reduction in taxes does not benefit the workers, a rise in taxation, on the other hand, harms them. The good thing in the rise in taxation in countries with a developed bourgeoisie is that the estate of small farmers and proprietors (craftsmen, etc.) is thereby ruined and thrown into the working class.
+
+Influence of the Irish in England, the Germans in Alsace, on wages.
+
+General principle of modern industry: to replace adults by children, skilled workers by unskilled, men by women.
+
+Equalisation of wages: Main feature of modern industry [see pp. 34, 35].
+
+[^1]: V. CABBAGE'
+
+[^2]: Truck system.?26
+
+[^3]: VI. ANDREW UREd
+
+[^4]: a The words "combinations of trade" are in English in the original.— Ed. b The word "déplacement" is in English in the original.— Ed. c Ch. Babbage, Traité sur l'économie des machines et des manufactures.— Ed. d A. Ure, Philosophie des manufactures, ou Economie industrielle.— Ed.
+
+
+
+
+
+**[p. 421]**
+
+Mr. Rossi thinks: The manufacturer only advances to the worker his share in the product because the latter cannot wait for its sale. This is a speculation which has no direct bearing on the production process. If the worker can maintain himself until the product is sold he will, as an associé, claim his share in it afterwards.
+
+Hence, wages are not a constituent element of the product as are capital and the land. They are a mere accident, a form of our social condition. Wages do not belong to capital.
+
+Wages are not a factor indispensable to production. In a different organisation of labour they may disappear [see pp. 369, 370].
+
+[VIIL] CHERBULIEZb
+
+1. "The increase of the productive capital does not necessarily entail an increase of the approvisionnement for the workers. Raw materials and machinery can be increased while approvisionnement is reduced.
+
+"The price of labour depends on a) the absolute quantity of the productive capital; b) on the proportions of the various elements of capital, two social facts on which the will of the workers cannot exert any influence.
+
+2. "It is not so much the absolute consumption of the worker as his relative consumption which makes his position either happy or unhappy. Beyond the necessary consumption the value of what we enjoy is essentially relative" [pp. 103-04, 105, 109].
+
+When one speaks of the fall or rise of wages one must never lose sight of the whole world market or of the position of the workers in the various countries.
+
+Egalitarian and other attempts to fix wages justly.
+
+The minimum wage itself changes and constantly falls. Example of spirits.
+
+Triple machine in the hands of despotism and capital. 1. The money flows back into the national bank, which makes profits by lending it back to the capitalists.
+
+[^1]: ("IX.] BRAYC
+
+[^2]: SAVINGS BANKS
+
+[^3]: a P. Rossi, Cours d'économie politique.—Ed. b A. Cherbuliez, Riche ou pauvre.— Ed. c J. F. Bray, Labour's Wrong and Labour's Remedy.— Ed.
+
+
+
+
+
+**[p. 422]**
+
+3. By this means a new weapon is given into the hands of the capitalists as such [pp. 152, 153].
+
+Once wages have fallen, they never rise to their previous height; absolute and relative wages.
+
+[C]
+
+I. HOW DOES THE GROWTH OF THE PRODUCTIVE FORCES AFFECT WAGES?227
+
+[Cf. VI, 3]a
+
+Machinery: Division of labour. Labour is simplified. Its cost of production is reduced. It becomes cheaper. The competition among the workers increases.
+
+Passing from one industry to another. On this see Dr. Bowring himself in relation to the hand-loom cotton weavers in the region of Dacca in India, in Parliament 1835.
+
+The new work into which the worker is flung, is worse than the former, more subordinate. Adult labour replaced by children's, men's by women's, more skilled by less skilled.
+
+Either working hours increased or wages reduced. Competition among workers not only in that one sells himself more cheaply than another, but also in that one does the work of two.
+
+In general, the growth of the productive forces has the following consequences:
+
+a) The position of the worker relative to that of the capitalist worsens, and the value of the things enjoyed is relative. The enjoyments themselves are indeed nothing but social enjoyments, relations, connections.
+
+b) The worker becomes an increasingly one-sided productive force which produces as much as possible in as little time as possible. Skilled labour increasingly transformed into simple labour.
+
+c) Wages become more and more dependent on the world market and the position of the worker increasingly subject to chance.
+
+d) In productive capital the share of machinery and raw materials grows much faster than that of approvisionnement. The increase of productive capital is therefore not accompanied by a similar increase of the demand for labour.
+
+[^1]: a See this volume, pp. 428-34.-n£d.
+
+
+
+
+
+**[p. 423]**
+
+R) on the proportion of its constituents. The worker has no influence on either.
+
+(Were it not for the fluctuations of wages, the worker would take no interest at all in the development of civilisation; he would remain stationary.)
+
+In the competition of the workers with the machine it is to be noted that handworkers (e.g., hand-loom cotton weavers) suffer even more than machine workers directly employed in the factory.
+
+Every development of new productive forces is at the same time a weapon against the workers. All improvements in the means of communication, for example, facilitate the competition of workers in different localities and turn local competition into national, etc.
+
+The cheapening of all commodities, which however does not occur in the case of the most immediate means of subsistence, has as a result that the worker wears a collection of rags and his misery displays the colours of civilisation.
+
+II. COMPETITION BETWEEN WORKERS AND EMPLOYERS
+
+a) To determine relative wages it should be noted that one taler for one worker and One taler for One employer do not have the same value. The worker must buy everything worse and dearer. His taler commands neither so many nor such good commodities as that of the employer. The worker must be a spendthrift and buy and sell against all economic principles. We must remark in general that we have in mind here only one aspect, wages themselves. But the exploitation of the worker begins anew as soon as he exchanges the price for his labour back into other commodities.—Épicier* pawnbroker, landlord, tout le monde l'exploite encore une fois.h
+
+ß) The employer, by commanding the means of employment, commands the means of subsistence of the worker, i.e., the latter's life depends on him; just as the worker himself degrades his life activity to a mere means of existence.
+
+Y) The commodity labour has great disadvantages against other commodities. For the capitalist, competition with the workers is a mere question of profit, for the workers it is a question of their existence.
+
+Labour is of a more evanescent nature than other commodities. It
+
+[^1]: a Grocer.—Ed. b Everybody exploits him over again.—Ed.
+
+
+
+
+
+**[p. 424]**
+
+g) Factory regime. Housing legislation. Truck system,3 where the employer cheats the worker by raising the price of goods while leaving the nominal wage the same.
+
+III. COMPETITION AMONG THE WORKERS THEMSELVES
+
+a) By a general economic law there cannot be two market prices. The wages of 1,000 workers of the same skill are determined not by the 950 in employment but by the 50 unemployed. Influence of the Irish on the position of the English workers and of the Germans on the position of the Alsatian workers.
+
+b) The workers compete with each other not merely by one offering himself more cheaply than another, but by one doing the work of two.
+
+Advantages of the unmarried over the married worker, etc. Competition between workers from villages and towns.
+
+IV. FLUCTUATIONS OF WAGES
+
+They are occasioned by:
+
+1) Changes in fashions. 2) The changing seasons. 3) Fluctuations in trade. In case of a crisis a) the workers will limit their spending, or, to increase their productivity, they will either work longer hours or produce more in the same hour. But since their wages have been reduced because the demand for their product has slackened, they increase the unfa- vourable proportion of the supply to the demand, and then the bourgeois says: if the people would only work. Their wages drop still lower through their overexertion.
+
+ß) In times of crisis: Complete unemployment. Reduction in wages. No change in wages and reduction of the working days.228
+
+Y) In all crises the following circular movement relates to the workers:
+
+The employer cannot employ the workers because he cannot sell his product. He cannot sell his product because he has nö buyers. He has no buyers because the workers have nothing to offer in exchange
+
+[^1]: a Marx uses the English term.—Ed.
+
+
+
+
+
+**[p. 425]**
+
+§) When it is a question of a rise in wages, it is to be noted that one must always have in mind the world market and the fact that the rise in wages is ineffectual since workers in other countries are put out of work.
+
+V. MINIMUM WAGE
+
+1. The daily wage the worker takes home is the profit which his machine, his body, yields to its owner. Included in it is the sum necessary to replace the wear and tear3 of the machine, or, what is the same thing, to replace old, worn-out workers by new ones.
+
+2. It is inherent in the minimum wage that the abolition of Sunday, for example, would be a sheer loss to the worker. He would have to earn his wages in harder conditions. This is the purpose of the brave philanthropists who zealously argue against the observance of Sabbath.
+
+3. Although the minimum wage is determined on average by the price of the most indispensable provisions, it is nevertheless to be remarked:
+
+Firstly: that the minimum is different in different countries, the potato in Ireland, for example.229
+
+Secondly: not only that. The minimum itself has a historical movement and sinks always further towards the absolutely lowest level. Example of brandy. Distilled first from draff, then from grain, finally from spirits.
+
+Towards bringing about the really lowest level of the minimum contribute not only
+
+1) the general development of the working machines, the division of labour, the increase in competition among the workers themselves and its liberation from local fetters, but also
+
+2) the growth of taxation and the greater costliness of the state budget, for, although, as we have seen, the abolition of a tax does not benefit the worker, he is harmed by the introduction of any new tax so long as the minimum has not yet fallen to its lowest possible expression, and this is the case with all perturbations and difficulties of civil relations. The growth of taxation, incidentally, brings about the ruin of the small farmers, bourgeois and craftsmen.
+
+Example—after the war of liberation.230 The progress of industry, which brings with it cheaper products and substitutes.
+
+[^1]: a Marx uses the English term.—Ed.
+
+
+
+
+
+**[p. 426]**
+
+In the course of development, there is a double fall in wages: Firstly: relative, in proportion to the development of general wealth.
+
+Secondly: absolute, since the quantity of commodities which the worker receives in exchange becomes less and less.
+
+5. With the development of large-scale industry time becomes increasingly the measure of the value of commodities, hence also the measure of wages. Simultaneously the production of the commodity labour becomes cheaper and cheaper and costs less and less working time as civilisation progresses.
+
+The peasant still has free time and can earn something on the side. But big industry (not manufacture) does away with this patriarchal situation. Every moment of the worker's life, of his very existence, thus becomes more and more a matter of haggling.
+
+(Here add the following sections:
+
+1. Suggestions for the improvement of the workers' position. Malthus; Rossi etc.; Proudhon; Weitling.
+
+2. Workers' associations. 3. Positive significance of wage labour.)
+
+1. One of the most popular suggestions is the system of savings banks.
+
+We will say nothing at all of the impossibility for most of the workers to save.
+
+The purpose, at least the strictly economic meaning of savings banks, is supposed to be: that by their own foresight and wisdom the workers can equalise the good working times with the bad, i.e., distribute their wages in the cycle through which the industrial movement runs in such a way that they actually never spend more than the minimum wage, that which is indispensable to sustain life.
+
+But we have seen that the fluctuations of wages not only revolutionise the worker, but that without the temporary rise of wages above the minimum he would remain excluded from all advances of production, from public wealth, from civilisation, hence from all possibility of emancipation.
+
+He must therefore turn himself into a bourgeois calculating machine, make thrift into a system, and give misery a stationary, conservative character.
+
+[^1]: VI. SUGGESTIONS FOR REMEDIES
+
+
+
+
+
+**[p. 427]**
+
+a) The savings bank is the golden chain by which the government holds a large part of the working class. By it they not only acquire an interest in the preservation of the existing conditions. Not only does it lead to a split between that portion of the working class which takes part in the savings banks and the portion which does not. The workers themselves thus give into the hands of their enemies the weapons to preserve the existing organisation of society which subjugates them.
+
+ß) The money flows back into the national bank, this lends it again to the capitalists and both share in the profits and thus, with the money borrowed from the people at a miserable rate of inter- est—which only by this centralisation becomes a mighty industrial lever—increase their capital, their direct ruling power over the people.
+
+2. Another suggestion, very popular with the bourgeoisie, is education, especially comprehensive industrial education.
+
+a) We shall not draw attention to the trite contradiction which lies in the fact that modern industry replaces compound labour more and more with simple labour which requires no education; we shall not draw attention to the fact that it throws more and more children from the age of seven upwards behind the machine and turns them into a source of income not only for the bourgeois class but for their own proletarian parents; the factory system frustrates the school laws, example Prussia; nor shall we draw attention to the fact that the education of the mind, if the worker had such an education, has no direct effect at all on his wages, that education is altogether dependent on the conditions of life, and that by moral education the bourgeois understands indoctrination with bourgeois principles, and that, finally, the bourgeois class neither has the means, nor if it had them would it use them, to offer the people a real education.
+
+We confine ourselves to stressing a purely economic viewpoint.
+
+ß) The true purpose which education has with the philanthropic economists is this: every worker should be trained in as many industries as possible, so that if by the introduction of new machines or by a change in the division of labour he is thrown out of one industry, he can as easily as possible find employment in another.
+
+Assuming this to be possible: The consequence would be that if there were a surplus of hands in one industry, this surplus would at once spread to all other industries, and even more than before the reduction of wages in one business would lead directly to a general reduction in wages.
+
+
+
+**[p. 428]**
+
+We cannot here, of course, consider all the many minor palliatives which are suggested from the bourgeois side.3
+
+3. We must, however, turn to a third suggestion, which has had, and continues to have, very significant practical consequences—the Malthusian theory.
+
+This entire theory, in so far as we have to consider it here, amounts to the following:
+
+a ) The level of wages depends on the proportion of the hands which offer themselves to the hands which are required.
+
+Wages can rise in two ways. Either when the capital which sets the labour in motion increases so rapidly that the demand for workers increases more rapidly, in quicker progression, than their supply.
+
+Or, secondly, when the population is growing so slowly that competition among the workers remains weak although productive capital does not grow rapidly.
+
+On one side of this proportion, namely the growth of productive capital, you workers can exert no influence.
+
+But you can on the other side. You can reduce the supply of workers, i.e., the competition among them, by making as few children as possible.
+
+To reveal the utter stupidity, baseness and hypocrisy of this doctrine, the following is sufficient:
+
+j$) (This is to be included in I: How does the growth of the productive forces affect wages?)
+
+Wages rise when the demand for labour grows. This demand grows when the capital grows which sets the labour in motion, i.e., when the productive capital grows.
+
+Here there are two main points to be made: Firstly: A main condition for the rise of wages is the growth of the productive capital, and its most rapid possible growth. The main condition for the worker to be in a passable position is, therefore, to depress his position in relation to the bourgeois class more and more, to increase as much as possible the power of his opponent, capital. That is, he can only be in a passable position provided he creates and reinforces the power which is hostile to him, his own opposite. On this condition of creating this hostile power, the means of
+
+[^1]: a Marx later added: "Pauperism".—Ed.
+
+
+
+
+
+**[p. 429]**
+
+Incidentally, when one has grasped this relationship of capital and labour, all Fourierist and other attempts at mediation appear in their true absurdity.
+
+Secondly: Having thus explained this crazy relationship, we must add a second, even more important element.
+
+Namely, what does it mean: Growth of productive capital, and in what conditions does it take place?
+
+Growth of capital=accumulation and concentration of capital. In the same measure in which capital is accumulated and concentrated, it leads:
+
+to work on a larger scale and hence to a new division of labour which simplifies the work still more;
+
+then to the introduction of machinery on a larger scale and to the introduction of new machinery.
+
+That means, therefore, that in the measure in which productive capital grows, there grows
+
+the competition among the workers because the division of labour is simplified and every branch of labour is open to everybody.
+
+Competition also grows among them because in the same measure they have to compete with the machines and are thrown out of work by them. By constantly increasing the scale of operations and because the rate of interest tends to fall more and more through the competition among the capitals offered, the concentration and accumulation of productive capital brings about the following:
+
+Small industrial enterprises are ruined and cannot stand up to competition with the big ones. Entire sections of the bourgeois class are thrown down into the working class. The competition among the workers is therefc e increased by the ruin of the small industrialists which is fatally linked with the growth of productive capital.
+
+And at the same time as the rate of interest falls, small capitalists formerly not participating in industry directly are forced to become industrial, i.e., to supply big industry with further victims. From this side, too, the working class is enlarged and competition among the workers increased.
+
+While the growth of the productive forces leads to work on a larger scale, momentary overproduction becomes more and more necessary, the world market more and more extensive, and competition more universal. The crises, therefore, become more and more violent. So the workers are given a sudden encouragement to marry and multiply, they are agglomerated and concentrated in
+
+
+
+**[p. 430]**
+
+Speaking generally, the growth of the productive forces, with their more rapid means of communication, accelerated circulation and feverish turnover of capital consists in the fact that in the same time more can be produced, and hence, under the law of competition, more must be produced. That is, production takes place in more and more difficult conditions, and so that competition can be put up with in these conditions, production must take place on an ever growing scale and capital must be concentrated in fewer and fewer hands. And so that this producing on a larger scale may be fruitful, the division of labour and machinery must be constantly and dispropor- tionately extended.
+
+This producing in more and more difficult conditions also extends to the worker as part of capital. He must produce more, in more and more difficult conditions, i.e., for less and less wages and more work, at constantly decreasing production costs. So the minimum itself is constantly being reduced to greater exertions with minimum enjoyment.
+
+The disproportion rises geometrically, not arithmetically.3
+
+The growth of the productive forces therefore leads to increased power of big capital, to the machine called the worker becoming more and more simple, to an increase in direct competition among the workers through greater division of labour and use of machinery, through a positive premium being placed on the production of people, through the competition of the ruined sections of the bourgeois class, etc.
+
+We can formulate the matter still more simply: Productive capital consists of three constituent parts:
+
+1) the raw material which is worked up; 2) the machines and materials such as coal, etc., which are necessary to drive the machines; buildings, etc.;
+
+3) the part of capital intended for the maintenance of the workers. Given the growth of productive capital, in what proportion do these three constituents stand to each other?
+
+The growth of productive capital is linked with its concentration, and with that the fact that it can only be profitable if it is exploited on an ever larger scale.
+
+A large part of capital will therefore be transformed directly into instruments of labour and will operate as such, and the more the
+
+[^1]: a This sentence was written by Marx in the margin.—Ed.
+
+
+
+
+
+**[p. 431]**
+
+The growth of machinery and of the division of labour has the consequence that in a shorter time far more can be produced. Hence the store of raw materials must grow in the same proportion. In the course of the growth of the productive capital the part of capital transformed into raw materials necessarily increases.
+
+There is still the third part of capital, that which is intended for the maintenance of the workers, i.e., transformed into wages.
+
+In what proportion does the growth of this part of productive capital stand to the two others?
+
+The greater division of labour causes a worker to produce as much as three, four, or five did formerly. Machinery has as a consequence the same proportion on a much larger scale.
+
+It further stands to reason that the growth of the parts of productive capital transformed into machinery and raw materials is not accompanied by a similar growth of the part of productive capital intended for wages. In that case the purpose of the use of machinery and the increased division of labour would, of course, be thwarted. It stands to reason that the part of productive capital intended for wages does not grow in the same measure as the part intended for machinery and raw materials. Moreover, in the same measure in which productive capital grows, i.e., the power of capital as such, in the same measure there increases the disproportion between the capital invested in raw materials and machinery and that spent on wages. That means, therefore, that the part of productive capital intended for wages becomes smaller and smaller in relation to that which acts as machinery and raw material.
+
+After the capitalist has put a larger capital into machinery, he is compelled to spend a larger capital on the purchase of raw materials and the fuels required to drive the machines. But if formerly he employed 100 workers, now he will need perhaps only 50. Otherwise he would have perhaps to double the other parts of his capital again, i.e., make the disproportion still greater. He will therefore dismiss 50, or else the 100 must work for the same price as formerly the 50 did. There are, therefore, redundant workers on the market.
+
+With improved division of labour only the capital for raw material will have to be increased. The place of three workers will perhaps be taken by one.
+
+But take the most favourable case. Let the capitalist expand his enterprise so that he can not only retain the previous number of his workers—and, of course, he does not care a fig about waiting until he can do so—but even increase it; in this case production must have
+
+It is, therefore, a general law which necessarily arises from the nature of the relation between capital and labour that in the course of the growth of the productive forces the part of productive capital which is transformed into machinery and raw material, i. e., capital as such, increases in disproportion to the part which is intended for wages; i. e., in other words, the workers must share among themselves an ever smaller part of the productive capital in relation to its total mass. Their competition, therefore, becomes more and more violent. In other words: the more productive capital grows, the more, in proportion, the means of employment and the means of subsistence for the workers are reduced, and the more rapidly, in other words, the working population grows in proportion to its means of employment. And this increases in the same measure in which the productive capital as a whole grows.
+
+To compensate the above disproportion it must be enlarged in geometrical proportion, and in order afterwards, in a time of crisis, to readjust it, it is enlarged still more.
+
+This law, which arises simply from the relation of the worker to capital, and which turns even the condition most favourable for him, the rapid growth of productive capital, into an unfavourable one, the bourgeois have changed from a social law into a law of nature by saying that by a law of nature the population grows more rapidly than the means of employment or the means of subsistence.
+
+They fail to understand that the growth of this contradiction is inherent in the growth of productive capital.
+
+We shall return to this later. Productive force, in particular the social force of the workers themselves, not paid for, is even directed against them.
+
+Y) First absurdity: We have seen that when productive capital grows—the most favourable case presupposed by the economists—when, therefore, the demand for labour increases relatively, it is in the nature of modern industry and in the nature of capital that the means for the employment of workers do not grow in the same proportion, that the same circumstances which make productive capital grow, make the disproportion between the supply of labour and the demand for it grow still more rapidly, in a word, that the growth of the productive
+
+
+
+**[p. 433]**
+
+If the growth of productive capital progresses only slowly, however, if it remains stationary or even decreases, the number of workers is always too large in proportion to the demand for labour.
+
+In both cases, the most favourable and the most unfavourable, it follows from the relationship of labour to capital, from the nature of capital itself, that the supply of labour will always be too great for the demand for labour.
+
+d ) Leaving aside the nonsense that the entire working class cannot possibly take the decision not to make any children, their condition, on the contrary, makes the sexual instinct their chief pleasure and develops it one-sidedly.
+
+After the bourgeoisie has depressed the existence of the workers to a minimum, it wants in addition to limit their acts of reproduction to a minimum.
+
+s ) That the bourgeoisie, incidentally, does not and cannot mean these phrases and counsels seriously, is clear from the following:
+
+Firstly: By replacing adults with children, modern industry places a veritable premium on the making of children.
+
+Secondly: Big industry constantly requires a reserve army of unemployed workers for times of overproduction. The main purpose of the bourgeois in relation to the worker is, of course, to have the commodity labour as cheaply as possible, which is only possible when the supply of this commodity is as large as possible in relation to the demand for it, i.e., when the overpopulation is the greatest.
+
+Overpopulation is therefore in the interest of the bourgeoisie, and it gives the workers good advice which it knows to be impossible to carry out.
+
+t ) Since capital only increases when it employs workers, the increase of capital involves an increase of the proletariat, and, as we have seen, according to the nature of the relation of capital and labour, the increase of the proletariat must proceed relatively even faster.
+
+x ) The above theory, however, which is also expressed as a law of nature, that population grows faster than the means of subsistence, is the more welcome to the bourgeois as it silences his conscience, makes hard-heartedness into a moral duty and the
+
+
+
+**[p. 434]**
+
+X) The poor laws may be regarded as an application of this theory. Extirpation of vermin. Arsenic. Workhouses.3 Pauperism in general. The treadmill again within civilisation. Barbarism reappears, but created in the lap of civilisation itself and belonging to it; hence leprous barbarism, barbarism as leprosy of civilisation. Workhouses3
+
+the Bastilles of the workers. Separation of man and wife.
+
+4. We will now briefly speak of those who want to improve the condition of the workers by a different way of fixing wages.
+
+Proudhon. 5. Finally, among the remarks which philanthropic economists have made on wages, yet another view must be mentioned.
+
+a) Among other economists Rossi, in particular, has expounded the following:
+
+The manufacturer only advances to the worker his share in the product because the worker cannot wait for its sale. If the worker could maintain himself until the product was sold he would, as an associé, afterwards claim his share, as is the case between the actual and the industrial capitalist. That the worker's share has the particular form of wages is an accident, the result of a speculation, of a specific act which takes place alongside the production process and does not form any necessary constituent element of it. Wages are merely an accidental form of our social conditions. They do not necessarily belong to capital. They are not an indispensable factor of production. They can disappear under another organisation of society.
+
+ß ) This whole trick amounts to the following: If the workers possessed enough accumulated labour, i.e., enough capital, not to have to live directly on the sale of their labour, the wage form would end. That is, if all workers were at the same time capitalists; which is to presuppose and preserve capital without the contrast of wage labour without which it cannot exist.
+
+Y ) Nevertheless, the following admission is to be observed: Wages are no accidental form of bourgeois production, but the whole of
+
+[^1]: a Marx uses the English word.—Ed.
+
+
+
+
+
+**[p. 435]**
+
+VII. WORKERS' ASSOCIATIONS
+
+An element in the population theory was that it is supposed to lessen the competition among workers. The associations, by contrast, have the purpose of removing it and replacing it by union of workers.
+
+The economists are right when they remark against the associa- tions:
+
+1. The costs which they cause the workers are mostly greater than the rise in the gains they want to get. In the long run they cannot withstand the laws of competition. These combinations bring about new machines, a new division of labour, removal from one place of production to another. In consequence of all this a reduction of wages.
+
+2. If the combinations were to succeed in keeping the price of labour so high in one country that profits fell significantly in relation to the average profit in other countries, or so that capital was held up in its growth, stagnation and recession of industry would be the consequence, and the workers would be ruined together with their masters. For that, as we have seen, is the condition of the worker. His condition deteriorates by leaps and bounds when productive capital grows, and he is ruined from the start when it declines or remains stationary.
+
+3. All these objections of the bourgeois economists are, as we have said, correct, but only correct from their point of view.231 If in the associations it really were a matter only of what it appears to be, namely the fixing of wages, if the relationship between labour and capital were eternal, these combinations would be wrecked on the necessity of things. But they are the means of uniting the working class, of preparing for the overthrow of the entire old society with its class contradictions. And from this standpoint the workers are right to laugh at the clever bourgeois schoolmasters who reckon up to them what this civil war is costing them in fallen, injured, and financial sacrifices. He who wants to beat his adversary will not discuss with him the costs of the war. And how far the workers are from such mean-spiritedness is proved to the economists by the very fact that the best-paid workers form the most combinations and that the workers spend all they can scrape from their wages on forming
+
+
+
+**[p. 436]**
+
+VIII. POSITIVE ASPECT OF WAGE LABOUR
+
+Before we conclude, let us draw attention to the positive aspect of wage labour.
+
+a) If one says "positive aspect of wage labour" one says "positive aspect of capital", of large-scale industry, of free competition, of the world market, and I do not need to explain to you in detail how without these production relations neither the means of produc- tion—the material means for the emancipation of the proletariat and the foundation of a new society—would have been created, nor would the proletariat itself have taken to the unification and develop- ment through which it is really capable of revolutionising the old society and itself. Equalisation of wages.
+
+ß ) Let us take wages themselves in the essence of their evil, that my activity becomes a commodity, that I become utterly and abso- lutely for sale.
+
+Firstly: thereby everything patriarchal falls away, since haggling, purchase and sale remain the only connection, and the money relationship the sole relationship between employer and workers.
+
+Secondly: the halo of sanctity is entirely gone from all relationships of the old society, since they have dissolved into pure money relationships.
+
+Likewise, all so-called higher kinds of labour, intellectual, artistic, etc., have been turned into articles of commerce and have thereby lost their old sanctity. What a great advance it was that the entire regiment of clerics, doctors, lawyers, etc., hence religion, law, etc., ceased to be judged by anything but their commercial value.3
+
+(Thirdly: since labour has become a commodity and as such subject to free competition, one seeks to produce it as cheaply as possible, i.e., at the lowest possible production cost. All physical labour has
+
+[^1]: a Here the manuscript has an insertion: "National, class, property relations."—Ed.
+
+
+
+
+
+**[p. 437]**
+
+Thirdly: as the workers realised through the general saleability that everything was separable, dissoluble from itself, they first became free of their subjection to a given relationship. The advantage both over payment in kind and over the way of life prescribed purely by the (feudal) estate is that the worker can do what he likes with his money.
+
+Written at the end of December 1847
+
+First published in Russian in the journal Sotsialisticheskoye khozyaistvo, 1924 and in German in the journal Unter dem Banner des Marxismw, 1925
+
+Printed according to the manus- cript
+
+Published in English for the first time
+
+Frederick Engels
+
+THE "SATISFIED" MAJORITY.—GUIZOT'S SCHEME
+
+OF "REFORM".—QUEER NOTIONS OF M. GARNIER-PAGÈS.—DEMOCRATIC BANQUET
+
+AT CHÂLON.—SPEECH OF M. LEDRU-ROLLIN.— A DEMOCRATIC CONGRESS.—SPEECH OF M. FLOCON.—
+
+THE RÉFORME AND THE NATIONAL
+
+The French Chambers are now open, and we shall very soon have the pleasure of seeing what effect the Reform agitation has had upon the 225 "satisfied" members of the majority.3 We shall see whether they will be satisfied, too, with the manner in which Guizot has exposed France in the Swiss question to the ridicule of all Europe. Why, this fat, corrupting and corrupted stock-jobbing, swindling, blood-sucking, and cowardly majority, are the very men to swallow down even that—to say "amen" to the trick which Palmerston, in return for the Spanish marriages, played on his worthy colleague Guizot232—to declare that never was France so great, so glorious, so respected, so "satisfied"—as at this very moment.
+
+And it is at this very moment that all the papers of Paris, from the Debate to the Réforme, discuss, as openly as can be done under the circumstances, the eventuality consequent upon the death of Louis Philippe. The Débats afraid of seeing the majority split itself up, warns them every day that this inevitable event, whenever it takes place, will be the signal for the general rendezvous of all political parties; that "republicanism", "communism", "anarchism", "terror- ism", and so forth, will then break from their subterraneous caverns, to spread desolation, horror and destruction; that France will be lost—liberty, safety, property will be lost, unless the friends of order (M. Guizot and Co., of course) keep them down with a strong hand; that this perilous moment may occur any day; and that if M. Guizot is not supported in office, all will be lost. The other papers, the Presse,
+
+[^1]: a See this volume, pp. 216-17.—£d. Journal des Débats politiques et littéraires.—Ed.
+
+
+
+
+
+**[p. 439]**
+
+Thus, even the Débats agrees indirectly that "satisfied" France only awaits the proper moment for proving her dissatisfaction, in a manner which the frightened bourgeois imagination of the Débats depicts most ludicrously to its terrified reason. This, however, does not matter to the "satisfied" two hundred and twenty-five. They have a logic of their own. If the people are satisfied, then there is no reason for a change of system. If they are dissatisfied, why, then, their very dissatisfaction is a reason to stick more to the system; for if only one inch was abandoned, there would be a sudden eruption of all the horrors of revolution. Do whatever you like, these bourgeois will always draw the conclusion from it that they are the best rulers of the country.
+
+Nevertheless, Guizot will give a small bit of reform. He will add to the electoral list the "capacities", that is, all persons possessing a university degree, lawyers, doctors, and other such humbugs. A glorious reform, indeed. But this will suffice to disarm the "Progressive Conservatives", or, as they call themselves now—for, in want of something else to do, they change names every quarter—the Conservative opposition. And it will be a ready stroke for M. Thiers, who, while sending his second, M. Duvergier de Hauranne, on a Reform banquetting errand, slily prepared his reform-plan, with which he was to surprise the Chambers, and which was equally the same as the one now to be proposed by his rival, Guizot.
+
+There will be a deal of crying, shouting, and noise-making generally in the Chambers; but I hardly think M. Guizot has anything serious to apprehend from his faithful two hundred and twenty-five.
+
+So much for the official world. In the meantime the Reform banquets and the polemic between the National and the Réforme have continued. The allied oppositions, that is, the left centre (M. Thiers' party), the left (M. Odilon Barrot's party) and the "sensible Radicals" (the National), had the banquets of Castres, Montpellier, Neubourg, and others; the ultra-Democrats (the Réformé), had the banquet of Châlon. The chief speaker of the banquets of Montpellier and Neubourg was M. Garnier-Pagès, brother of the well-known
+
+
+
+**[p. 440]**
+
+
+
+[^1]: a Etienne Joseph Louis Garnier-Pagès.—Ed.
+
+
+
+
+
+**[p. 441]**
+
+The Ultra-Democrats had, as I said before, only one banquet, but it was a bumper, and worth a dozen of the coalition party. More than two thousand citizens sat down to dinner at Chalon-sur-Saône. The National had been invited, but very significantly had not come. The men of the Réforme, accordingly, had it all their own way. M. Ledru-Rollin, who had been designated by the National as the chief of the ultra-democratic party, here, accepted this position. He explained his position and the position of his party, by relating in a brilliant abstract, the different phases of French democracy since 1789. He then justified himself against the attacks of the National, attacked that paper in turn, and proposed a jury of Democrats to be nominated from all parts of France—one-half by either party—to decide between the Réforme and the National.
+
+And now (he said), after having settled this home affair, would it not be a good thing if the French democracy entered into relation with the other democracies? There is at this moment a great movement going on in Europe amongst all the disinherited, who suffer by heart or by hunger. This is the moment to console them, to strengthen them, and to enter into communion with them Let us, then, hold a congress of Democrats of all nations, now, when the congress of kings has failed! There is one republic in Europe, which just now has secured in its own territory the ascendancy of democracy—there is Switzerland, a country worthy of seeing the Democrats of all nations upon its free soil! And thus, citizens, let me conclude, by coupling to my toast: "To the Unity of the French Revolution", that other one, "The Union of all Democracies".
+
+This speech excited loud applause, and it merited it. We heartily rejoice in M. Ledru-Rollin's oratorial success at Châlon, but at the same time, must protest against an unguarded expression, which, we are sure, has been said without intention to hurt. M. Ledru-Rollin says, that the moment has arrived for French Democrats to console and to strengthen the suffering working men of other nations. The Democrats of no country, we are sure, want consolation from whomsoever it be. They admire the revolutionary pride of French Democrats, but they take for themselves the right to be quite as proud and independent. The four millions of English Chartists certainly are strong enough to do their own work for themselves. Glad as we are to see the French democracy take up with enthusiasm
+
+[^1]: a The reference is to the leading article in La Réforme, December 17, 1847.—Ed.
+
+
+
+
+
+**[p. 442]**
+
+At the same banquet, M. Flocon spoke to the toast:—"The Rights of Man and of the Citizen". He read the declaration of rights of the National Convention,234 which he declared to be, up to this day, the faithful abstract of true Democratic principles. To this, what he called the true French principle, he opposed the present system of moneyocracy, which places man upon a lower level than even cattle, because man is overabundant, and costs more than he gives in nature when his labour is not required. This system, from the country in which it first arose, he called the English system.
+
+But lo, he said, while the English principle is introduced into the fatherland of the revolution, the English people themselves strive to throw its yoke off their shoulders, and write upon their banners the glorious motto:—"Liberty, Equality, Fraternity!" Thus, by one of those painful turns, of which history offers more than one example, the very nation which first gave truth to the world, fallen back into darkness and ignorance, would soon be obliged to ask from its neighbours the revolutionary traditions which itself could not conserve. Shall it ever come thus far with us? No, never, as long as there are Democrats like you, and meetings like this! No, we never will prop up the worm-eaten frame of those English institutions, which the English themselves will no longer support! (No, no!) Well then, to your tents, O Israel! Every one of you rally round his standard! Every one for his faith! Here, on our side, Democracy with her twenty-five millions of proletarians to free, whom she greets with the names of citizens, brothers, equal and free men; there the bastard-opposition, with her monopolies and aristocracy of capital! They speak of reducing the qualification by one-half; we, we proclaim the rights of man and of the citizen! (Loud and long-continued applause, which ended by the whole meeting singing the Chant du départ.2*5)
+
+We regret not to have room for giving more of the speeches delivered at this splendid and thoroughly Democratic banquet.
+
+At last, the Réforme has forced the National to enter into a polemic. The former journal, in declaring its adhesion to the principles announced by M. Garnier-Pagès, at the Montpellier banquet, in a speech on the French revolution, at the same time disputed the right of men, like M. Gamier, who had sacrificed the interests of Democracy to M. Odilon Barrot and the middle-class opposition, to
+
+
+
+**[p. 443]**
+
+Réforme rightly declared that the policy proposed by both deputies would tend to nothing but to place the Democratic party wholly under the control of MM. Thiers and Barrot, and break it up entirely as a distinct party. 3rd. The National following up in practice during the Reform banquet agitation the policy proposed by M. Carnot. 4th. Its virulent and calumniating attacks upon the Communists, while proposing at the same time no practicable or effective remedy for the misery of the working people.
+
+The dispute has been going on for a week at least. At last the National retired from the contest, after having conducted it in a very improper manner. It has been regularly beaten; but, in order to mask its defeat, it finally accepted M. Ledru's proposal of a Democratic jury.
+
+We can only declare our full adhesion to the part the Réforme has taken in this affair. It has saved the honour, independence, and the strength of French Democracy as a distinct party. It has maintained the principles of the Revolution, which were endangered by the course pursued by the National. It has asserted the rights of the working classes in opposition to middle-class encroachments. It has unmasked these bourgeois radicals—who would make the people
+
+[^1]: a The reference is to the leading articles in La Réforme, December 15, 17 and 19, 1847.—Ed.
+
+[^2]: b L. H. Carnot, Les radicaux et la charte.—Ed. c Lazare Nicolas Carnot.—Ed. d The reference is to the leading article in La Réforme, December 20, 1847.—Ed.
+
+
+
+
+
+**[p. 444]**
+
+Written at the beginning Reprinted from the newspaper of January 1848
+
+First published in The Northern Star No. 533, January 8, 1848 with an editorial note: "From Our Paris Correspondent"
+
+Frederick Engels
+
+[THE COERCION BILL FOR IRELAND AND THE CHARTISTS]238
+
+The Irish Coercion Bill came into force last Wednesday.3 The Lord Lieutenantb was not slow in taking advantage of the despotic powers with which this new law invests him; the act has been applied all over the counties of Limerick and Tipperary and to several baronies in the counties of Clare, Waterford, Cork, Roscommon, Leitrim, Cavan, Longford and King's County.^
+
+It remains to be seen what the effect of this odious measure will be. In this connection we already have the opinion of the class in whose interests the measure was taken, namely, the Irish landowners. They announce to the world in their organs that the measure will have no effect whatsoever. And in order to achieve this a whole country is being placed in a state of siege! To achieve this nine-tenths of the Irish representatives have deserted their country!
+
+This is a fact. The desertion has been a general one. During the discussion of the Bill the O'Connell family itself became divided: John and Maurice, two of the deceased "Liberator's"0 sons, remained faithful to their homeland, whereas their cousin,d Morgan O'Connell, not only voted for the Bill, but also spoke in its support on several occasions. There were only eighteen members who voted for the outright rejection of the Bill, and only twenty supported the amendment put forward by Mr. Wakley, the Chartist member for a borough on the outskirts of London, who demanded that the
+
+[^1]: a December 29, 1847.—Ed.
+
+[^2]: Earl of Clarendon.—Ed. c Daniel O'Connell.—Ed.
+
+[^3]: Read "brother", a mistake in La Réforme.—Ed.
+
+
+
+
+
+**[p. 446]**
+
+This was the first discussion on an important question affecting Ireland which had been held since the death of O'Connell. It was to decide who would take the place of the great agitator in leading Ireland. Up to the opening of Parliament Mr. John O'Connell had been tacitly acknowledged in Ireland as his father's successor. But it soon became evident after the debate had begun that he was not capable of leading the party and, what is more, that he had found a formidable rival in Feargus O'Connor. This democratic leader about whom Daniel O'Connell said, "We are happy to make the English Chartists a present of Mr. F. O'Connor", put himself at the head of the Irish party in a single bound. It was he who proposed the outright rejection of the Coercion Bill; it was he who succeeded in rallying all the opposition behind him; it was he who opposed each clause, who held up the voting whenever possible; it was he who in his speeches summed up all the arguments of the opposition against the Bill; and finally it was he who for the first time since 1835 reintroduced the motion for Repeal of the Union,240 a motion which none of the Irish members would have put forward.
+
+The Irish members accepted this leader with a bad grace. As simple Whigs in their heart of hearts they fundamentally detest the democratic energy of Mr. O'Connor. He will not allow them to go on using the campaign for repeal as a means for overthrowing the Tories in favour of the Whigs and to forget the very word "repeal" when the latter come to power. But the Irish members who support repeal cannot possibly do without a leader like O'Connor and, although they are trying to undermine his growing popularity in Ireland, they are obliged to submit to his leadership in Parliament.
+
+When the parliamentary session is over O'Connor will probably go on a tour of Ireland to revive the agitation for repeal and to found an Irish Chartist party. There can be no doubt that if O'Connor is successful in doing this he will be the leader of the Irish people in less than six months. By uniting the democratic leadership of the three kingdoms3 in his hands, he will occupy a position which no agitator, not even O'Connell, has held before him.
+
+[^1]: a England, Scotland and Ireland.—Ed.
+
+
+
+
+
+**[p. 447]**
+
+Written on January 4, 1848 Printed according to the newspaper
+
+First published in La Réforme, Translated from the French January 8, 1848
+
+Frederick Engels
+
+FEARGUS O'CONNOR AND THE IRISH PEOPLE241
+
+The first issue of The Northern Starior 1848 contains an address to the Irish people by Feargus O'Connor, the well-known leader of the English Chartists and their representative in Parliament. This address deserves to be read from beginning to end and carefully considered by every democrat, but our restricted space prevents us from repro- ducing it in full.
+
+We would, however, be remiss in our duty if we were to pass it over in silence. The consequences of this forceful appeal to the Irish people will very soon be strongly felt and seen. Feargus O'Connor, himself of Irish descent, a Protestant and for over ten years a leader and main pillar of the great labour movement in England, must henceforth be regarded as the virtual chief of the Irish Repealers242
+
+and advocates of reform. His speeches in the House of Commons against the recently published disgraceful Irish Coercion Bill243 have given him the first claim to this status, and the subsequently con- tinued agitation for the Irish cause shows that Feargus O'Connor is just the man Ireland needs.
+
+O'Connor is indeed seriously concerned about the well-being of the millions in Ireland. Repeala—the abolition of the Union, that is, the achievement of an independent Irish Parliament—is not an empty word, not a pretext for obtaining posts for himself and his friends and for making profitable private business transactions.
+
+In his address he shows the Irish people that Daniel O'Connell, that political juggler, led them by the nose and deceived them for thirteen years by means of the word "Repeal".
+
+He shows in its true light the conduct of John O'Connell, who has taken up his father's political heritage and who like his father is prepared to sacrifice millions of credulous Irishmen for the sake of
+
+[^1]: a Here and below Engels uses the English term.—Ed.
+
+
+
+
+
+**[p. 449]**
+
+The Irish people must and will see how things stand, and then it will kick out the entire gang of so-called Repealers, who under cover of this cloak laugh up their sleeves and in their purses and John O'Connell, the fanatical papist and political rogue, will be kicked out first of all.
+
+If this were all the address contained, we should not have especially mentioned it.
+
+But it is of much wider importance. For Feargus O'Connor speaks in it not only as an Irishman but also, and primarily, as an English democrat, as a Chartist.
+
+With a luciditv which cannot escape even the most obtuse mind, O'Connor shows that the Irish people must fight with all their might arc in close association with the English working classes and the Chartists in order to win the six points of the People's Charter— annual parliaments, universal suffrage, vote by ballot, abolition of the p-> opertv qualification for members of Parliament, payment of M.P.s and the establishment of equal electoral districts. Only after these six points are won will the achievement of the Repeal have any advantages for Ireland.
+
+Furthermore O'Connor points out that justice for Ireland has already been demanded earlier by the English workers in a petition which received 3i/2 million signatures^« and that now the English Chartists have again protested against the Irish Coercion Bill in numerous petitions and that the oppressed classes in England and Ireland must at last fight together and conquer together or continue to languish under the same oppression and live in the same misery and dependence on the privileged and ruling capitalist class.
+
+There can be no doubt that henceforth the mass of the Irish people will unite ever more closely with the English Chartists and will act with them according to a common plan. As a result the victory of the English democrats, and hence the liberation of Ireland, will be hastened by many years. That is the significance of O'Connor's address to the Irish people.
+
+[^1]: Written at the beginning Printed according to the newspaper of January 1848
+
+[^2]: First published in Deutsche-Brüsseler- Zeitung No. 3, January 9, 1848
+
+
+
+Karl Marx
+
+SPEECH ON THE QUESTION OF FREE TRADE
+
+DELIVERED TO THE DEMOCRATIC ASSOCIATION OF BRUSSELS AT ITS PUBLIC MEETING OF JANUARY 9, 1848 2 4 6
+
+Gentlemen,—The Repeal of the Corn Laws247 in England is the greatest triumph of Free Trade in the nineteenth century. In every country where manufacturers discuss Free Trade, they have in mind chiefly Free Trade in corn or raw material generally. To burden foreign corn with protective duties is infamous, it is to speculate on the hunger of the people.
+
+have spent millions, and their enthusiasm has already infected their Continental brethren. And, generally speaking, all those who advocate Free Trade do so in the interests of the working class.0
+
+But, strange to say, the people for whom cheap food is to be procured at all costs are very ungrateful. Cheap food is as ill reputed in England as is cheap government in France. The people see in these self-sacrificing gentlemen, in Bowring, Bright & Co., their worst enemies and the most shameless hypocrites.
+
+Everyone knows that in England the struggle between Liberals and Democrats takes the name of the struggle between Free Traders and Chartists. Let us see how the English Free Traders have proved to the people the good intentions that animate them.
+
+[^1]: Cheap food, high wages,3 for this alone the English Free Tradersb
+
+[^2]: a In the 1848 French edition these words are repeated in English after the French.—Ed.
+
+[^3]: In the 1848 French edition, here and below, as a rule, the English is used, though the French "libre-échangiste" also occurs sometimes.— Ed.
+
+[^4]: c In the 1848 French edition the end of this phrase reads: "to ease the condition of the working class".—Ed.
+
+
+
+SUR LA QUESTION DU LIBRE ÉCHANGE,
+
+PRONONCÉ k
+
+L'ASSOCIATION DEMOCRATIQUE
+
+DE BRUXELLES,
+
+Dans la Séance Publique da 9 Janvier 1 8 4 8 ,
+
+PAR CHARLES MARX.
+
+Im primé aux frais de VAssociation Démocratique.
+
+messieurs.
+
+L'abolition des lois céréales en Angleterre est le plus grand triomphe que le libre échange ait remporté au 19"" siècle. Dans tous les pays où les fabricants parlent de libre échange ils ont principalement en vue le libre échange des grains et des matières premières en général. Frapper de droils protecteurs les grains étrangers, c'est infâme, c'est spéculer sur la famine des peuples.
+
+[^1]: First page of a separate edition of Marx's "Speech on the Question of Free Trade" (Brussels, February 1848)
+
+[^2]: 16—1826
+
+
+
+
+
+
+
+**[p. 453]**
+
+The workers in turn asked of the manufacturers,—
+
+"How is it that in the course of the last thirty years, while our commerce and manufacture3 has immensely increased, our wages have fallen far more rapidly, in proportion, than the price of corn has gone up?
+
+"The tax which you say we pay the landlords is about three pence a week per worker. And yet the wages of the hand-loom weaver fell, between 1815 and 1843, from 28s. per week to 5s., and the wages of the power-loom weaver, between 1823 and 1843, from 20s. per week to 8s.
+
+"And during the whole of the time that portion of the tax which you say we pay the landlord has never exceeded three pence. And, then, in the year 1834, when bread was very cheap and business lively, what did you tell us? You said, Tf you are poor, it is only because you have too many children, and your marriages are more productive than your labor!'
+
+"These are the very words you spoke to us, and you set about making new Poor Laws, and building workhouses, those bastilles of the proletariat."
+
+To this the manufacturers replied,—
+
+"You are right, worthy laborers: it is not the price of corn alone, but competition of the hands among themselves as well, which determines wages.
+
+"But just bear in mind the circumstance that our soil consists of rocks and sandbanks only. You surely do not imagine that corn can be grown in flower-pots! If, instead of wasting our labor and capital upon a thoroughly sterile soil, we were to give up agriculture, and devote ourselves exclusively to commerce and manufacture, all Europe would abandon its factories, and England would form one huge factory town, with the whole of the rest of Europe for its agricultural districts."
+
+While thus haranguing his own workingmen, the manufacturer is interrogated by the small tradesmen, who exclaim,—
+
+"If we repeal the Corn Laws, we shall indeed ruin agriculture; but, for all that, we shall not compel other nations to give up their own
+
+[^1]: a The 1848 French edition has here and below "industry" instead of "commerce and manufacture".—Ed.
+
+[^2]: 16'
+
+
+
+The manufacturer turns his back upon the workingmen and replies to the shopkeeper,—
+
+"As to that, you leave it to us! Once rid of the duty on corn, we shall import cheaper corn from abroad. Then we shall reduce wages at the very time when they are rising in the countries where we get our corn. Thus in addition to the advantages which we already enjoy we shall have lower wages, and, with all these advantages, we shall easily force the Continent to buy of us."
+
+But now the farmers and agricultural laborers join in the discussion.
+
+"And what, pray, is to become of us? Are we to help in passing a sentence of death upon agriculture, when we get our living by it? Are we to let the soil be torn from beneath our feet?"
+
+For all answer the Anti-Corn Law League248 contented itself with offering prizes for the three best essays upon the wholesome influence of the Repeal of the Corn Laws on English agriculture.
+
+These prizes were carried off by Messrs Hope, Morse, and Greg, whose essays3 were distributed broadcast throughout the agricultural districts.b One of the prize essayists devotes himself to proving that neither the tenant farmer nor the agricultural laborer would lose by the repeal of the Corn Laws, and that the landlord alone would lose.
+
+'The English tenant farmer," he exclaims, "need not fear repeal, because no other country can produce such good corn so cheaply as England. Thus, even if the price of corn fell, it would not hurt you, because this fall would only affect rent, which would go down, while the profit of capital and the wages of labor remain stationary."
+
+The second prize essayist, Mr. Morse, maintains, on the contrary, that the price of corn will rise in consequence of repeal. He is at infinite pains to prove that protective duties have never been able to secure a remunerative price for corn.
+
+In support of his assertion he quotes the fact that, whenever foreign corn has been imported, the price of corn in England has gone up considerably, and that when little corn has been imported the price has fallen extremely. This prize-winner forgets that the importation was not the cause of the high price, but that the high price was the cause of the importation. In direct contradiction of his
+
+[^1]: a The Three Prize Essays on Agriculture and the Corn Law. Published by the National Anti-Corn Law League.—Ed.
+
+[^2]: The 1848 French edition has: "whose books were circulated in the rural districts in thousands of copies."—Ed.
+
+
+
+
+
+**[p. 455]**
+
+The third prize essayist, Mr. Greg, who is a large manufacturer and whose work is addressed to the large tenant farmers, could not afford to echo such silly stuff. His language is more scientific.
+
+He admits that the Corn Laws can increase rent only by increasing the price of corn, and that they can raise the price of corn only by inducing the investment of capital upon land of inferior quality, and this is explained quite simply.
+
+In proportion as population increases, it inevitably follows, if foreign corn cannot be imported, that less fruitful soil must be placed under cultivation. This involves more expense and the product of this soil is consequently dearer. There being a demand for all the corn thus produced,3 it will all be sold. The price for all of it will of necessity be determined by the price of the product of the inferior soil.b The difference between this price and the cost of production upon soil of better quality constitutes the rent paid for the use of the better soil.c
+
+If, therefore, in consequence of the repeal of the Corn Laws, the price of corn falls, and if, as a matter of course, rent falls along with it, it is because inferior soil will no longer be cultivated. Thus the reduction of rent must inevitably ruin a part of the tenant farmers.
+
+These remarks were necessary in order to make Mr. Greg's language comprehensible.
+
+"The small farmers," he says, "who cannot support themselves by agriculture must take refuge in manufacture. As to the large tenant farmers, they cannot fail to profit by the arrangement: either the landlord will be obliged to sell them their land very cheap, or leases will be made out for long periods. This will enable tenant farmers to invest more capital in their farms, to use agricultural machinery on a larger scale, and to save manual labor, which will, moreover, be cheaper, on account of the general fall in wages, the immediate consequence of the repeal of the Corn Laws."
+
+Dr. Bowring conferred upon all these arguments the consecration of religion, by exclaiming at a public meeting, "Jesus Christ is Free Trade, and Free Trade is Jesus Christ."
+
+[^1]: a The 1848 French edition does not have the words "thus produced".—Ed. b The 1848 French edition has here "requiring greater expenses".—Ed. c The 1848 French edition does not have the words "paid for the use of the better soil".—Ed.
+
+
+
+
+
+**[p. 456]**
+
+Besides, how should the workingmen understand the sudden philanthropy of the manufacturers, the very men still busy fighting against the Ten-Hours Bill, which was to reduce the working day of the mill hands from twelve hours to ten?249
+
+To give you an idea of the philanthropy of these manufacturers I would remind you of the factory regulations in force in all their mills.
+
+Every manufacturer has for his own private use a regular penal code by means of which fines are inflicted for every voluntary or involuntary offence. For instance, the hand pays so much when he has the misfortune to sit down on a chair, or whisper, or speak, or laugh; if he is a few moments late; if any part of a machine breaks, or if he turns out work of an inferior quality, etc. The fines are always greater than the damage really done by the workman. And to give the workingman every opportunity for incurring fines the factory clock is set forward, and he is given bad material to make into good stuff. An overseer unskilful in multiplying infractions of rules is soon discharged.
+
+You see, gentlemen, this private legislation is enacted for the especial purpose ofa creating such infractions, and infractions are manufactured for the purpose of making money. Thus the manufacturer uses every means of reducing the nominal wage, and even profiting by accidents over which the workers have no control.
+
+And these manufacturers are the same philanthropists who have tried to persuade the workers that they were capable of going to immense expense for the sole and express purpose of improving the condition of these same workingmen! On the one hand they nibble at the workers' wages in the pettiest way, by means of factory legislation, and, on the other, they are prepared to make the greatest sacrifices to raise those wages by means of the Anti-Corn Law League.
+
+They build great palaces, at immense expense, in which the League takes u p b its official residence. They send an army of missionaries to all corners of England to preach the gospel of Free Trade; they print and distribute gratis thousands of pamphlets to enlighten the workingman upon his own interests. They spend enormous sums to buy over the press to their side. They organize a vast administrative system for the conduct of the Free Trade movement, and bestow all
+
+[^1]: a The 1848 French edition does not have the words "the especial purpose of".—Ed.
+
+[^2]: The 1848 French edition has here "as it were".—Ed.
+
+
+
+
+
+**[p. 457]**
+
+"If the landlords were to sell our bones, you manufacturers would be the first to buy them, and to put them through the mill and make flour of them."
+
+The English workingmen have appreciated to the fullest extent the significance of the struggle between the lords of the land and of capital. They know very well that the price of bread was to be reduced in order to reduce wages, and that the profit of capital would rise by as much as rent fell.
+
+Ricardo, the apostle of the English Free Traders, the leading economist of our century, entirely agrees with the workers upon this point.
+
+In his celebrated work upon Political Economy3 he says:
+
+"If instead of growing our own corn we discover a new market from which we can supply ourselves at a cheaper price, wages will fall and profits rise. The fall in the price of agricultural produce reduces the wages, not only of the laborer employed in cultivating the soil, but also of all those employed in commerce or manufacture" [t. I, pp. 178-79; Eng. ed., p. 137].
+
+And do not believe, gentlemen, that it is a matter of indifference to the workingman whether he receives only four francs on account of corn being cheaper, when he had been receiving five francs before.
+
+Have not his wages always fallen in comparison with profit? And is it not clear that his social position has grown worse as compared with that of the capitalist? Beside which he loses actually. So long as the price of corn was higher and wages were also higher, a small saving in the consumption of bread sufficed to procure him other enjoyments. But as soon as bread is cheap, and wages are therefore low, he can save almost nothing on bread, for the purchase of other articles.
+
+The English workingmen have shown the English b Free Traders that they are not the dupes of their illusions or of their lies; and if, in spite of this, the workers have made common cause with the manufacturers against the landlords, it is for the purpose of destroying the last remnant of feudalism, that henceforth they may have only one enemy to deal with. The workers have not miscalculated, for the landlords, in order to revenge themselves upon the manufacturers, have made common cause with the workers to carry the Ten-Hours Bill, which the latter had been vainly
+
+[^1]: a D. Ricardo, Des principes de l'économie politique et de l'impôt.— Ed. The 1848 French edition does not have the word "English".—Ed.
+
+
+
+
+
+**[p. 458]**
+
+When Dr. Bowring, at the Congress of Economists,11 drew from his pocket a long list to show how many head of cattle, how much ham, bacon, poultry, etc., is imported into England, to be consumed—as he asserted— by the workers, he forgot to state that at the same time the workers of Manchester and other factory towns were thrown out of work by the beginning of the crisis.
+
+As a matter of principle in Political Economy, the figures of a single year must never be taken as the basis for formulating general laws. We must always take the average of from six to seven years, a period during which modern industry passes through the successive phases of prosperity, overproduction, crisis,b thus completing the inevitable cycle.
+
+Doubtless, if the price of all commodities falls,—and this is the necessary consequence of Free Trade—I can buy far more for a franc than before. And the workingman's franc is as good as any other man's. Therefore, Free Trade must be advantageous to the workingman. There is only one little difficulty in this, namely that the workman, before he exchanges his franc for other commodities, has first exchanged his labor for the money of the capitalist.0 If in this exchange he always received the said franc d while the price of all other commodities fell, he would always be the gainer by such a bargain. The difficulty does not lie in proving that, the price of all commodities falling, more commodities can be bought for the same sum of money.
+
+Economists always take the price of labor at the moment of its exchange with other commodities, and altogether ignore the moment at which labor accomplishes its own exchange with capital. When it costs less to set in motion the machinery which produces commodities, then the things necessary for the maintenance of this machine, called workman, will also cost less. If all commodities are cheaper, labor, which is a commodity too, will also fall in price, and we shall see later that this commodity, labor, will fall far lower in proportion than all other commodities. If the workingman still pins his faith to the arguments of the economists, he will find, one fine
+
+[^1]: a See this volume, pp. 274-78 and pp. 282-90.—Ed.
+
+[^2]: The 1848 French edition has "prosperity, overproduction, stagnation, crisis".—Ed.
+
+[^3]: The 1848 French edition has "for capital" instead of "for the money of capitalist".—Ed.
+
+[^4]: The 1848 French edition has "the said franc for the same work".—Ed.
+
+
+
+
+
+**[p. 459]**
+
+Thereupon the economists will tell you,—
+
+"We admit that competition among the workers will-certainly not be lessened under Free Trade, and will very soon bring wages into harmony with the low price of commodities. But, on the other hand, the low price of commodities will increase consumption, the larger consumption will increase production, which will in turn necessitate a larger demand for labor and this larger demand will be followed by a rise in wages."
+
+The whole line of argument amounts to this: Free Trade increases productive forces. When manufactures keep advancing, when wealth, when the productive forces, when, in a word, productive capital increases, the demand for the labor, the price of labor, and consequently the rate of wages, rises also.
+
+The most favorable condition for the workingman is the growth of capital. This must be admitted: when capital remains stationary, commerce and manufacture are not merely stationary but decline, and in this case the workman is the first victim. He goes to the wall before the capitalist. And in the case of the growth of capital, under the circumstances, which, as we have said, are the best for the workingman, what will be his lot? He will go to the wall just the same. The growth of capital implies the accumulation and the concentra- tion of capital. This centralization involves a greater division of labor and a greater use of machinery. The greater division of labor destroys the especial skill of the laborer; and by putting in the place of this skilled work labor which any one can perform it increases competition among the workers.
+
+This competition becomes more fierce as the division of labor enables a single man to do the work of three. Machinery accomplishes the same result on a much larger scale. The accumulation of productive capital forces the industrial capitalist to work with constantly increasing means of production, ruins the small manufacturer, and drives him into the proletariat. Then, the rate of interest falling in proportion as capital accumulates, the little rentiers and retired tradespeople,0 who can no longer live upon their small incomes, will be forced to look out for some business again and ultimately to swell the number of proletarians. Finally, the more productive capital grows, the more it is compelled to produce for a
+
+[^1]: a The 1848 French edition does not have the words "one fine morning".—Ed. The 1848 French edition does not have the words "and retired trades- people".—Ed.
+
+
+
+
+
+**[p. 460]**
+
+In 1829 there were, in Manchester, 1,088 cotton spinners employed in 36 factories. In 1841 there were but 448, and they tended 53,353 more spindles than the 1,088 spinners did in 1829. If manual labor had increased in the same proportion as productive force, the number of spinners ought to have risen to 1,848; improved machinery had, therefore, deprived 1,400 workers of employment.
+
+We know beforehand the reply of the economists—the people thus thrown out of work will find other kinds of employment. Dr. Bowring did not fail to reproduce this argument at the Congress of Economists. But neither did he fail to refute himself. In 1835, Dr. Bowring made a speech in the House of Commons upon the 50,000 hand-loom weavers of London who have been starving without being able to find that new kind of employment which the Free Traders hold out to them in the distance. Let us hear the most striking portion of this speech of Mr. Bowring.b
+
+[^1]: "The misery of the hand-loom weavers," he says, "is the inevitable fate of all kinds of labor which are easily acquired, and which may, at any moment, be replaced by less costly means. As in these cases competition amongst the work-people is very great, the slightest falling-off in demand brings on a crisis. The hand-loom weavers are, in a certain sense, placed on the borders of human existence. One step further, and that existence becomes impossible. The slightest shock is sufficient to throw them on to the road to ruin. By more and more superseding manual labor, the progress of mechanical science must bring on, during the period of transition, a deal of temporary suffering. National well-being cannot be bought except at the price of some individual evils. The advance of industry is achieved at the expense of those who lag behind, and of all discoveries that of the power-loom weighs most heavily upon the hand-loom weavers. In a great many articles formerly made by hand, the weaver has been placed hors de combat; but he is sure to be beaten in a good many more stuffs that are now made by hand."
+
+[^2]: Further on he says,—"I hold in my hand a correspondence of the governor- general with the East India Company. This correspondence is concerning the weavers of the Dacca district. The governor says in his letter,—A few years ago the East India Company received from six to eight million pieces of calico woven upon the looms of
+
+[^3]: The 1848 French edition has: "the more production outstrips consumption, the more supply tries to force demand".—Ed.
+
+[^4]: Marx quotes Dr. Bowring according to Principles of Political Economy by W. Atkinson.— Ed.
+
+
+
+
+
+**[p. 461]**
+
+the country. The demand fell off gradually and was reduced to about a million pieces. At this moment it has almost entirely ceased. Moreover, in 1800 North America received from India nearly 800,000 pieces of cotton goods. In 1830 it did not take even 4,000. Finally, in 1800 a million of pieces were shipped for Portugal; in 1830 Portugal did not receive above 20,000.
+
+"The reports on the distress of the Indian weavers are terrible. And what is thé origin of that distress? The presence on the market of English manufactures, the production of the same article by means of the power-loom. A great number of the weavers died of starvation; the remainder has gone over to the other employment, and chiefly to field labor. Not to be able to change employment amounted to a sentence of death. And at this moment the Dacca district is crammed with English yarns and calicoes. The Dacca muslin, renowned all over the world for its beauty and firm texture, has also been eclipsed by the competition of English machinery. In the whole history of commerce, it would, perhaps, be difficult to find suffering equal to what these whole classes in India had to submit to" [W. Atkinson, pp. 36-38].
+
+Mr. Bowring's speech is the more remarkable because the facts quoted by him are correct, and the phrases with which he seeks to palliate them are characterized by the hypocrisy common to all Free Trade discourses. He represents the workers as means of production which must be.superseded by less expensive means of production, pretends to see in the labor of which he speaks a wholly exceptional kind of labor, and in the machine which has crushed out the weavers an equally exceptional kind of machine. He forgets that there is no kind of manual labor which may not any day share the fate of the hand-loom weavers.
+
+The above words of the most enthusiastic of Free Traders, Dr. Ure,a are calculated to complete the confessions of Dr. Bowring. Mr. Bowring speaks of certain individual evils, and, at the same time, says that these individual evils destroy whole classes; he speaks of the temporary sufferings during a transition period, and does not deny that these temporary evils have implied for the majority the transition from life to death, and for the rest a transition from a better to a worse condition. When he asserts, farther on, that the sufferings of the working class b are inseparable from the progress of
+
+[^1]: "The constant aim and tendency of every improvement of mechanism is indeed to do entirely without the labor of men, or to reduce its price, by superseding the labor of the adult males by that of women and children, or the work of the skilled by that of the unskilled workman. In most of the throstle mills, spinning is now entirely done by girls of sixteen years and less. The introduction of the self-acting mule has caused the discharge of most of the (adult male) spinners, while the children and young persons have been kept on" [p. 34; Eng. ed., p. 23].
+
+[^2]: a A. Ure, Philosophie des manufactures, ou Economie industrielle, t. I.— Ed. b The 1848 French edition has "these workers" instead of "the working class".—Ed.
+
+
+
+
+
+**[p. 462]**
+
+All the comfort which Mr. Bowring offers the workers who perish, and, indeed, the whole doctrine of compensation which the Free Traders propound, amounts to this—
+
+You thousands of workers who are perishing, do not despair! You can die with an easy conscience. Your class will not perish. It will always be numerous enough for the capitalist class to decimate it without fear of annihilating it. Besides, how could capital be usefully applied if it did not take care to keep up its exploitable material, i.e., the workingmen, to be exploited over and over again?
+
+But, then, why propound as a problem still to be solved the question: What influence will the adoption of the Free Trade have upon the condition of the working class? All the laws formulated by the political economists from Quesnay to Ricardo, have been based upon the hypothesis that the trammels which still interfere with commercial freedom have disappeared. These laws are confirmed in proportion as Free Trade is adopted. The first of these laws is that competition reduces the price of every commodity to the minimum cost of production. Thus the minimum of wages is the.natural price of labor. And what is the minimum of wages? Just so much as is required for production of the articles absolutely necessary for the maintenance of the worker, for the continuation, by hook or by crook, of his own existence and that of his class.
+
+But do not imagine that the worker receives only this minimum wage, and still less that he always receives it. No, according to this law, the working class will sometimes be more fortunate, will sometimes receive something above the minimum, but this surplus will merely make up for the deficit which they will have received below the minimum in times of industrial depression. That is to say that within a given time which recurs periodically, in other words, in the cycle3
+
+which commerce and industry describe while passing through the successive phases of prosperity, overproduction, stagnation, and crisis, when reckoning all that the working class has had above and below mere necessaries, we shall see that, after all, they have received neither more nor less than the minimum; i.e., the working class will have maintained itself as a class after enduring any amount of misery and misfortune, and after leaving many corpses upon the industrial battle-field. But what of that? The class will still exist; nay, more, it will have increased.
+
+[^1]: a The 1848 French edition has "circle" instead of "cycle".—Ed.
+
+
+
+
+
+**[p. 463]**
+
+Thus, as means are constantly being found for the maintenance of labor on cheaper and more wretched food, the minimum of wages is constantly sinking. If these wages began by letting the man work to live, they end by forcing him to live the life of a machine. His existence has no other value than that of a simple productive force, and the capitalist treats him accordingly. This law of the commodity labor, of the minimum of wages will be confirmed in proportion as the supposition of the economists, Free Trade, becomes an actual fact. Thus, of two things one: either we must reject all political economy based upon the assumption of Free Trade, or we must admit that under this same Free Trade the whole severity of the economic laws will fall upon the workers.
+
+To sum up, what is Free Trade under the present conditions of society? Freedom of Capital. When you have torn down the few national barriers which still restrict the free development3 of capital, you will merely have given it complete freedom of action. So long as you let the relation of wages-labor to capital exist, no matter how favorable the conditions under which you accomplish the exchange of commodities, there will always be a class which exploits and a class which is exploited. It is really difficult to understand the presump- tion of the Free Traders who imagine that the more advantageous application of capital will abolish the antagonism between industrial capitalists and wage-workers. On the contrary. The only result will be that the antagonism of these two classes will stand out more clearly.
+
+Let us assume for a moment that there are no more Corn Laws or national and municipal import duties6; that in a word all the accidental circumstances which to-day the workingman may look upon as a cause of his miserable condition have vanished, and we shall have removed so many curtains that hide from his eyes his true enemy.
+
+He will see that capital released from all trammels will make him no less a slave than capital trammelled by import duties.
+
+Gentlemen! Do not be deluded by the abstract word Freedom! whose freedom? Not the freedom of one individual in relation to another, but freedom of Capital to crush the worker
+
+[^1]: a The 1848 French edition has "advance" instead of "free development".—Ed. The 1848 French edition has "no more customs, no more town dues" (octroi).—Ed.
+
+
+
+
+
+**[p. 464]**
+
+We have shown what sort of fraternity Free Trade begets between the different classes of one and the same nation. The fraternity which Free Trade would establish between the nations of the earth would not be more real, to call cosmopolitan exploitation universal brotherhood is an idea that could only be engendered in the brain of the bourgeoisie. Every one of the destructive phenomena to which unlimited competition gives rise within any one nation is reproduced in more gigantic proportions in the market of the world. We need not pause any longer upon Free Trade sophisms on this subject, which are worth just as much as the arguments of our prize essayists Messrs Hope, Morse, and Greg.
+
+For instance, we are told that Free Trade would create an international division of labor, and thereby give to each country those branches of production most in harmony with its natural advantages.
+
+You believe perhaps, gentlemen, that the production of coffee and sugar is the natural destiny of the West Indies.
+
+Two centuries ago, nature, which does not trouble itself about commerce, had planted neither sugar-cane nor coffee trees there. And it may be that in less than half a century you will find there neither coffee nor sugar, for the East Indies, by means of cheaper production, have already successfully broken down this so-called natural destiny of the West Indies.
+
+And the West Indies, with their natural wealth, are as heavy a burden for England as the weavers of Dacca, who also were destined from the beginning of time to weave by hand.
+
+One other circumstance must not be forgotten, namely that, just as everything has become a monopoly, there are also nowadays some branches of industry which prevail over all others, and secure to the nations which especially foster them the command of the market of the world. Thus in the commerce of the world cotton alone has much greater commercial importance than all the other raw materials used in the manufacture of clothing. It is truly ridiculous for the Free Traders to refer to the few specialties in each branch of industry, throwing them into the balance against the product used in everyday consumption, and produced most cheaply in those countries in which manufacture is most highly developed.
+
+If the Free Traders cannot understand how one nation can grow rich at the expense of another, we need not wonder, since these same
+
+
+
+**[p. 465]**
+
+Do not imagine, gentlemen, that in criticising freedom of commerce we have the least intention of defending Protection.
+
+One may be opposed to constitutionalism without being in favor of absolutism.2
+
+Moreover, the Protective system is nothing but a means of establishing manufacture upon a large scale in any given country, that is to say, of making it dependent upon the market of the world; and from the moment that dependence upon the market of the world is established, there is more or less dependence upon Free Trade too. Besides this, the Protective system helps to develop free competition within a nation. Hence we see that in countries where the bourgeoisie is beginning to make itself felt as a class, in Germany for example, it makes great efforts to obtain Protective duties. They serve the bourgeoisie as weapons against feudalism and absolute monarchy,b as a means for the concentration of its own powers for the realization of Free Trade within the country.
+
+But, generally speaking, the Protective system in these days is conservative, while the Free Trade system works destructively. It breaks up old nationalities and carries antagonism of proletariat and bourgeoisie to the uttermost point. In a word, the Free Trade system hastens the Social Revolution. In this revolutionary sense alone, gentlemen, I am in favor of Free Trade.
+
+[^1]: First publishedin French as a pamphlet Printed according to the American at the beginning of February 1848 edition of 1889, checked with the in Brussels 1848 French edition
+
+[^2]: Signed: Karl Marx
+
+[^3]: a The 1848 French edition has "ancien régime" instead of "absolutism".—Ed. The 1848 French edition has "government" instead of "monarchy".—Ed.
+
+
+
+Frederick Engels
+
+THE CHARTIST MOVEMENT
+
+[THE FRATERNAL DEMOCRATS TO THE WORKING CLASSES OF GREAT BRITAIN AND IRELAND]
+
+The Society of Fraternal Democrats at its last meeting adopted an address to the workers of Great Britain and Ireland. This address, edited by Mr. Harney, of The Northern Star, is published in the latest number of this newspaper.250
+
+After recalling, in a portrayal as rapid as eloquent, the sufferings of the working class today, this address calls on the workers of the two islands to complete their party organisation:
+
+[^1]: On all sides the middle class has laid traps for you. In order to divert you from the People's Charter, the only goal important to you, they spawn all sorts of projects for superficial reforms. But within a few years you have twice had to learn the hard lesson that any scheme of reform emanating from the bourgeoisie must be for you "like Dead Sea fruits that tempt the eye, but turn to ashes on the lips". Remember the agitation for the Reform Bill, and that for the repeal of the Corn Laws.
+
+[^2]: Nonetheless, you are asked to support a "National League for the Reform of Abuses", an "Anti-State Church Association", an "Anti-Bribery Society", and societies for the reform of the currency, and the abolition of certain taxes, etc., etc. The one design of the projectors of these schemes is to perfect the already dominant power of the middle class. They all combine to resist your rightful claim to the privileges of citizenship: they are therefore your enemies. Were they desirous, as they profess to be, of promoting your welfare, they would aid you to obtain sovereign power. They well know that if you controlled the legislature, all the reforms they seek—and reforms of much greater importance—would be forthwith effected. How then can they call themselves your friends, while refusing you the suffrage?
+
+[^3]: Let this great truth be impressed upon every working man, that it is from the hut and the hovel, the garret and the cellar, that must come the regenerators of his order and the social saviours of the human race. Receive with joy and fraternal love every man who, belonging to the privileged orders, shall renounce class distinctions, and ally him- self with you, but look to no class above your own for your emancipation. Practi- cally outlawed by the other classes of the state, you must find in your own clear heads, courageous hearts, and powerful arms the means of effecting your regeneration.
+
+[^4]: We must call your serious attention to a wicked and abominable conspiracy against your interests, the conspiracy both by the enemies of all reform, and by many of the middle-class sham-reformers. These conspirators seek to revive those national pre-
+
+
+
+
+
+**[p. 467]**
+
+judices, now all but extinct, which formerly made the working men of these coun- tries the willing butchers of their fellow men of other lands. They desire to inflame the people of these islands with a dread and hatred of the people of France, under the pretext that the French contemplate the invasion and subjugation of England.
+
+Working men of Great Britain and Ireland, your country is already invaded and subjugated by enemies within—enemies who have reduced you politically and socially to the condition of Helots. You will not dislodge these enemies by increasing the physical power of your rulers. We believe that the veritable people of France—the proletarians—have learnt by experience that, like yourselves, their enemies are not to be found on any foreign shore, but in their own country. In France, as in England, a triumphant moneyocracy rules supreme and grinds the sons of labour to the dust. As in England, the people in France fights against this enemy and for the advent of liberty, equality and fraternity.
+
+Even supposing this country were menaced by aggression from without, England would have nothing to apprehend if her people were freemen. It is not armies, navies or fortresses that constitute the true defence of nations; a nation's best defence consists in a people which is truly free
+
+Let the privileged classes renounce their unjust usurpations and establish political equality and social justice, and England will have nothing to fear against a world in arms. On the contrary, the people of all countries would hail with joy the march of England's power, if that power were arrayed on the side of the liberty and social emancipation of mankind.
+
+Working men of Great Britain and Ireland, why should you arm yourselves and fight for the preservation of institutions in the privileges of which you have no share? For the maintenance of laws made not to protect, but to constrain you? For the protection of property which you can regard only as the accumulated plunder of the fruits of your labour? You are deprived of the produce of your industry; and then your poverty is made the pretext for withholding from you your citizens' rights! Subjected to plunder, wrong, and insult by the possessors of property, you are asked to pour out your blood in defence of property! Let the privileged and the property-holders fight their own battles! And if they are too weak to do so, let them give the people what belongs to it; let them learn to submit to the popular will; if they do so, the whole nation will form a rampart round these islands which no foreign invader could ever break through!
+
+Signed on behalf of the Society of Fraternal Democrats: G. Julian Harney, Ernest Jones, Thomas Clark, Charles Keen (Great Britain); /. A. Michelot, H. Bernard (France); Carl Schapper, J. Moll (Germany); /. Schabelitz, H. Krell (Switzerland); Peter Holm, Luntberg (Scandinavia); Louis Oborski (Poland); C. Pohse, P. Bluhm (Russia).
+
+[^1]: Your great want is political power as the means to effect your social emancipation; and until that political power is yours, let your resolve be: No vote, no musket! Give us the suffrage, or we will not fight!
+
+[^2]: Working men of Great Britain and Ireland! Hold in abhorrence the conspirators who would set nation against nation, in the name of that wicked lie, that men of different countries are "natural enemies". Rally round the banner of democracy, with its motto: "All men are brothers!"
+
+[^3]: Written on January 9, 1848
+
+[^4]: First published in La Réforme, January 10, 1848
+
+[^5]: Printed according to the newspaper
+
+[^6]: Translated from the French
+
+[^7]: Published in English for the first time
+
+
+
+Karl Marx
+
+THE SITUATION IN FRANCE
+
+What does the Ministry do?—Nothing. What does the parliamentary, legal opposition do?—Nothing. What can France expect from the present Chambers?—Nothing. What does M. Guizot want?—To remain Minister.
+
+What do Messrs Thiers, Mole and Company want?—To become ministers again.
+
+What does France gain from this ôte-toi, afin que je m'y mettea?— Nothing.
+
+Ministry and opposition are thus condemned to do nothing. Who alone will accomplish the coming French revolution?— The proletariat.
+
+What will the bourgeoisie do for this?—Nothing.
+
+[^1]: Written about January 16, 1848 Printed according to the Deutsche- „ , . . , . . , „ , „ .. , Brüsseler-Zeitung First published in the Deutscne-Brusseler-
+
+[^2]: Zeitung No. 5, January 16, 1848 and Published in English for the first in La Réforme, January 19, 1848 time
+
+[^3]: a Get out so that I can get in.—Ed.
+
+
+
+Frederick Engels
+
+EXTRAORDINARY REVELATIONS.—ABDEL-KADER.—
+
+GUIZOT'S FOREIGN POLICY
+
+A curious document has just been published and distributed,3 as if for a New Year's gift to the Chamber of Deputies. It is a statement of facts explaining how a certain M. Petit got the place of a tax collector (receveur particulier) at Corbeil, near Paris, and has been published by M. Petit himself. M. Petit has been forced to this act in consequence of a suit for separation pending between himself and his wife, and in which action it had been alleged that he had bought his place by prostituting his wife to a gentleman intimately connected with M. Guizot. He now declares in his publication—
+
+Then he goes on to detail how he first aspired to the office of a Councillor Referendary at the Court of Accounts. How the ministry promised him that place, if he only could procure the resignation of one of the councillors; how the minister's secretary intimated to him, which of the councillors would most likely sell their charge; how he then, for 15,000 francs, procured the wished-for resignation; how then he was told he must procure a resignation of a Councillor Referendary, not of the second, but of the first class, as the government wanted such a one in order to fulfil a promise made by them on their coming into office; how by makeshifts of different sorts, the difference of price of the two resignations was made up; how at last the resignation was procured; how then the ministry wanted not only a resignation like that tendered, but one of a higher
+
+[^1]: "Yes, my place was bought, as all places are bought now-a-day; but it was bought not with prostitution, but with hard cash only."
+
+[^2]: a "Réponse de M. Petit, ex-receveur des finances à Corbeil, aux calomnies répandues à l'occasion de son procès en séparation."—Ed.
+
+
+
+
+
+**[p. 470]**
+
+These are the principal facts of the matter. There are some others of less importance, proving how M. Petit, as soon as he was once hooked by having paid the first sum, was made to pay more and more. But these I pass over. I only mention, that in the publication of M. Petit all the names are given in full.
+
+You will easily imagine what a noise this little pamphlet has made in Paris. All papers are full of it, and the more so, as the Minister of Finance3 (to which department the Court of Accounts belongs) under whose direction the above transactions took place, had openly denied anything of the sort ever having occurred, when questioned about it in the Chamber by M. Luneau. M. Luneau, at the time, declared the sale of places in the above department to be a matter of public notoriety. Known to the majority, as well as to the opposition. Known to every one, in short, except, it appeared, to the minister himself. M. Lacave met this by a flat denial.251 Now the matter has come out in a manner which makes all burking impossible. And yet, although all Paris has been full of it for almost a week past, the government has not opened its mouth.
+
+We only repeat the words of M. Dupin the elder, pronounced when M. Luneau brought the matter forward in the Chamber—
+
+The next subject occupying the papers is the capture of Abd-el-Kader,252 and the resolution which the government will come to as to'his future location. There is no doubt they will confirm and execute the Duke D'Aumale's promise, and send the Emir to Egypt.253 It is curious that almost all the papers of the Opposition, from the National to the Constitutionnel, demanded the breach of that promise. Now, there is no doubt the promise was granted conditionally, and leaving the government free to confirm, or not to confirm it. The refusal of confirmation would not directly imply, as
+
+[^1]: "It was hardly worth while to make a revolution to abolish the venality of places, if this infamous system is suffered to lift up its head again."
+
+[^2]: a J. P. J. Lacave-Laplagne.—Ed.
+
+
+
+
+
+**[p. 471]**
+
+Réforme. The first, a monarchical paper, wanted it confirmed, because the government could not give the lie to a son of the king,3 to a son of France; thus reviving the old title of the princes of Royal blood before the revolution.
+
+"No", said the Réforme, "the matter is a delicate one—the honour of our country is implied; in such matters we had better be too generous than too narrow, and therefore, confirm the word given, were it even that of a prince."
+
+Again, the Réforme alone has taken the right view of the matter.
+
+Upon the whole it is, in our opinion, very fortunate that the Arabian chief has been taken. The struggle of the Bedouins was a hopeless one, and though the manner in which brutal soldiers, like Bugeaud, have carried on the war is highly blameable, the conquest of Algeria is an important and fortunate fact for the progress of civilisation. The piracies of the Barbaresque states, never interfered with by the English government as long as they did not disturb their ships, could not be put down but by the conquest of one of these states. And the conquest of Algeria has already forced the Beys of Tunis and Tripoli, and even the Emperor of Morocco,0 to enter upon the road of civilisation. They were obliged to find other employment for their people than piracy, and other means of filling their exchequer than tributes paid to them by the smaller states of Europe. And if we may regret that the liberty of the Bedouins of the desert has been destroyed, we must not forget that these same Bedouins were a nation of robbers,—whose principal means of living consisted of making excursions either upon each other, or upon the settled villagers, taking what they found, slaughtering all those who resisted, and selling the remaining prisoners as slaves. All these nations of free barbarians look very proud, noble and glorious at a
+
+[^1]: a Duke of Aumale, son of Louis Philippe.—Ed. b From articles in La Réforme, January 2, 3 and 5, 1848.—Ed. c Abd-ur-Rahman.— Ed.
+
+
+
+
+
+**[p. 472]**
+
+M. Guizot has laid before the Chambers part of the diplomatic correspondence relating to Switzerland and Italy. The first proves again that he has been regularly done by Lord Palmerston, and both prove the intimate alliance France has entered into with Austria. That was the last infamy which as yet had been spared to Louis-Philippistic France. The representative of tyranny, of oppres- sion attained by means the most infamous,—the country of stability and reaction, the ally of France, as reconstituted by two revolutions! Deeper she cannot sink. But this is quite well. The deeper the bourgeoisie brings down this country, the nearer draws the day of reckoning. And it will come, before the bourgeoisie think of it. There is a party they do not take into account, and that party is the noble, the generous, the brave French people.
+
+The dispute between the Réforme and the National* has been submitted to a jury selected by both parties. All hostilities are suspended. By the end of this month the decision will be given. May it be as it will, we hope the Réforme will continue in the only course which can save the Democracy of France.
+
+[^1]: Written in mid-January 1848 Reprinted from the newspaper
+
+[^2]: First published in The Northern Star No. 535, January 22, 1848 with an editorial note:
+
+[^3]: "From Our Paris Correspondent"
+
+[^4]: a See this volume, pp. 385-87, 406-08 and 438-44.—Ed.
+
+
+
+Frederick Engels
+
+THE CHARTIST MOVEMENT
+
+[MEETING IN SUPPORT OF THE NATIONAL PETITION]
+
+The fourth meeting convened for the adoption of the National Petition by the Chartist Council was held in London last Tuesday.3
+
+Mr. Julian Harney presided. Messrs Clark and Dixon, of the Chartist central committee,b West, of Macclesfield, Skelton, Keen, and Fussell spoke in turn. But the orators of the evening were Messrs Harney and Jones. We give extracts of their speeches0:
+
+Mr. Ernest Jones.—We are assembled here to assist in passing a Coercion Bill against the government, and to produce such a "pressure from without", as shall squeeze poor little Lord John Russell into something like a decent and statesman-like shape. We need this pressure, seeing that of all the parliaments we have had, the present parliament is assuredly the most hostile to working men. (A voice: No! no!) Someone says No. But I repeat that no class has ever proved as hostile to the working class as the middle class of England. (Hear, hear.) It has cast down aristocracy on the left, democracy on the right, and lives on the ruins of both. I do not wish to raise the aristocracy. No! Let the bruised serpent lie, for it would sting the hand that healed it
+
+[^1]: Under feudalism, the people were fat slaves; under your rule, Sir defender of the middle class, they are lean slaves. (Loud cheers.)
+
+[^2]: Seeing then that we never had a more middle class, and therefore a more hostile parliament, it is time to organise resistance. And the people knows this. We too are increasing our army; the Old Guards of Chartism are in the field again. We too are enrolling our militia, the starving millions. We too are strengthening our "national defences", courage in our hearts, discipline in our ranks, and unity in our action. (Applause.)
+
+[^3]: But there are some gentlemen here who are not satisfied with this, and who say that millions of determined, well organised and well informed men are insufficient to obtain the Charter. These gentlemen tell the people that they must grow rich and then
+
+[^4]: a January 11, 1848.—Ed.
+
+[^5]: The reference is to the Executive Committee of the National Charter Association.—Ed.
+
+[^6]: c Quoted from the report: "The People's Charter.—Important Public Meeting" published in The Northern Star.—Ed.
+
+
+
+
+
+**[p. 474]**
+
+Become rich! how? In the workhouse or the gaol? Become rich in the deer forests of our nobles? Become rich on six shillings (8 francs)a a week? Become rich in the churchyards of famished Ireland? (Applause.) Go tell it to the unemployed in Manchester—to the 20,000 destitute in Bradford. Go tell it to the Irish tenant, dying by the light of his burning cottage set on fire by his landlord. Go tell it to the beggar at the doors of Grosvenor Square! Go tell him once for all to stay a slave; but do not insult his misery by telling him to become rich! I know you will here point to our glorious Land Company54 to prove that the people can become rich But do you imagine that the government will let you go on? This company has succeeded in rescuing 50,000 families from ruin; but rest assured, Parliament will prevent you from forming other companies, unless you obtain political power! Let the Land Company members remember their forefathers, the yeomanry of England, who all owned the land. How did they lose it? Why, by taxation, which ruined them.
+
+Now then, gentlemen, make money, it will be wanted for the militia, for the increased army. Make money, it will be wanted for fresh palaces, for new bishops, for new royal babies! Make money, become middle class yourselves, and then, as you know, the middle class will no longer fear you! Make money—and this impossible task will be your only salvation. Not one word about our triumph at Nottingham, of our organisation, of our national petition and our National Convention, now being prepared.
+
+No, my friends, above all we need the vote And you, men of London, you have it more in your power to obtain it than your brothers in the rest of England Our gallant men of the north are a long way off; their voices will not be heard, for there are hundreds of miles and plenty of barracks between those petitioners and Parliament. But you, men of London, can go in person and knock at the doors of St. Stephen's,255
+
+[^1]: knock till your privileged debtors give you back, trembling, what they have owed you for centuries! So knock, and go on knocking until justice has been done. (Thunderous applause.)
+
+[^2]: Mr. Julian Harney.—We are here to adopt a petition to Parliament But we are not asking for mercy or pity. Even were we so degraded as to do such a thing, we know that we have nothing to expect from the pity of our oppressors It was not by crying misericordia that our forefathers rescued themselves from the yoke of the traitor Charles I. It was not by begging for merc,r that the Americans broke their chains. It was not by crying misericordia that the French people overthrew the tyranny of feudalism, priestcraft and monarchy. (Great cheering.)
+
+[^3]: No, it would be vain for us to implore Capital for mercy. All our petitions would achieve nothing if they were not followed by other measures. First, we do not ask for pity, we ask for justice. We demand it, not only by the petition, but also by our agitation and our organisation, which is already beginning to terrify the parliamentary middle class. Continue to agitate, then, for when you cease, your petitions are only empty words.
+
+[^4]: Truly, the prize is worth the struggle. Behold this mighty empire, built up by the strong arms and cemented by the blood of your fathers; this empire of 160 million inhabitants, covering the sixth part of the habitable globe, this empire on which "the sun never sets".0 How is it that you, owners and conquerors of millions of miles of this
+
+[^5]: a Here and below the French equivalents were inserted by Engels.—Ed.
+
+[^6]: An allusion to O'Connor's election to Parliament.—Ed. c A phrase used by contemporaries of king of Spain and German Emperor
+
+[^7]: Charles V about his domains where the "sun never sets".—Ed.
+
+
+
+
+
+**[p. 475]**
+
+Well, then! If the aristocrary fears the loss of its broad acres, let it fight for the protection of those acres! If the Church fears the confiscation of its immense revenues, let the parsons and bishops arm themselves! If the Jews and jobbers of 'Change Alley ö fear the swamping of their funds, let them fight to protect their plunder! If the shopocracy fear the seizure of their tills and their ledgers let them arm and fight to protect their property! But you, men of the people, overworked and ill-paid sons of toil, houseless and shivering serfs of privilege, you who have neither lands, nor revenues, nor rent nor tithes, nor public funds, nor shares, nor profits, nor usury, nor votes, to whom the throne affords no protection and the law no security, fight for something else, or fight not at all! (Great cheering.) If you must fight, fight for yourselves. (Renewed cheering.) When lords and priests and bourgeois ask you to fight, let your answer be: No vote, no musket! Knaves and fools are now rushing into print with talk of national defence; there is only one defence, that of the Chartists: The land for the people, every man a home, every man a vote, and every man a musket! (Thunderous applause.)
+
+[^1]: Written on January 17 and 18, 1848 Printed according to the newspaper
+
+[^2]: First published in La Réforme, Translated from the French January 19, 1848
+
+[^3]: Published in English for the first time
+
+
+
+
+
+Karl Marx
+
+and Frederick Engels
+
+MANIFESTO OF THE COMMUNIST PARTY257
+
+
+
+[^1]: Written in December 1847-January 1848 Printed according to the text of the
+
+[^2]: First published as a separate edition English edition of 1888, checked with in London in February 1848 the German editions of 1848, 1872,
+
+[^3]: 1883 and 1890
+
+
+
+« H f f < ft
+
+ï>er
+
+$Uniiimiiiifttfd>at ^«rtci.
+
+g Scrôffentïi^t im ftebruar i848.
+
+bonbon.
+
+[^1]: "Proletarier aller Sànbtr «rmnigt (.»u<i)i !
+
+[^2]: ©ebrutft m ber Office ber „ S U b u n ^ - W c f d f f d m f f für älrbcifer' von $. ffi. Jurjlji Hli.
+
+[^3]: 46, LIVERPOOL STREBT, BISHOPS«.'AIE.
+
+[^4]: Cover of the first G e r m a n 23-page edition of the Manifesto of the Communist Party
+
+
+
+
+
+A spectre is haunting Europe—the spectre of Communism. All the Powers of old Europe have entered into a holy alliance to exorcise this spectre: Pope and Czar, Metternich and Guizot, French Radicals and German police-spies.
+
+Where is the party in opposition that has not been decried as Communistic by its opponents in power? Where the Opposition that has not hurled back the branding reproach of Communism, against the more advanced opposition parties, as well as against its reactionary adversaries?
+
+Two things result from this fact:
+
+I. Communism is already acknowledged by all European Powers to be itself a Power.
+
+II. It is high time that Communists should openly, in the face of the whole world, publish their views, their aims, their tendencies, and meet this nursery tale of the Spectre of Communism with a Manifesto of the party itself.
+
+To this end, Communists of various nationalities have assembled in London, and sketched the following Manifesto, to be published in the English, French, German, Italian, Flemish and Danish lan- guages.
+
+I
+
+BOURGEOIS AND PROLETARIANS*
+
+The history of all hitherto existing society** is the history of class struggles.
+
+Freeman and slave, patrician and plebeian, lord and serf, guild-master*** and journeyman, in a word, oppressor and op- pressed, stood in constant opposition to one another, carried on an uninterrupted, now hidden, now open fight, a fight that each time ended, either in a revolutionary re-constitution of society at large, or in the common ruin of the contending classes.
+
+In the earlier epochs of history, we find almost everywhere a complicated arrangement of society into various orders, a manifold
+
+[^1]: * By bourgeoisie is meant the class of modern Capitalists, owners of the means of social production and employers of wage-labour. By proletariat, the class of modern wage-labourers who, having no means of production of their own, are reduced to selling their labour-power in order to live. [Note by Engels to the English edition of 1888.]
+
+[^2]: ** That is, all written history. In 1847, the pre-history of society, the social organisation existing previous to recorded history, was all but unknown. Since then, Haxthausen discovered common ownership of land in Russia, Maurer proved it to be the social foundation from which all Teutonic races started in history, and by and by village communities were found to be, or to have been the primitive form of society everywhere from India to Ireland. The inner organisation of this primitive Communistic society was laid bare, in its typical form, by Morgan's crowning discovery of the true nature of the gens and its relation to the tribe. With the dissolution of these primeval communities society begins to be differentiated into separate and finally antagonistic classes. I have attempted to retrace this process of dissolution in Der Ursprung der Familie, des Privateigenthums und des Staats, 2nd edition, Stuttgart, 1886. [Note by Engels to the English edition of 1888, and—less the last sentence—to the German edition of 1890.]
+
+[^3]: *** Guild-master, that is, a full member of a guild, a master within, not a head of a. guild. [Note by Engels to the English edition of 1888.]
+
+
+
+
+
+[^1]: Cover of the 1848 30-page edition of the Manifesto of the Communist Party
+
+
+
+
+
+
+
+**[p. 485]**
+
+The modern bourgeois society that has sprouted from the ruins of feudal society has not done away with class antagonisms. It has but established new classes, new conditions of oppression, new forms of struggle in place of the old ones.
+
+Our epoch, the epoch of the bourgeoisie, possesses, however, this distinctive feature: it has simplified the class antagonisms. Society as a whole is more and more splitting up into two great hostile camps, into two great classes directly facing each other: Bourgeoisie and Proletariat.
+
+From the serfs of the Middle Ages sprang the chartered burghers of the earliest towns. From these burgesses the first elements of the bourgeoisie were developed.
+
+The discovery of America, the rounding of the Cape, opened up fresh ground for the rising bourgeoisie. The East-Indian and Chinese markets, the colonisation of America, trade with the colonies, the increase in the means of exchange and in commodities generally, gave to commerce, to navigation, to industry, an impulse never before known, and thereby, to the revolutionary element in the tottering feudal society, a rapid development.
+
+The feudal system of industry, under which industrial production was monopolised by closed guilds,b now no longer sufficed for the growing wants of the new markets. The manufacturing system took its place. The guild-masters were pushed on one side by the manufacturing middle class;c division of labour between the different corporate guilds vanished in the face of division of labour in each single workshop.
+
+Meantime the markets kept ever growing, the demand ever rising. Even manufacture no longer sufficed. Thereupon, steam and machinery revolutionised industrial production. The place of manufacture was taken by the giant, Modern Industry, the place of the industrial middle class, by industrial millionaires, the leaders of whole industrial armies, the modern bourgeois.
+
+[^1]: a The German editions of 1848. 1872, 1883 and 1890 have "journeymen" ("Gesellen") instead of "journeymen, apprentices".—Ed.
+
+[^2]: In the German editions the beginning of the phrase is: "The former feudal, or guild, organisation of industry".— Ed.
+
+[^3]: The German editions have here and below "middle estate" ("Mittelstand") instead of "middle class".—Ed.
+
+[^4]: 17*
+
+
+
+
+
+**[p. 486]**
+
+We see, therefore, how the modern bourgeoisie is itself the product of a long course of development, of a series of revolutions in the modes of production and of exchange.
+
+Each step in the development of the bourgeoisie was accompanied by a corresponding political advance of that class.b An oppressed classc under the sway of the feudal nobility, an armed and self-governing association in the medieval commune*; here indepen- dent urban republic (as in Italy and Germany), there taxable "third estate" of the monarchy (as in France),d afterwards, in the period of manufacture proper, serving either the semi-feudalc or the absolute monarchy as a counterpoise against the nobility, and, in fact, cornerstone of the great monarchies in general, the bourgeoisie has at last, since the establishment of Modern Industry and of the world market, conquered for itself, in the modern representative State, exclusive political sway. The executive of the modern State is but a committee for managing the common affairs of the whole bour- geoisie.
+
+The bourgeoisie, historically, has played a most revolutionary part. The bourgeoisie, wherever it has got the upper hand, has put an end to all feudal, patriarchal, idyllic relations. It has pitilessly torn
+
+[^1]: * "Commune" was the name taken, in France, by the nascent towns even before they had conquered from their feudal lords and masters local self-government and political rights as the "Third Estate". Generally speaking, for the economical development of the bourgeoisie, England is here taken as the typical country; for its political development, France. [Note by Engels to the English edition of 1888.]
+
+[^2]: This was the name given their urban communities by the townsmen of Italy and France, after they had purchased or wrested their initial rights of self-government from their feudal lords. [Note by Engels to the German edition of 1890.]
+
+[^3]: a The German editions have here and below "large-scale" instead of "modern".—Ed.
+
+[^4]: b The words "of that class" were added in the English edition of 1888.—Ed.
+
+[^5]: c The German editions have "estate" instead of "class".—Ed.
+
+[^6]: The words "medieval", "(as in Italy and Germany)", "(as in France)" were added in the English edition of 1888.—Ed.
+
+[^7]: e The German editions have "estate" instead of "semi-feudal".—Ed.
+
+
+
+
+
+**[p. 487]**
+
+The bourgeoisie has stripped of its halo every occupation hitherto honoured and looked up to with reverent awe. It has converted the physician, the lawyer, the priest, the poet, the man of science, into its paid wage-labourers.
+
+The bourgeoisie has torn away from the family its sentimental veil, and has reduced the family relation to a mere money relation.
+
+The bourgeoisie has disclosed how it came to pass that the brutal display of vigour in the Middle Ages, which Reactionists so much admire, found its fitting complement in the most slothful indolence. It has been the first to show what man's activity can bring about. It has accomplished wonders far surpassing Egyptian pyramids, Roman aqueducts, and Gothic cathedrals; it has conducted expedi- tions that put in the shade all former Exoduses of nations and crusades.
+
+The bourgeoisie cannot exist without constantly revolutionising the instruments of production, and thereby the relations of production, and with them the whole relations of society. Conserva- tion of the old modes of production in unaltered form, was, on the contrary, the first condition of existence for all earlier industrial classes. Constant revolutionising of production, uninterrupted disturbance of all social conditions, everlasting uncertainty and agitation distinguish the bourgeois epoch from all earlier ones. All fixed, fast-frozen relations, with their train of ancient and venerable prejudices and opinions, are swept away, all new-formed ones become antiquated before they can ossify. All that is solid melts into air, all that is holy is profaned, and man is at last compelled to face with sober senses, his real conditions of life, and his relations with his kind.
+
+The need of a constantly expanding market for its products chases the bourgeoisie over the whole surface of the globe. It must nestle everywhere, settle everywhere, establish connexions every- where.
+
+
+
+**[p. 488]**
+
+The bourgeoisie, by the rapid improvement of all instruments of production, by the immensely facilitated means of communication, draws all, even the most barbarian, nations into civilisation. The cheap prices of its commodities are the heavy artillery with which it batters down all Chinese walls, with which it forces the barbarians' intensely obstinate hatred of foreigners to capitulate. It compels all nations, on pain of extinction, to adopt the bourgeois mode of production; it compels them to introduce what it calls civilisation into their midst, i.e., to become bourgeois themselves. In one word, it creates a world after its own image.
+
+The bourgeoisie has subjected the country to the rule of the towns. It has created enormous cities, has greatly increased the urban population as compared with the rural, and has thus rescued a considerable part of the population from the idiocy of rural life. Just as it has made the country dependent on the towns, so it has made barbarian and semi-barbarian countries dependent on the civilised ones, nations of peasants on nations of bourgeois, the East on the West.
+
+The bourgeoisie keeps more and more doing away with the scattered state of the population, of the means of production, and of property. It has agglomerated population, centralised means of production, and has concentrated property in a few hands. The necessary consequence of this was political centralisation. Indepen-
+
+
+
+**[p. 489]**
+
+The bourgeoisie, during its rule of scarce one hundred years, has created more massive and more colossal productive forces than have all preceding generations together. Subjection of Nature's forces to man, machinery, application of chemistry to industry and agricul- ture, steam-navigation, railways, electric telegraphs, clearing of whole continents for cultivation, canalisation of rivers, whole populations conjured out of the ground—what earlier century had even a presentiment that such productive forces slumbered in the lap of social labour?
+
+We see then: the means of production and of exchange, on whose foundation the bourgeoisie built itself up, were generated in feudal society. At a certain stage in the development of these means of production and of exchange, the conditions under which feudal society produced and exchanged, the feudal organisation of agriculture and manufacturing industry, in one word, the feudal relations of property became no longer compatible with the already developed productive forces3; they became so many fetters. They had to be burst asunder; they were burst asunder.
+
+Into their place stepped free competition, accompanied by a social and political constitution adapted to it, and by the economical and political sway of the bourgeois class.
+
+A similar movement is going on before our own eyes. Modern bourgeois society with its relations of production, of exchange and of property, a society that has conjured up such gigantic means of production and of exchange, is like the sorcerer, who is no longer able to control the powers of the nether world whom he has called up by his spells. For many a decade past the history of industry and commerce is but the history of the revolt of modern productive forces against modern conditions of production, against the property relations that are the conditions for the existence of the bourgeoisie and of its rule. It is enough to mention the commercial crises that by their periodical return put on its trial, each time more threateningly, the existence of the entire bourgeois society. In these crises a great part not only of the existing products, but also of the previously created productive forces, are periodically destroyed. In
+
+[^1]: a The German editions add: "they hindered production instead of developing it".—Ed.
+
+
+
+
+
+**[p. 490]**
+
+The weapons with which the bourgeoisie felled feudalism to the ground are now turned against the bourgeoisie itself.
+
+But not only has the bourgeoisie forged the weapons that bring death to itself; it has also called into existence the men who are to wield those weapons—the modern working class—the proletarians.0
+
+In proportion as the bourgeoisie, i.e., capital, is developed, in the same proportion is the proletariat, the modern working class, developed—a class of labourers, who live only so long as they find work, and who find work only so long as their labour increases capital. These labourers, who must sell themselves piecemeal, are a commodity, like every other article of commerce, and are conse- quently exposed to all the vicissitudes of competition, to all the fluctuations of the market.
+
+Owing to the extensive use of machinery and to division of labour, the work of the proletarians has lost all individual character, and, consequently, all charm for the workman. He becomes an append-
+
+[^1]: a The German editions have: "a social epidemic".—Ed.
+
+[^2]: The German editions of 1848 have: "bourgeois civilisation and the conditions of bourgeois property".—Ed.
+
+[^3]: c The German editions have: "the modern workers, the proletarians".—Ed.
+
+
+
+
+
+**[p. 491]**
+
+Modern industry has converted the little workshop of the patriarchal master into the great factory of the industrial capitalist. Masses of labourers, crowded into the factory, are organised like soldiers. As privates of the industrial army they are placed under the command of a perfect hierarchy of officers and sergeants. Not only are they slaves of the bourgeois class, and of the bourgeois State; they are daily and hourly enslaved by the machine, by the overlooker, and, above all, by the individual bourgeois manufacturer himself. The more openly this despotism proclaims gain to be its end and aim, the more petty, the more hateful and the more embittering it is.
+
+The less the skill and exertion of strength implied in manual labour, in other words, the more modern industry becomes developed, the more is the labour of men superseded by that of women.11 Differences of age and sex have no longer any distinctive social validity for the working class. All are instruments of labour, more or less expensive to use, according to their age and sex.
+
+No sooner is the exploitation of the labourer by the manufacturer, so far, at an end, and he receives his wages in cash, than he is set upon by the other portions of the bourgeoisie, the landlord, the shopkeeper, the pawnbroker, etc.
+
+The lower strata of the middle classc—the small tradespeople, shopkeepers, and retired tradesmen generally,d the handicraftsmen and peasants—all these sink gradually into the proletariat, partly
+
+[^1]: a The German editions have: "the quantity of labour".—Ed.
+
+[^2]: b The German 23-page edition of 1848 has: "of women and children".—Ed. c The German editions have: "The former lower strata of the middle estate".—Ed.
+
+[^3]: d The German editions have: "and rentiers" instead of "and retired tradesmen generally".—Ed.
+
+
+
+
+
+**[p. 492]**
+
+The proletariat goes through various stages of development. With its birth begins its struggle with the bourgeoisie. At first the contest is carried on by individual labourers, then by the workpeople of a factory, then by the operatives of one trade, in one locality, against the individual bourgeois who directly exploits them. They direct their attacks not against the bourgeois conditions of production, but against the instruments of production themselves3; they destroy imported wares that compete with their labour, they smash to pieces machinery, they set factories ablaze, they seek to restore by force the vanished status of the workman of the Middle Ages.
+
+At this stage the labourers still form an incoherent13 mass scattered over the whole country, and broken up by their mutual competition. If anywhere they unite to form more compact bodies, this is not yet the consequence of their own active union, but of the union of the bourgeoisie, which class, in order to attain its own political ends, is compelled to set the whole proletariat in motion, and is moreover yet, for a time, able to do so. At this stage, therefore, the proletarians do not fight their enemies, but the enemies of their enemies, the remnants of absolute monarchy, the landowners, the non-industrial bourgeois, the petty bourgeoisie. Thus the whole historical move- ment is concentrated in the hands of the bourgeoisie; every victory so obtained is a victory for the bourgeoisie.
+
+But with the development of industry the proletariat not only increases in number; it becomes concentrated in greater masses, its strength grows, and it feels that strength more. The various interests and conditions of life within the ranks of the proletariat are more and more equalised, in proportion as machinery obliterates all distinctions of labour, and nearly everywhere reduces wages to the same low level. The growing competition among the bourgeois, and the resulting commercial crises, make the wages of the workers ever more fluctuating. The unceasing improvement of machinery, ever more rapidly developing, makes their livelihood more and more precarious; the collisions between individual workmen and individu-
+
+[^1]: a The German editions have: "They direct their attacks not only against the bourgeois conditions of production, they direct them against the instruments of production themselves."—Ed.
+
+[^2]: b This word was inserted in the English edition of 1888.—Ed.
+
+
+
+
+
+**[p. 493]**
+
+Now and then the workers are victorious, but only for a time. The real fruit of their battles lies, not in the immediate result, but in the ever-expanding union of the workers. This union is helped on by the improved means of communication that are created by modern industry and that place the workers of different localities in contact with one another. It was just this contact that was needed to centralise the numerous local struggles, all of the same character, into one national struggle between classes. But every class struggle is a political struggle. And that union, to attain which the burghers of the Middle Ages, with their miserable highways, required centu- ries, the modern proletarians, thanks to railways, achieve in a few years.
+
+This organisation of the proletarians into a class, and consequently into a political party, is continually being upset again by the competition between the workers themselves. But it ever rises up again, stronger, firmer, mightier. It compels legislative recognition of particular interests of the workers, by taking advantage of the divisions among the bourgeoisie itself. Thus the ten-hours' bill in England was carried.259
+
+Altogether collisions between the classes of the old society further, in many ways, the course of development of the proletariat. The bourgeoisie finds itself involved in a constant battle. At first with the aristocracy; later on, with those portions of the bourgeoisie itself, whose interests have become antagonistic to the progress of industry; at all times, with the bourgeoisie of foreign countries. In all these battles it sees itself compelled to appeal to the proletariat, to ask for its help, and thus, to drag it into the political arena. The bourgeoisie itself, therefore, supplies the proletariat with its own elements of political and general13 education, in other words, it furnishes the proletariat with weapons for fighting the bourgeoisie.
+
+Further, as we have already seen, entire sections of the ruling classes are, by the advance of industry, precipitated into the proletariat, or are at least threatened in their conditions of existence.
+
+[^1]: a The words in parentheses were inserted in the English edition of 1888.—Ed. The words "political and general" were added in the English edition of 1888.—Ed.
+
+
+
+
+
+**[p. 494]**
+
+Finally, in times when the class struggle nears the decisive hour, the process of dissolution going on within the ruling class, in fact within the whole range of old society, assumes such a violent, glaring character, that a small section of the ruling class cuts itself adrift, and joins the revolutionary class, the class that holds the future in its hands. Just as, therefore, at an earlier period, a section of the nobility went over to the bourgeoisie, so now a portion of the bourgeoisie goes over to the proletariat, and in particular, a portion of the bourgeois ideologists, who have raised themselves to the level of comprehending theoretically the historical movement as a whole.
+
+Of all the classes that stand face to face with the bourgeoisie today, the proletariat alone is a really revolutionary class. The other classes decay and finally disappear in the face of Modern Industry; the proletariat is its special and essential product.
+
+The lower middle class,b the small manufacturer, the shopkeeper, the artisan, the peasant, all these fight against the bourgeoisie, to save from extinction their existence as fractions of the middle class. They are therefore not revolutionary, but conservative. Nay more, they are reactionary, for they try to roll back the wheel of history. If by chance they are revolutionary, they are so only in view of their impending transfer into the proletariat, they thus defend not their present, but their future interests, they desert their own standpoint to place themselves at that of the proletariat.
+
+The "dangerous class", the social scum,c that passively rotting mass thrown off by the lowest layers of old society may, here and there, be swept into the movement by a proletarian revolution; its conditions of life, however, prepare it far more for the part of a bribed tool of reactionary intrigue.
+
+In the conditions of the proletariat, those of old society at large are already virtually swamped. The proletarian is without property; his relation to his wife and children has no longer anything in common with the bourgeois family relations; modern industrial labour, modern subjection to capital, the same in England as in France, in America as in Germany, has stripped him of every trace of national character. Law, morality, religion, are to him so many bourgeois
+
+[^1]: a The German editions have "elements of education" instead of "elements of enlightenment and progress".—Ed.
+
+[^2]: The German editions have here and below "middle estates" instead of "the lower middle class" and "the middle class".—Ed.
+
+[^3]: The German editions have "lumpen proletariat" instead of "the dangerous class, the social scum".—Ed.
+
+
+
+
+
+**[p. 495]**
+
+All the preceding classes that got the upper hand, sought to fortify their already acquired status by subjecting society at large to their conditions of appropriation. The proletarians cannot become masters of the productive forces of society, except by abolishing their own previous mode of appropriation, and thereby also every other previous mode of appropriation. They have nothing of their own to secure and to fortify; their mission is to destroy all previous securities for, and insurances of, individual property.
+
+All previous historical3 movements were movements of minorities, or in the interest of minorities. The proletarian movement is the self-conscious,3 independent movement of the immense majority, in the interest of the immense majority. The proletariat, the lowest stratum of our present society, cannot stir, cannot raise itself up, without the whole superincumbent strata of official society being sprung into the air.
+
+Though not in substance, yet in form, the struggle of the proletariat with the bourgeoisie is at first a national struggle. The proletariat of each country must, of course, first of all settle matters with its own bourgeoisie.
+
+In depicting the most general phases of the development of the proletariat, we traced the more or less veiled civil war, raging within existing society, up to the point where that war breaks out into open revolution, and where the violent overthrow of the bourgeoisie lays the foundation for the sway of the proletariat.
+
+Hitherto, every form of society has been based, as we have already seen, on the antagonism of oppressing and oppressed classes. But in order to oppress a class, certain conditions must be assured to it under which it can, at least, continue its slavish existence. The serf, in the period of serfdom, raised himself to membership in the commune, just as the petty bourgeois, under the yoke of feudal absolutism, managed to develop into a bourgeois. The modern labourer, on the contrary, instead of rising with the progress of industry, sinks deeper and deeper below the conditions of existence of his own class. He becomes a pauper, and pauperism develops more rapidly than population and wealth. And here it becomes evident, that the bourgeoisie is unfit any longer to be the ruling class in society, and to impose its conditions of existence upon society as an over-riding law. It is unfit to rule because it is incompetent to assure an existence to its slave within his slavery, because it cannot help
+
+[^1]: 3 This word was added in the English edition of 1888.—Ed.
+
+
+
+
+
+**[p. 496]**
+
+The essential condition for the existence, and for the sway of the bourgeois class, isa the formation and augmentation of capital; the condition for capital is wage-labour. Wage-labour rests exclusively on competition between the labourers. The advance of industry, whose involuntary promoter is the bourgeoisie, replaces the isolation of the labourers, due to competition, by their revolutionary combination, due to association. The development of Modern Industry, therefore, cuts from under its feet the very foundation on which the bourgeoisie produces and appropriates products. What the bour- geoisie, therefore, produces, above all, is its own grave-diggers. Its fall and the victory of the proletariat are equally inevitable.
+
+[^1]: a The German editions have here: "The accumulation of wealth in the hands of i ndividuals".—Ed.
+
+
+
+II
+
+PROLETARIANS AND COMMUNISTS
+
+In what relation do the Communists stand to the proletarians as a whole?
+
+The Communists do not form a separate party opposed to other working-class parties.
+
+They have no interests separate and apart from those of the proletariat as a whole.
+
+They do not set up any sectarian3 principles of their own, by which to shape and mould the proletarian movement.
+
+The Communists are distinguished from the other working-class parties by this only: 1. In the national struggles of the proletarians of the different countries, they point out and bring to the front the common interests of the entire proletariat, independently of all nationality. 2. In the various stages of development which the struggle of the working class against the bourgeoisie has to pass through, they always and everywhere represent the interests of the movement as a whole.
+
+The Communists, therefore, are on the one hand, practically, the most advanced andb resolute section of the working-class parties of every country, that section which pushes forward all others; on the other hand, theoretically, they have over the great mass of the proletariat the advantage of clearly understanding the line of march, the conditions, and the ultimate general results of the proletarian movement.
+
+[^1]: a The German editions have "separate" instead of "sectarian".—Ed. The words "the most advanced and" were added in the English edition of 1888.—Ed.
+
+
+
+
+
+**[p. 498]**
+
+The theoretical conclusions of the Communists are in no way based on ideas or principles that have been invented, or discovered by this or that would-be universal reformer.
+
+They merely express, in general terms, actual relations springing from an existing class struggle, from a historical movement going on under our very eyes. The abolition of existing property relations is not at all a distinctive feature of Communism.
+
+All property relations in the past have continually been subject to historical change consequent upon the change in historical condi- tions.3
+
+The French Revolution, for example, abolished feudal property in favour of bourgeois property.
+
+The distinguishing feature of Communism is not the abolition of property generally, but the abolition of bourgeois property. But modern bourgeois private property is the final and most complete expression of the system of producing and appropriating products, that is based on class antagonisms, on the exploitation of the many by the few.b
+
+In this sense, the theory of the Communists may be summed up in the single sentence: Abolition of private property.
+
+We Communists have been reproached with the desire of abolishing the right of personally acquiring property as the fruit of a man's own labour, which property is alleged to be the groundwork of all personal freedom, activity and independence.
+
+Hard-won, self-acquired, self-earned property! Do you mean the property of the petty artisanc and of the small peasant, a form of property that preceded the bourgeois form? There is no need to abolish that; the development of industry has to a great extent already destroyed it, and is still destroying it daily.
+
+Or do you mean modern bourgeois private property? But does wage-labour create any property for the labourer? Not a bit. It creates capital, i.e., that kind of property which exploits wage-labour, and which cannot increase except upon condition of begetting a new supply of wage-labour for fresh exploitation.
+
+[^1]: In the German editions this phrase reads: "All property relations have been subject to constant historical replacement, constant historical change."—Ed.
+
+[^2]: The German editions have: "the exploitation of the ones by the others".—Ed. The German editions have: "the property of the petty bourgeois".—Ed.
+
+
+
+
+
+**[p. 499]**
+
+To be a capitalist is to have not only a purely personal, but a social status in production. Capital is a collective product, and only by the united action of many members, nay, in the last resort, only by the united action of all members of society, can it be set in motion.
+
+Capital is, therefore, not a personal, it is a social power. When, therefore, capital is converted into common property, into the property of all members of society, personal property is not thereby transformed into social property. It is only the social character of the property that is changed. It loses its class character.
+
+Let us now take wage-labour. The average price of wage-labour is the minimum wage, i.e., that quantum of the means of subsistence, which is absolutely requisite to keep the labourer in bare existence as a labourer. What, therefore, the wage-labourer appropriates by means of his labour, merely suffices to prolong and reproduce a bare existence. We by no means intend to abolish this personal appropriation of the products of labour, an appropriation that is made for the maintenance and reproduction of human life, and that leaves no surplus wherewith to command the labour of others. All that we want to do away with is the miserable character of this appropriation, under which the labourer lives merely to increase capital, and is allowed to live only in so far as the interest of the ruling class requires it.
+
+In bourgeois society, living labour is but a means to increase accumulated labour. In Communist society, accumulated labour is but a means to widen, to enrich, to promote the existence of the labourer.
+
+In bourgeois society, therefore, the past dominates the present; in Communist society, the present dominates the past. In bourgeois society capital is independent and has individuality, while the living person is dependent and has no individuality.
+
+And the abolition of this state of things is called by the bourgeois abolition of individuality and freedom! And rightly so. The abolition of bourgeois individuality, bourgeois independence, and bourgeois freedom is undoubtedly aimed at.
+
+By freedom is meant, under the present bourgeois conditions of production, free trade, free selling and buying.
+
+But if selling and buying disappears, free selling and buying disappears also. This talk about free selling and buying, and all the other "brave words" of our bourgeoisie about freedom in general, have a meaning, if any, only in contrast with restricted selling and
+
+
+
+**[p. 500]**
+
+You are horrified at our intending to do away with private property. But in your existing society, private property is already done away with for nine-tenths of the population; its existence for the few3 is solely due to its non-existence in the hands of those nine-tenths. You reproach us, therefore, with intending to do away with a form of property, the necessary condition for whose existence is the non-existence of any property for the immense majority of society.
+
+In one word, you reproach us with intending to do away with your property. Precisely so; that is just what we intend.
+
+From the moment when labour can no longer be converted into capital, money, or rent, into a social power capable of being monopolised, i.e., from the moment when individual property can no longer be transformed into bourgeois property, into capital,0
+
+from that moment, you say, individuality vanishes.
+
+You must, therefore, confess that by "individual" you mean no other person than the bourgeois, than the middle-class owner of property. This person must, indeed, be swept out of the way, and made impossible.0
+
+Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriation.
+
+It has been objected that upon the abolition of private property all work will cease, and universal laziness will overtake us.
+
+According to this, bourgeois society ought long ago to have gone to the dogs through sheer idleness; for those of its members who work, acquire nothing, and those who acquire anything, do not work. The whole of this objection is but another expression of the tautology: that there can no longer be any wage-labour when there is no longer any capital.
+
+All objections urged against the Communistic mode of producing and appropriating material products, have, in the same way, been urged against the Communistic modes of producing and appropri- ating intellectual products. Just as, to the bourgeois, the disap-
+
+[^1]: a The words "for the few" were added in the English edition of 1888.—Ed. b The words "into capital" were added in the English edition of 1888.—Ed. c The words "and made impossible" were added in the English edition of 1888.—Ed.
+
+
+
+
+
+**[p. 501]**
+
+That culture, the loss of which he laments, is, for the enormous majority, a mere training to act as a machine.
+
+But don't wrangle with us so long as you apply, to our intended6
+
+abolition of bourgeois property, the standard of your bourgeois notions of freedom, culture, law, &c. Your very ideas are but the outgrowth of the conditions of your bourgeois production and bourgeois property, just as your jurisprudence is but the will of your class made into a law for all, a will, whose essential character and direction are determined by the economical conditions of existence of your class.0
+
+The selfish misconception that induces you to transform into eternal laws of nature and of reason, the social forms springing from your present mode of production and form of property—historical relations that rise and disappear in the progress of production—this misconception you share with every ruling class that has preceded you.d What you see clearly in the case of ancient property, what you admit in the case of feudal property, you are of course forbidden to admit in the case of your own bourgeois form of property.
+
+Abolition of the family! Even the most radical flare up at this infamous proposal of the Communists.
+
+On what foundation is the present family, the bourgeois family, based? On capital, on private gain. In its completely developed form this family exists only among the bourgeoisie. But this state of things finds its complement in the practical absence of the family among the proletarians, and in public prostitution.
+
+The bourgeois family will vanish as a matter of course when its complement vanishes, and both will vanish with the vanishing of capital.
+
+Do you charge us with wanting to stop the exploitation of children by their parents? To this crime we plead guilty.
+
+But, you will say, we destroy the most hallowed of relations, when we replace home education by social.
+
+[^1]: a The German editions have here and below "education" ["Bildung"] instead of "culture".—Ed.
+
+[^2]: The words "our intended" were inserted in the English edition of 1888.—Ed. c In the German editions the end of this sentence reads as follows: "a will, whose content is determined by the material conditions of existence of your class."—Ed.
+
+[^3]: d In the German editions this sentence reads as follows: "This selfish conception you share with all the ruling classes which have perished."—Ed.
+
+
+
+
+
+**[p. 502]**
+
+The bourgeois clap-trap about the family and education, about the hallowed co-relation of parent and child, becomes all the more disgusting, the more, by the action of Modern Industry, all family ties among the proletarians are torn asunder, and their children transformed into simple articles of commerce and instruments of labour.
+
+But you Communists would introduce community of women, screams the whole bourgeoisie in chorus.
+
+The bourgeois sees in his wife a mere instrument of produc- tion. He hears that the instruments of production are to be ex- ploited in common, and, naturally, can come to no other conclu- sion than that the lot of being common to all will likewise fall to the women.
+
+He has not even a suspicion that the real point aimed at is to do away with the status of women as mere instruments of produc- tion.
+
+For the rest, nothing is more ridiculous than the virtuous indignation of our bourgeois at the community of women which, they pretend, is to be openly and officially established by the Communists. The Communists have no need to introduce communi- ty of women; it has existed almost from time immemorial.
+
+Our bourgeois, not content with having the wives and daughters of their proletarians at their disposal, not to speak of common prostitutes, take the greatest pleasure in seducing each other's wives.
+
+Bourgeois marriage is in reality a system of wives in common and thus, at the most, what the Communists might possibly be reproached with, is that they desire to introduce, in substitution for a hypocritically concealed, an openly legalised community of women. For the rest, it is self-evident that the abolition of the present system of production must bring with it the abolition of the community of women springing from that system, i.e., of prostitution both public and private.
+
+The Communists are further reproached with desiring to abolish countries and nationality.
+
+The working men have no country. We cannot take from them what they have not got. Since the proletariat must first of all acquire
+
+
+
+**[p. 503]**
+
+must constitute itself the nation, it is so far, itself national, though not in the bourgeois sense of the word.
+
+National differences and antagonisms between peoples are daily more and more vanishing, owing to the development of the bourgeoisie, to freedom of commerce, to the world market, to uniformity in the mode of production and in the conditions of life corresponding thereto.
+
+The supremacy of the proletariat will cause them to vanish still faster. United action, of the leading civilised countries at least, is one of the first conditions for the emancipation of the proletariat.
+
+In proportion as the exploitation of one individual by another is put an end to, the exploitation of one nation by another will also be put an end to. In proportion as the antagonism between classes within the nation vanishes, the hostility of one nation to another will come to an end.
+
+The charges against Communism made from a religious, a philosophical, and, generally, from an ideological standpoint, are not deserving of serious examination.
+
+Does it require deep intuition to comprehend that man's ideas, views and conceptions, in one word, man's consciousness, changes with every change in the conditions of his material existence, in his social relations and in his social life?
+
+What else does the history of ideas prove, than that intellectual production changes its character in proportion as material produc- tion is changed? The ruling ideas of each age have ever been the ideas of its ruling class.
+
+When people speak of ideas that revolutionise society, they do but express the fact, that within the old society, the elements of a new one have been created, and that the dissolution of the old ideas keeps even pace with the dissolution of the old conditions of existence.
+
+When the ancient world was in its last throes, the ancient religions were overcome by Christianity. When Christian ideas succumbed in the 18th century to rationalist ideas,c feudal society fought its death battle with the then revolutionary bourgeoisie. The ideas of religious liberty and freedom of conscience merely gave expression to the sway of free competition within the domain of knowledge.
+
+[^1]: d The German editions of 1848 have "the national class" instead of "the leading class of the nation".—Ed.
+
+[^2]: b The word "material" was added in the English edition of 1888.—Ed. c The German editions have "the ideas of enlightenment" instead of "rationalist ideas".—Ed.
+
+
+
+
+
+**[p. 504]**
+
+"There are, besides, eternal truths, such as Freedom, Justice, etc., that are common to all states of society. But Communism abolishes eternal truths, it abolishes all religion and all morality, instead of constituting them on a new basis; it therefore acts in contradiction to all past historical experience."
+
+What does this accusation reduce itself to? The history of all past society has consisted in the development of class antagonisms, antagonisms that assumed different forms at different epochs.
+
+But whatever form they may have taken, one fact is common to all past ages, viz., the exploitation of one part of society by the other. No wonder, then, that the social consciousness of past ages, despite all the multiplicity and variety it displays, moves within certain common forms, or general ideas,b which cannot completely vanish except with the total disappearance of class antagonisms.
+
+The Communist revolution is the most radical rupture with traditional property relations; no wonder that its development involves the most radical rupture with traditional ideas.
+
+But let us have done with the bourgeois objections to Communism. We have seen above, that the first step in the revolution by the working class is to raise the proletariat to the position of ruling class, to win the battle of democracy.
+
+The proletariat will use its political supremacy to wrest, by degrees, all capital from the bourgeoisie, to centralise all instru- ments of production in the hands of the State, i.e., of the proletariat organised as the ruling class; and to increase the total of productive forces as rapidly as possible.
+
+Of course, in the beginning, this cannot be effected except by means of despotic inroads on the rights of property, and on the conditions of bourgeois production; by means of measures, there- fore, which appear economically insufficient and untenable, but which, in the course of the movement, outstrip themselves, neces- sitate further inroads upon the old social order,0 and are unavoid- able as a means of entirely revolutionising the mode of production.
+
+[^1]: a In the German editions the beginning of the sentence reads: "'Undoubtedly,' it will be said, 'religious, moral, philosophical, political, juridical ideas, etc.'"—Ed.
+
+[^2]: The German editions have "in forms of consciousness" instead of "or general ideas".—Ed.
+
+[^3]: c The words "necessitate further inroads upon the old social order" were added in the English edition of 1888.—Ed.
+
+
+
+
+
+**[p. 505]**
+
+Nevertheless in the most advanced countries, the following will be pretty generally applicable:
+
+1. Abolition ' of property in land and application of all rents of land to public purposes.
+
+2. A heavy progressive or graduated income tax.b
+
+3. Abolition of all right of inheritance. 4. Confiscation of the property of all emigrants and rebels. 5. Centralisation of credit in the hands of the State, by means of a national bank with State capital and an exclusive monopoly.
+
+6. Centralisation of the means of communication and transport0 in the hands of the State.
+
+7. Extension of factories and instruments of production owned by the State; the bringing into cultivation of waste-lands, and the improvement of the soil generally in accordance with a common plan.
+
+8. Equal liability of all to labour. Establishment of industrial armies, especially for agriculture.
+
+9. Combination of agriculture with manufacturing industries; gradual abolition of the distinction between town and country, by a more equable distribution of the population over the country.d
+
+10. Free education for all children in public schools. Abolition of children's factory labour in its present form. Combination of education with industrial production, &c, 8cc.
+
+When, in the course of development, class distinctions have disappeared, and all production has been concentrated in the hands of a vast association of the whole nation,6 the public power will lose its political character. Political power, properly so called, is merely the organised power of one class for oppressing another. If the proletariat during its contest with the bourgeoisie is compelled, by the force of circumstances, to organise itself as a class, if, by means of
+
+[^1]: a The German editions have here "expropriation".—Ed. The German editions have: "A heavy progressive tax."—Ed. c The German editions have "all transport" instead of "the means of communica- tion and transport".—Ed.
+
+[^2]: d In the editions of 1848, point 9 reads: "Combination of agriculture with industry, promotion of the gradual elimination of the contradictions between town and countryside." In subsequent German editions the word "contradictions" was replaced by "distinctions".—Ed.
+
+[^3]: e The German editions have "associated individuals" instead of "a vast association of the whole nation".—Ed.
+
+
+
+
+
+**[p. 506]**
+
+In place of the old bourgeois society, with its classes and class antagonisms, we shall have an association, in which the free development of each is the condition for the free development of all.
+
+Ill
+
+SOCIALIST AND COMMUNIST LITERATURE
+
+1. REACTIONARY SOCIALISM
+
+a. Feudal Socialism
+
+Owing to their historical position, it became the vocation of the aristocracies of France and England to write pamphlets against modern bourgeois society. In the French revolution of July 1830, and in the English reform agitation, these aristocracies again succumbed to the hateful upstart. Thenceforth, a serious political contest was altogether out of question. A literary battle alone remained possible. But even in the domain of literature the old cries of the restoration period* had become impossible.
+
+In order to arouse sympathy, the aristocracy were obliged to lose sight, apparently, of their own interests, and to formulate their indictment against the bourgeoisie in the interest of the exploited working class alone. Thus the aristocracy took their revenge by singing lampoons on their new master, and whispering in his ears sinister prophecies of coming catastrophe.3
+
+In this way arose feudal Socialism; half lamentation, half lampoon; half echo of the past, half menace of the future; at times, by its bitter, witty and incisive criticism, striking the bourgeoisie to the very heart's core; but always ludicrous in its effect, through total incapacity to comprehend the march of modern history.
+
+The aristocracy, in order to rally the people to them, waved the proletarian alms-bag in front for a banner. But the people, so often as it joined them, saw on their hindquarters the old feudal coats of arms, and deserted with loud and irreverent laughter.
+
+[^1]: * Not the English Restoration 1660 to 1689, but the French Restoration 1814 to 1830. [Note by Engels to the English edition of 1888.}
+
+[^2]: a In the German editions the end of this sentence reads: "and whispering in his ears more or less sinister prophecies."—Ed.
+
+
+
+
+
+**[p. 508]**
+
+exhibited this spectacle.
+
+In pointing out that their mode of exploitation was different to that of the bourgeoisie, the feudalists forget that they exploited under circumstances and conditions that were quite different, and that are now antiquated. In showing that, under their rule, the modern proletariat never existed, they forget that the modern bourgeoisie is the necessary offspring of their own form of society.
+
+For the rest, so little do they conceal the reactionary character of their criticism that their chief accusation against the bourgeoisie amounts to this, that under the bourgeois régime a class is being developed, which is destined to cut up root and branch the old order of society.
+
+What they upbraid the bourgeoisie with is not so much that it creates a proletariat, as that it creates a revolutionary proletariat.
+
+In political practice, therefore, they join in all coercive measures against the working class; and in ordinary life, despite their high-falutin phrases, they stoop to pick up the golden apples dropped from the tree of industry,3 and to barter truth, love, and honour for traffic in wool, beetroot-sugar, and potato spirits.*
+
+As the parson has ever gone hand in hand with the landlord,15 so has Clerical Socialism with Feudal Socialism.
+
+Nothing is easier than to give Christian asceticism a Socialist tinge. Has not Christianity declaimed against private property, against marriage, against the State? Has it not preached in the place of these, charity and poverty, celibacy and mortification of the flesh, monastic life and Mother Church? Christian' Socialism is but the holy water with which the priest consecrates the heart-burnings of the aristocrat.
+
+[^1]: * This applies chiefly to Germany where the landed aristocracy and squirearchy have large portions of their estates cultivated for their own account by stewards, and are, moreover, extensive beetroot-sugar manufacturers and distillers of potato spirits. The wealthier British aristocracy are, as yet, rather above that; but they, too, know how to make up. for declining rents by lending their names to floaters of more or less shady joint-stock companies. [Note by Engels to the English edition of 1888.]
+
+[^2]: a The words "dropped from the tree of industry" were added in the English edition of 1888.—Ed.
+
+[^3]: The German editions have here "feudal lord".—Ed. c The German editions of 1848 have "holy" instead of "Christian" (the texts of these editions contain an obvious misprint: "heutige"—of today—for "heilige"— holy).—Ed.
+
+
+
+
+
+**[p. 509]**
+
+The feudal aristocracy was not the only class that was ruined by the bourgeoisie, not the only class whose conditions of existence pined and perished in the atmosphere of modern bourgeois society. The medieval burgesses and the small peasant proprietors were the precursors of the modern bourgeoisie. In those countries which are but little developed, industrially and commercially, these two classes still vegetate3 side by side with the rising bourgeoisie.
+
+In countries where modern civilisation has become fully devel- oped, a new class of petty bourgeois has been formed, fluctuating between proletariat and bourgeoisie and ever renewing itself as a supplementary part of bourgeois society. The individual members of this class, however, are being constantly hurled down into the proletariat by the action of competition, and, as modern industry develops, they even see the moment approaching when they will completely disappear as an independent section of modern society, to be replaced, in manufactures, agriculture and commerce, by overlookers, bailiffs and shopmen.
+
+In countries like France, where the peasants constitute far more than half of the population, it was natural that writers who sided with the proletariat against the bourgeoisie, should use, in their criticism of the bourgeois régime, the standard of the peasant and petty bourgeois, and from the standpoint of these intermediate classesb
+
+should take up the cudgels for the working class. Thus arose petty-bourgeois Socialism. Sismondi was the head of this school, not only in France but also in England.
+
+This school of Socialism dissected with great acuteness the contradictions in the conditions of modern production. It laid bare the hypocritical apologies of economists. It proved, incontrovertibly, the disastrous effects of machinery and division of labour; the concentration of capital and land in a few hands; over-production and crises; it pointed out the inevitable ruin of the petty bourgeois and peasant, the misery of the proletariat, the anarchy in produc- tion, the crying inequalities in the distribution of wealth, the indus- trial war of extermination between nations, the dissolution of old moral bonds, of the old family relations, of the old nationalities.
+
+In its positive aims, however, this form of Socialism aspires either to restoring the old means of production and of exchange, and with
+
+[^1]: a The German editions have "this class still vegetates" instead of "these two classes still vegetate".—Ed.
+
+[^2]: The German editions have "the petty bourgeoisie" instead of "these inter- mediate classes".—Ed.
+
+
+
+
+
+**[p. 510]**
+
+Its last words are: corporate guilds for manufacture; patriarchal relations in agriculture.
+
+Ultimately, when stubborn historical facts had dispersed all intoxicating effects of self-deception, this form of Socialism ended in a miserable fit of the blues.3
+
+c. German, or "True", Socialism
+
+The Socialist and Communist literature of France, a literature that originated under the pressure of a bourgeoisie in power, and that was the expression of the struggle against this power, was introduced into Germany at a time when the bourgeoisie, in that country, had just begun its contest with feudal absolutism.
+
+German philosophers, would-be philosophers, and beaux esprits,h
+
+eagerly seized on this literature, only forgetting, that when these writings immigrated from France into Germany, French social conditions had not immigrated along with them. In contact with German social conditions, this French literature lost all its immediate practical significance, and assumed a purely literary aspect.0 Thus, to the German philosophers of the Eighteenth Century, the demands of the first French Revolution were nothing more than the demands of "Practical Reason"262 in general, and the utterance of the will of the revolutionary French bourgeoisie signified in their eyes the laws of pure Will, of Will as it was bound to be, of true human Will generally.
+
+The work of the German literati consisted solely in bringing the new French ideas into harmony with their ancient philosophical conscience, or rather, in annexing the French ideas without deserting their own philosophic point of view.
+
+[^1]: a In the German editions this sentence reads: "In its further development this trend ended in a cowardly fit of the blues."—Ed.
+
+[^2]: In the German editions the beginning of this sentence reads: "German philosophers, semi-philosophers and lovers of fine phrases".—Ed.
+
+[^3]: c In the German editions of 1848 there follows: "It must have appeared as idle speculation on true society, on the realisation of humanity." In subsequent German editions the words "on true society" were omitted.—Ed.
+
+
+
+
+
+**[p. 511]**
+
+It is well known how the monks wrote silly lives of Catholic Saints over the manuscripts on which the classical works of ancient heathendom had been written. The German literati reversed this process with the profane French literature. They wrote their philosophical nonsense beneath the French original. For instance, beneath the French criticism of the economic functions of money, they wrote "Alienation of Humanity", and beneath the French criticism of the bourgeois State they wrote, "Dethronement of the Category of the General", and so forth.3
+
+The introduction of these philosophical phrases at the back of the French historical criticismsb they dubbed "Philosophy of Action", "True Socialism", "German Science of Socialism", "Philosophical Foundation of Socialism", and so on.
+
+The French Socialist and Communist literature was thus complete- ly emasculated. And, since it ceased in the hands of the German to express the struggle of one class with the other, he felt conscious of having overcome "French one-sidedness" and of representing, not true requirements, but the requirements of Truth; not the interests of the proletariat, but the interests of Human Nature, of Man in general, who belongs to no class, has no reality, who exists only in the misty realm of philosophical fantasy.
+
+This German Socialism, which took its schoolboy task so seriously and solemnly, and extolled its poor stock-in-trade in such mounte- bank fashion, meanwhile gradually lost its pedantic innocence.
+
+The fight of the German, and, especially, of the Prussian bourgeoisie, against feudal aristocracy and absolute monarchy, in other words, the liberal movement, became more earnest.
+
+By this, the long wished-for opportunity was offered to "True" Socialism of confronting the political movement with the Socialist demands, of hurling the traditional anathemas against liberalism, against representative government, against bourgeois competition, bourgeois freedom of the press, bourgeois legislation, bourgeois liberty and equality, and of preaching to the masses that they had nothing to gain, and everything to lose, by this bourgeois movement.
+
+[^1]: a In the German editions this sentence reads: "For instance, beneath the French criticism of money relations they wrote, 'Alienation of Humanity', and beneath the French criticism of the bourgeois State they wrote, 'Elimination of the domination of the abstractly General', etc."—Ed.
+
+[^2]: b The German editions have "French theories" instead of "French historical criticisms".—Ed.
+
+
+
+
+
+**[p. 512]**
+
+To the absolute governments,11 with their following of parsons, professors, country squires and officials, it served as a welcome scarecrow against the threatening bourgeoisie.
+
+It was a sweet finish after the bitter pills of floggings and bullets with which these same governments, just at that time,0 dosed the German working-class risings.
+
+While this "True" Socialism thus served the governments as a weapon for fighting the German bourgeoisie, it, at the same time, directly represented a reactionary interest, the interest of the German Philistines. In Germany the petty-bourgeois class, a relic of the sixteenth century, and since then constantly cropping up again under various forms, is the real social basis of the existing state of things.
+
+To preserve this class is to preserve the existing state of things in Germany. The industrial and political supremacy of the bourgeoisie threatens it with certain destruction; on the one hand, from the concentration of capital; on the other, from the rise of a revolutionary proletariat. "True" Socialism appeared to kill these two birds with one stone. It spread like an epidemic.
+
+The robe of speculative cobwebs, embroidered with flowers of rhetoric, steeped in the dew of sickly sentiment, this transcendental robe in which the German Socialists wrapped their sorry "eternal truths", all skin and bone, served to wonderfully increase the sale of their goods amongst such a public.
+
+And on its part, German Socialism recognised, more and more, its own calling as the bombastic representative of the petty-bourgeois Philistine.
+
+It proclaimed the German nation to be the model nation, and the German petty Philistine to be the typical man. To every villainous meanness of this model man it gave a hidden, higher, Socialistic interpretation, the exact contrary of its real character. It went to the extreme length of directly opposing the "brutally destructive" tendency of Communism, and of proclaiming its supreme and
+
+[^1]: a The German editions have "material" instead of "economic".—Ed.
+
+[^2]: The German editions have "To the German absolute governments".—Ed. c The words "just at that time" were added in the English edition of 1888.—Ed.
+
+
+
+
+
+**[p. 513]**
+
+2. CONSERVATIVE, OR BOURGEOIS, SOCIALISM
+
+A part of the bourgeoisie is desirous of redressing social grievances, in order to secure the continued existence of bourgeois society.
+
+To this section belong economists, philanthropists, humanitarians, improvers of the condition of the working class, organisers of charity, members of societies for the prevention of cruelty to animals, temperance fanatics, hole-and-corner reformers of every imaginable kind. This form of Socialism has, moreover, been worked out into complete systems.
+
+We may cite Proudhon's Philosophie de la Misère as an example of this form.
+
+The Socialistic bourgeois want all the advantages of modern social conditions3 without the struggles and dangers necessarily resulting therefrom. They desire the existing state of society minus its revolutionary and disintegrating elements. They wish for a bourgeoisie without a proletariat. The bourgeoisie naturally con- ceives the world in which it is supreme to be the best; and bourgeois Socialism develops this comfortable conception into various more or less complete systems.5 In requiring the proletariat to carry out such a system, and thereby to march straightway into the social0 New Jerusalem, it but requires in reality, that the proletariat should remain within the bounds of existing society, but should cast away all its hateful ideas concerning the bourgeoisie.
+
+A second and more practical, but less systematic, form of this Socialism sought to depreciate every revolutionary movement in the eyes of the working class, by showing that no mere political reform, but only a change in the material conditions of existence, in
+
+[^1]: * The revolutionary storm of 1848 swept away this whole shabby tendency and < ured its protagonists of the desire to dabble further in Socialism. The chief i epresentative and classical type of this tendency is Herr Karl Grün. [Note by Engels to the German edition of 1890.]
+
+[^2]: a The German editions have: "want the living conditions of modern society".—Ed. b The German editions have here: "a more or less complete system".—Ed. c This word was added in the English edition of 1888.—Ed.
+
+
+
+
+
+**[p. 514]**
+
+Bourgeois Socialism attains adequate expression, when, and only when, it becomes a mere figure of speech.
+
+Free trade: for the benefit of the working class. Protective duties: for the benefit of the working class. Prison Reform3: for the benefit of the working class. This is the last word and the only seriously meant word of bourgeois Socialism.
+
+It is summed up in the phrase: the bourgeois is a bourgeois—for the benefit of the working class.
+
+3. CRITICAL-UTOPIAN SOCIALISM AND COMMUNISM
+
+We do not here refer to that literature which, in every great modern revolution, has always given voice to the demands of the proletariat, such as the writings of Babeuf and others.
+
+The first direct attempts of the proletariat to attain its own ends, made in times of universal excitement, when feudal society was being overthrown, these attempts necessarily failed, owing to the then undeveloped state of the proletariat, as well as to the absence of the economic conditions for its emancipation, conditions that had yet to be produced, and could be produced by the impending bourgeois epoch alone.b The revolutionary literature that accompanied these first movements of the proletariat had necessarily a reactionary character. It inculcated universal asceticism and social levelling in its crudest form.
+
+The Socialist and Communist systems properly so called, those of Saint-Simon, Fourier, Owen and others, spring into existence in the early undeveloped period, described above, of the struggle between proletariat and bourgeoisie (see Section I. Bourgeois and Pro- letarians).
+
+[^1]: a The German editions have here: "Solitary confinement".—Ed. The German editions have "material conditions" instead of "economic conditions", and the end of the sentence is: "and could be only the product of the bourgeois epoch".—Ed.
+
+
+
+
+
+**[p. 515]**
+
+Since the development of class antagonism keeps even pace with the development of industry, the economic situation, as they find it, does not as yet offer to them the material conditions for the emancipation of the proletariat. They therefore search after a new social science, after newb social laws, that are to create these conditions.
+
+Historical action is to yield to their personal inventive action, historically created conditions of emancipation to fantastic ones, and the gradual, spontaneous0 class organisation of the proletariat to an organisation of society specially contrived by these inventors. Future history resolves itself, in their eyes, into the propaganda and the practical carrying out of their social plans.
+
+In the formation of their plans they are conscious of caring chiefly for the interests of the working class, as being the most suffering class. Only from the point of view of being the most suffering class does the proletariat exist for them.
+
+The undeveloped state of the class struggle, as well as their own surroundings, causes Socialists of this kind to consider themselves far superior to all class antagonisms. They want to improve the condition of every member of society, even that of the most favoured. Hence, they habitually appeal to society at large, without distinction of class; nay, by preference, to the ruling class. For how can people, when once they understand their system, fail to see in it the best possible plan of the best possible state of society?
+
+Hence, they reject all political, and especially all revolutionary, action; they wish to attain their ends by peaceful means, and endeavour, by small experiments, necessarily doomed to failure, and by the force of example, to pave the way for the new social Gospel.
+
+Such fantastic pictures of future society, painted at a time when the proletariat is still in a very undeveloped state and has but a fantastic conception of its own position, correspond with the first
+
+[^1]: a The words "as yet in its infancy" were added in the English edition of 1888.— Ed. b In both cases the word "new" was added in the English edition of 1888.—Ed. c The German editions have "Social" instead of "Historical".—Ed. n The word "spontaneous" was added in the English edition of 1888.—Ed.
+
+[^2]: IN—IH2fi
+
+
+
+
+
+**[p. 516]**
+
+But these Socialist and Communist publications contain also a critical element. They attack every principle of existing society. Hence they are full of the most valuable materials for the enlightenment of the working class. The practical measures pro- posed in them—such as the abolition of the distinction between town and country, of the family, of the carrying on of industries for the account of private individuals,3 and of the wage system, the proclamation of social harmony, the conversion of the functions of the State into a mere superintendence of production, all these proposals point solely to the disappearance of class antagonisms which were, at that time, only just cropping up, and which, in these publications, are recognised in their earliest indistinct and undefined forms only. These proposals, therefore, are of a purely Utopian character.
+
+The significance of Critical-Utopian Socialism and Communism bears an inverse relation to historical development. In proportion as the modernb class struggle develops and takes definite shape, this fantastic standing apart from the contest, these fantastic attacks on it, lose all practical value and all theoretical justification. Therefore, although the originators of these systems were, in many respects, revolutionary, their disciples have, in every case, formed mere reactionary sects. They hold fast by the original views of their masters, in opposition to the progressive historical development of the proletariat. They, therefore, endeavour, and that consistently, to deaden the class struggle and to reconcile the class antagonisms. They still dream of experimental realisation of their social Utopias, of founding isolated "phalanstères", of establishing "Home Col- onies", of setting up a "Little Icaria"*—duodecimo editions of the New Jerusalem—and to realise all these castles in the air, they are compelled to appeal to the feelings and purses of the bourgeois. By
+
+[^1]: * Phalanstères were Socialist colonies on the plan of Charles Fourier; Icaria was the name given by Cabet to his Utopia and, later on, to his American Communist colony. [Note by Engels to the English edition of 1888.]
+
+[^2]: "Home Colonies" were what Owen called his Communist model societies. Phalanstères was the name of the public palaces planned by Fourier. Icaria was the name given to the Utopian land of fancy, whose Communist institutions Cabet portrayed. [Note by Engels to the German edition of 1890.]
+
+[^3]: a In the German editions the beginning of this sentence reads as follows: "Their positive propositions concerning the future society, for example, abolition ol the contradiction between town and country, of the family, of private profit".—Ed. This word was added in the English edition ot 1 888.— Ed.
+
+
+
+
+
+**[p. 517]**
+
+in the miraculous effects of their social science.
+
+They, therefore, violently oppose all political action on the part of the working class; such action, according to them, can only result from blind unbelief in the new Gospel.
+
+The Owenites in England, and the Fourierists in France, respectively oppose the Chartists and the Réformistes.263
+
+[^1]: a In the English edition of 1888 the word "or" is omitted, but it is given in all other authorised editions.—Ed.
+
+[^2]: b The German editions have "fanatical superstition".—Ed.
+
+
+
+IV
+
+POSITION OF THE COMMUNISTS IN RELATION TO THE VARIOUS EXISTING
+
+OPPOSITION PARTIES
+
+Section II has made clear the relations of the Communists to the existing working-class parties, such as the Chartists in England and the Agrarian Reformers in America.264
+
+The Communists fight for the attainment of the immediate aims, for the enforcement of the momentary interests of the working class; but in the movement of the present, they also represent and take care ofa the future of that movement. In France the Communists ally themselves with the Social-Democrats,* against the conservative and radical bourgeoisie, reserving, however, the right to take up a critical position in regard to phrases and illusions traditionally handed down from the great Revolution.
+
+In Switzerland they support the Radicals, without losing sight of the fact that this party consists of antagonistic elements, partly of Democratic Socialists, in the French sense, partly of radical bourgeois.
+
+In Poland they support the party that insists on an agrarian revolution as the prime condition for national emancipation, that party which fomented the insurrection of Cracow in 1846.265
+
+[^1]: * The party then represented in Parliament by Ledru-Rollin, in literature by Louis Blanc, in the daily press by the Réforme. The name of Social-Democracy signified, with these its inventors, a section of the Democratic or Republican party more or less tinged with Socialism. [Note by Engels to the English edition of 1888.]
+
+[^2]: The party in France which at that time called itself Socialist-Democratic was represented in political life by Ledru-Rollin and in literature by Louis Blanc; thus it differed immeasurably from present-day German Social-Democracy. [Note by Engels to the German edition of 1890.]
+
+[^3]: The words "and take care of" were added in the English edition of 1888.—Ed.
+
+
+
+
+
+**[p. 519]**
+
+But they never cease, for a single instant, to instil into the working class the clearest possible recognition of the hostile antagonism between bourgeoisie and proletariat, in order that the German workers may straightway use, as so many weapons against the bourgeoisie, the social and political conditions that the bourgeoisie must necessarily introduce along with its supremacy, and in order that, after the fall of the reactionary classes in Germany, the fight against the bourgeoisie itself may immediately begin.
+
+The Communists turn their attention chiefly to Germany, because i hat country is on the eve of a bourgeois revolution that is bound to be carried out under more advanced conditions of European civilisation, and with a much more developed proletariat, than that of England was in the seventeenth, and of France in the eighteenth century, and because the bourgeois revolution in Germany will be but the prelude to an immediately following proletarian revolution.
+
+In short, the Communists everywhere support every revolutionary movement against the existing social and political order of things.
+
+In all these movements they bring to the front, as the leading question in each, the property question, no matter what its degree of development at the time.
+
+Finally, they labour everywhere for the union and agreement of the democratic parties of all countries.
+
+The Communists disdain to conceal their views and aims. They openly declare that their ends can be attained only by the forcible overthrow of all existing social conditions. Let the ruling classes tremble at a Communistic revolution. The proletarians have nothing to lose but their chains. They have a world to win.
+
+[^1]: WORKING MEN OF ALL COUNTRIES, UNITE!
+
+[^2]: a In the German editions the end of this sentence reads: "against the absolute monarchy, the feudal landowners and philistinism [Kleinbürgerei]".—Ed.
+
+
+
+Frederick Engels
+
+THE MOVEMENTS OF 1847266
+
+The year 1847 was certainly the most stormy we have experienced for a very long time. A constitution and a United Diet in Prussia267; an unexpectedly rapid awakening in political life and a general arming against Austria in Italy; a civil war in Switzerland268; a new Parliament of pronounced radical complexion in Britain; in France scandals and Reform banquets; in America the conquest of Mexico by the United States—that is a series of changes and movements such as no other recent year can show.
+
+The last turning point in history was the year 1830. The July revolution in France and the Reform Bill in Britain finally secured the victory of the bourgeoisie; and in Britain this was, indeed, the victory of the industrial bourgeoisie, the manufacturers, over the non-industrial bourgeoisie, the rentiers. Belgium, and to a certain extent Switzerland, followed suit; here again the bourgeoisie triumphed.269 Poland rose in revolt,270 Italy chafed under Metter- nich's heel. Germany was seething. All countries were preparing for a mighty struggle.
+
+But after 1830 there was everywhere a set-back. Poland fell, the insurgents in Romagna were dispersed,271 the movement in Germa- ny was suppressed. The French bourgeoisie defeated the republicans in France itself, and betrayed the liberals of other countries whom it had spurred on to revolt. The liberal ministry in Britain could accomplish nothing. Finally, in 1840, reaction was in full swing. Poland, Italy, and Germany were politically dead: the Berliner politisches Wochenblatt3 sat enthroned in Prussia; Herr Dahîmann's
+
+[^1]: d The allusion is to Frederick William IV, who paironised this reactionary newspaper.—F.d.
+
+
+
+
+
+**[p. 521]**
+
+1840 was, however, also the peak of reaction just as 1830 had been the peak of the revolutionary movement of the bourgeoisie. From 1840 onward the movements against the existing state of affairs began afresh. Though often defeated, in the long run they gained more and more ground. While in England the Chartists reorganised themselves and became stronger than ever, Peel was forced time and again to betray his party, dealing it a fatal blow by the repeal of the Corn Laws,275 and finally himself to resign. The radicals gained ground in Switzerland. In Germany, and especially in Prussia, the liberals were pressing their demands more vigorously with every year. The liberals emerged victorious from the Belgian elections of 1847. France was an exception, for there the reactionary ministry secured a triumphant majority in the 1846 elections; and Italy remained dead, until Pius IX mounted the papal throne, and at the end of 1846 attempted a few dubious reforms.
+
+So came the year 1847, and with it a series of victories for the progressive parties of nearly all countries. Even where they sustained defeat, this was more advantageous to them than an immediate victory would have been.
+
+The year 1847 decided nothing, but everywhere it brought the parties into sharp and clear confrontation; it brought no final solution of any questions, but it posed all questions in such a way that now they must be solved.
+
+Among all the movements and changes of the year 1847 the most important were those in Prussia, in Italy and in Switzerland.
+
+In Prussia, Frederick William IV was at length forced to grant a constitution. The sterile Don Quixote of Sans-Souci,276 after long struggles and labour-pains, was delivered of a constitution which was to establish for all time the victory of the feudalist, patriarchal, abolutist, bureaucratic, and clerical reaction. But he had miscalcu- lated. The bourgeoisie was strong enough by then to turn even that constitution into a weapon against the king and all the reactionary
+
+We can therefore await the advent of this Prussian revolution with the utmost calm. The United Diet will have to be convened in 1849 whether the king wants it or not. We will give His Majesty a breathing space till then, but not a moment longer. Then he will have to resign his sceptre and his "unimpaired" crown278 to the Christian and the Jewish bourgeois of his realm.
+
+Thus 1847 was politically a very good year for the Prussian bourgeoisie in spite of their temporary defeat. The bourgeoisie and petty bourgeoisie of the other German states have also noted this and shown the most heartfelt sympathy towards them. They know that the victory of the Prussian bourgeoisie is their own victory.
+
+In Italy we have witnessed the amazing spectacle of the man who occupies the most reactionary position in the whole of Europe, who represents the petrified ideology of the Middle Ages, the Pope,a
+
+and the traitor Charles Albert of Sardinia, undermining the throne
+
+[^1]: taking the lead in a liberal movement. The movement grew to power in a night, carrying along with it the Austrian archduke of Tuscanyb
+
+[^2]: a Pius IX.—Ed.
+
+[^3]: Leopold II, duke of Tuscany.—Ed.
+
+
+
+
+
+**[p. 523]**
+
+Today the movement in Italy resembles that which took place in Prussia from 1807 to 1812.279 As in Prussia of those days, there are two issues: external independence and internal reforms. For the moment there is no demand for a constitution, but only for administrative reforms. Any serious conflict with the government is avoided in the meantime so as to maintain as united a front as possible in face of the foreign overlord. What kind of reforms are these? To whose advantage are they? In the first place to that of the bourgeoisie. The press is to be favoured; the bureaucracy to be made to serve the interests of the bourgeoisie (cf. the Sardinian reforms, the Roman consulta,280 and the reorganisation of the ministries); the bourgeois are to be granted extended influence on communal administration; the bon plaisir3 of the nobles and of the bureaucracy is to be restricted; the bourgeoisie is to be armed as guardia civica. Hitherto all the reforms have been and could be only in the interests of the bourgeoisie. Compare the Prussian reforms of Napoleonic times. These are exactly the same, only that in many respects they go further: the administration made subservient to the interests of the bourgeoisie; the arbitrary power of the nobility and the bureaucracy broken; municipal self-government established; a militia inaugu- rated; the corvée abolished. As earlier in Prussia, so today in Italy, the bourgeoisie, owing to its growing wealth and, in particular, to the growing importance of industry and commerce in the life of the people as a whole, has become the class upon which the country's liberation from foreign domination mainly depends.
+
+The movement in Italy is thus a decisively bourgeois movement. All the classes now inspired with a zeal for reform, from the princes and the nobility down to the pifferari and the lazzaroni,281 appear for the nonce as bourgeois, and the Pope himself is the First Bourgeois in Italy. But once the Austrian yoke has finally been thrown off, all these classes will be greatly disillusioned. Once the bourgeoisie has finished off the foreign enemy, it will start on the separation of the sheep from the goats at home; then the princes and the counts will again call out to Austria for help, but it will be too late, and then the workers of Milan, of Florence, and of Naples will realise that their work is only really beginning.
+
+Finally Switzerland. For the first time in its history, this country has played a definite part in the European system of states, for the first time it has dared to act decisively and has had the courage to enter
+
+[^1]: a Power of arbitrary decision.—Ed.
+
+
+
+
+
+**[p. 524]**
+
+Who, we again ask, is going to profit by the outcome of the war, by federal reform, by the reorganisation of the Sonderbund cantons? The victorious party, the party which was victorious in the individual cantons from 1830 to 1834, the liberals and radicals, i.e., the bourgeoisie and the peasantry. The rule of the patriciate in the former imperial towns was already overthrown as a result of the July revolution. Where it had been practically restored, as in Berne and Geneva, revolutions followed in 1846. Where it as yet remained in- tact, as for instance in Basle City, it was shaken to its foundations in the same year. There was little feudal aristocracy in Switzerland, and where it still survived it found its chief strength in an alliance with the herdsmen of the upper Alps. These men were the last, the most obstinate and the most rabid enemies of the bourgeoisie. They were the mainstay of the reactionary elements in the liberal cantons. Aided by the Jesuits and the pietists,282 they covered the whole of Switzerland with a network of reactionary conspiracies (cf. the canton of Vaud). They thwarted all the plans laid before the Diet by the bourgeoisie, and hindered the final defeat of the philistine patriciate in the former imperial cities.
+
+In 1847a these last enemies of the Swiss bourgeoisie were completely broken.
+
+In almost all the cantons the Swiss bourgeoisie had had a pretty free hand in commerce and industry. In so far as the guilds still existed, they did little to hamper bourgeois development. Tolls within the country hardly existed. Wherever the bourgeoisie had developed to any considerable extent, political power was in its hands. But although it had made good progress in the individual cantons and had found support there, the main thing was still lacking, namely centralisation. Whereas feudalism, patriarchalism, and philistinism flourish in separated provinces and individual towns, the bourgeoisie needs for its growth as wide a field as possible; instead of twenty-two small cantons it needed one large Switzerland. Cantonal sovereignty, which best suited the conditions in the old Switzerland, had become a crushing handicap for the bourgeoisie. The bourgeoisie needed a centralised power, strong enough to
+
+[^1]: a The original has by mistake "1846".—Ed.
+
+
+
+
+
+**[p. 525]**
+
+The bourgeoisie has won for itself this centralised power. But did not the peasants also help in overthrowing the Sonder- bund? Certainly they did! So far as the peasants are concerned, they will play the same part towards the bourgeoisie as they played for so long towards the petty bourgeoisie. The peasants will remain the exploited arm of the bourgeoisie, they will fight its battles for it, weave its calico and ribbons, and provide the recruits for its proletariat. What else can they do? They are owners, like the bourgeois, and for the moment their interests are almost identical with those of the bourgeoisie. All the political measures which thev are strong enough to put through, are hardly more advantageous to the bourgeoisie than to the peasants themselves. Nevertheless, they are weak in comparison with the bourgeoisie, because the latter are more wealthy and have in their hands the lever of all political power in our century—industry. With the bourgeoisie, the peasantry can achieve much; against the bourgeoisie, nothing.
+
+It is true that a time will come when the fleeced and impoverished section of the peasantry will unite with the proletariat, which by then will be further developed, and will declare war on the bour- geoisie—but that does not concern us here.
+
+Enough that the expulsion of the Jesuits and their associates, those organised opponents of the bourgeoisie, the general introduction of civil instead of religious education, the seizure of most of the church estates by the state, benefit above all the bourgeoisie.
+
+Thus the common factor in the three most noteworthy movements of the year 1847 is that all are primarily and chiefly in the interests of die bourgeoisie. The party of progress was, everywhere, the party of the bourgeoisie.
+
+It is indeed the characteristic feature of these movements that those countries which remained backward in 1830 are precisely those which last year took the first decisive steps to raise themselves to the level of 1830—that is, to secure the victory of the bourgeoisie.
+
+So far, then, we have seen that the year 1847 was a brilliant year for the bourgeoisie.
+
+Let us proceed. In Britain a new parliament lias assembled, a parliament which, in the words of John Brigh* the Quaker, is the most bourgeois CM-,
+
+
+
+**[p. 526]**
+
+Another advance of the bourgeoisie: for an advance within the bourgeoisie is also an extension and a strengthening of bourgeois rule.
+
+France alone appears to be an exception. The power which fell into the hands of the whole of the big bourgeoisie in 1830 is being year by year increasingly limited to the rule of the wealthiest section of this big bourgeoisie, to the rule of the rentiers and the stock exchange speculators. They have made the majority of the big bourgeoisie serve their interest. The minority, which is headed by a section of the manufacturers and shipping owners, is continually diminishing. This minority has now made common cause with the middle and petty bourgeoisie who have no electoral rights and celebrates its alliance at reform banquets. It despairs of ever coming to power with the present electorate. After long hesitation, it has made up its mind to promise a share of political power to the sections of the bourgeoisie next below itself, and especially the bourgeois ideologists, as being the least dangerous—the lawyers, doctors, and so on. It is, of course, still very far from being able to keep its promise.
+
+Thus also in France we see approaching the struggle within the bourgeoisie which in Britain has already been almost ended. But, as
+
+
+
+**[p. 527]**
+
+In Belgium the bourgeoisie won a decisive victory in the elections of 1847. The Catholic ministry was forced to resign, and here also the liberal bourgeoisie now rule for the time being.
+
+In America we have witnessed the conquest of Mexico and have rejoiced at it.283 It is also an advance when a country which has hitherto been exclusively wrapped up in its own affairs, perpetually rent with civil wars, and completely hindered in its development, a country whose best prospect had been to become industrially subject to Britain—when such a country is forcibly drawn into the historical process. It is to the interest of its own development that Mexico will in future be placed under the tutelage of the United States. The evolution of the whole of America will profit by the fact that the United States, by the possession of California, obtains command of the Pacific. But again we ask: "Who is going to profit immediately by the war?" The bourgeoisie alone. The North Americans acquire new regions in California and New Mexico for the creation of fresh capital, that is, for calling new bourgeois into being, and enriching those already in existence; for all capital created today flows into the hands of the bourgeoisie. And what about the proposed cut through the Tehuantepec isthmus?284 Who is likely to gain by that? Who else but the American shipping owners? Rule over the Pacific, who will gain by that but these same shipping owners? The new customers for the products of industry, customers who will come into being in the newly acquired territories—who will supply their needs? None other than the American manufacturers.
+
+Thus also in America the bourgeoisie has made great advances, and if its representatives now oppose the war, that only proves that they fear that these advances have in some ways been bought too dear.
+
+Even in quite barbarous lands the bourgeoisie is advancing. In Russia, industry is developing by leaps and bounds and is succeeding in converting even the boyars into bourgeois. Both in Russia and Poland serfdom is being restricted and the nobility thereby weakened in the interest of the bourgeoisie, and a class of free peasants is being created which the bourgeoisie everywhere needs. The Jews are being persecuted—entirely in the interest of the settled Christian bourgeois, whose business was spoiled by the pedlars.—In Hungary, the feudal magnates are more and more changing into wholesale corn and wool merchants and cattle dealers, and consequently now appear in the Diet as bourgeois.—What of all
+
+
+
+**[p. 528]**
+
+Wherever we look, the bourgeoisie are making stupendous progress. They are holding their heads high, and haughtily challenge their enemies. They expect a decisive victory, and their hopes will not be disappointed. They intend to shape the whole world according to their standard; and, on a considerable portion of the earth's surface, they will succeed.
+
+We are no friends of the bourgeoisie. That is common knowledge. But this time we do not grudge the bourgeoisie their triumph. We can chuckle over the haughty looks which the bourgeois deign to bestow (especially in Germany) upon the apparently tiny band of democrats and Communists. We have no objection if everywhere they force through their purposes.
+
+Nay more. We cannot forbear an ironical smile when we observe the terrible earnestness, the pathetic enthusiasm with which the bourgeois strive to achieve their aims. They really believe that they are working on their own behalf! They are so short-sighted as to fancy that through their triumph the world will assume its final configuration. Yet nothing is more clear than that they are everywhere preparing the way for us, for the democrats and the Communists; than that they will at most win a few years of troubled enjoyment, only to be then immediately overthrown. Behind them stands everywhere the proletariat, sometimes participating in their endeavours and partly in their illusions, as in Italy and Switzerland, sometimes silent and reserved, but secretly preparing the overthrow of the bourgeoisie, as in France and Germany; finally, in Britain and America, in open rebellion against the ruling bourgeoisie.
+
+We can do still more. We can say all this to the bourgeoisie straight out, we can lay our cards on the table. Let them know in advance that they are working only in our interest. They still cannot for that reason give up their fight against the absolute monarchy, the nobility, and the clergy. They must conquer—or already now go under.
+
+In Germany in a very short time they will even have to ask for our help.
+
+[^1]: a Isaiah 40 : 3.— Ed. b Psalms 24 : 7,8.—Ed.
+
+
+
+
+
+**[p. 529]**
+
+"The hangman stands at the door!"3
+
+Written about January 20, 1848 Printed according to the newspaper
+
+First published in the Deutsche-Brüsseler- Zeitung No. 7, January 23, 1848 Signed: F. E.
+
+[^1]: a Heinrich Heine, Riuer Olaf".— Ed.
+
+
+
+Frederick Engels
+
+THE BEGINNING OF THE END IN AUSTRIA
+
+"It will endure Metternich and me," said the late Emperor Franz. If Metternich does not wish to give his emperor the lie, he had better die as soon as possible.
+
+This chequered Austrian monarchy, scraped together by theft and by inheritance, this organised jumble of ten languages and nations, this planless mish-mash of contradictory customs and laws, is at last beginning to disintegrate.
+
+Honest German citizens have for years been fervent admirers of the director of this creaking state machine, the cowardly swindler and assassin—Metternich. Talleyrand, Louis Philippe and Metter- nich, three most mediocre minds and hence most suitable for our mediocre times, are regarded by German citizens as three gods who for thirty years have manipulated world history as if it were a puppet show. Going by his own daily experience, the honest citizen regards history as a kind of plot hatched in a tavern or as feminine gossip on a somewhat larger scale.
+
+Certainly, there is no country over which the tidal wave of revolution, the triple Napoleonic invasions285 passed away so completely without trace as Austria. Certainly, there is no country where feudalism, patriarchalism and faint-hearted philistinism defended by the paternal rod, have been maintained so immaculate- ly or harmoniously as in Austria. But is it Metternich's fault?
+
+On what does the might, the tenacity, the stability, of the House of Austria rest?
+
+When Italy, France, England, Belgium, North and West Germany, one after another extricated themselves from feudal barbarism during the latter half of the Middle Ages, when industry was
+
+
+
+**[p. 531]**
+
+When the great monarchies developed in Western Europe in the wake of bourgeois civilisation, the inland countries of the Upper Danube likewise had to unite in a great monarchy. This was required if only for the needs of defence. Here, in the centre of Europe, the barbarians of all tongues and of all nations associated under the sceptre of the House of Hapsburg. Here they found in Hungary a mainstay of solid barbarism.
+
+The Danube, the Alps, the rocky breastworks of Bohemia—these are the bases for the existence of Austrian barbarism and of the Austrian monarchy.
+
+The House of Hapsburg supported the burghers against the aristocracy and the towns against the princes because this was the only condition on which a great monarchy was possible. When, later on, it again supported the petty bourgeoisie, this was because the petty bourgeoisie in the rest of Europe had become reactionary themselves with regard to the big bourgeoisie. On both occasions it supported the petty bourgeois for decidedly reactionary purposes. But now this method has miscarried.
+
+The House of Austria was thus from the first the representative of barbarism, of reactionary stability in Europe. Its power rested on the foolishness of the patriarchalism entrenched behind the impassable mountains, on the inaccessible brutality of barbarism. A dozen nations whose customs, character, and institutions were flagrantly opposed to one another clung together on the strength of their common dislike for civilisation.
+
+Hence the House of Austria was invincible as long as the barbarous character of its subjects remained untouched. Hence it was threatened by only one danger—the penetration of bourgeois civilisation.
+
+But this sole danger was not to be averted. Bourgeois civilisation
+
+
+
+**[p. 532]**
+
+This explains Austria's passive, hesitant, cowardly, sordid and underhand policy. Austria can no longer act, as before, in an openly brutal, thoroughly barbarous way because it must make concessions to civilisation every year, and because its own subjects become less reliable every year. Every decisive step would lead to a change at home or in the neighbouring countries, every change would mean a breach in the dam behind which Austria laboriously protects itself against the rising tides of modern civilisation. The first victim of any change would be the House of Austria itself which stands or falls with barbarism. Although Austria was still able to disperse the Piedmontese, Neapolitan and Romagnese rebels with cannon fire in 1823 and 1831, it was forced to set in motion a still undeveloped revolutionary element—the peasantry—in 1846 in Galicia; it had to stop the advance of its troops near Ferrara in 1847 and resort to conspiracy in Rome.286 Counter-revolutionary Austria uses revolutionary means—this is the surest sign that its end is ap- proaching.
+
+Once the Italian insurrections of 1831, and the Polish revolution of 1830 had been suppressed and the French bourgeois had given guarantees of good behaviour, Emperor Franz could go to his grave in peace; the times seemed misérable enough to endure even his feeble-minded offspring.3
+
+As yet the realm of the crowned idiot was still safe from revolutions. But who could ensure it against the causes of revolu- tions?
+
+As long as industry remained domestic industry, as long as every peasant family or s^t least every village produced its own industrial products, without putting much on the market, industry itself remained feudal and excellently suited to Austrian barbarism. As long as it remained mere manufactory, rural industry, few products of the inland countries were made available for export and foreign trade was minimal, industry existed in a few districts only and was easily adaptable to the Austrian status quo. If manufacture could only produce relatively few big bourgeois even in England and France, then it could only produce a modest middle class in thinly-populated and remote Austria, and even this only here and there. As long as hand labour existed, Austria was safe.
+
+[^1]: a Ferdinand I.—Ed.
+
+
+
+
+
+**[p. 533]**
+
+Austria fortified itself against the machines by a consistent system of prohibitive tariffs. But in vain, it was precisely the system of prohibitive tariffs which was responsible for bringing machinery into Austria. Bohemia used machinery in the cotton industry; Lombardy for silk spinning; Vienna even started to produce machinery.
+
+The results were quick to follow. The workers in manufacture became destitute. The entire population of the manufacturing districts was torn out of its hereditary mode of life. The former philistines grew into big bourgeois and lorded it over hundreds of workers just as their princely and aristocratic neighbours lorded it over hundreds of peasant serfs. Through the collapse of the old type of industry, these peasant serfs lost their old occupations and acquired new needs as a result of the new industry. It was no longer possible to carry on feudal agriculture alongside modern industry. The abolition of corvée became a necessity. The feudal position of the peasants in relation to the landowners became untenable. The towns became thriving. The guilds were oppressive for the consumers, useless for those who belonged to them and intolerable for those engaged in industry. Competition had to be permitted surreptitiously. The position of all classes in society was radically changed. The old classes withdrew more and more into the background before the two new classes, the bourgeoisie and the proletariat. Agriculture declined in importance compared with industry, the countryside gave way to the towns.
+
+Such were the consequences of machinery in some areas of Austria, especially in Bohemia and Lombardy. They gave rise to a reaction which affected the entire monarchy to a greater or lesser degree; everywhere they undermined the old barbarism, and with it the foundations of the House of Austria.
+
+While in Romagna in 1831 the battered Austrian soldiers replied to cries of Viva I'ltalia with grape-shot, in England the first railways were built. Like machinery, railways immediately became a necessity for all European countries. Austria had to have them, willy-nilly. In order not to give increased power to the already growing bourgeoi- sie, the Government built them itself; but it went from Scylla to Charybdis. It prevented the establishment of powerful bourgeois joint stock companies only by borrowing from the same bourgeois the money to build the railways, by putting itself in pawn to Rothschild, Arnstein, Eskeles, Sina, etc.
+
+
+
+**[p. 534]**
+
+"It will endure Metternich and me." The French Revolution, Napoleon and the July upheavals had been withstood. But there was no withstanding steam. Steam forced its way through the Alps and the Bohemian forests, steam robbed the Danube of its role, steam tore Austrian barbarism to shreds and thereby pulled the ground from under the feet of the House of Hapsburg.
+
+In Europe and America they now have the pleasure of seeing Metternich and the whole House of Hapsburg crushed between the wheels of the steam-driven machines, and the Austrian monarchy being cut to pieces by its own locomotives. It is an exhilarating sight. The vassals rebel in Italy, and Austria dare not utter a word, the liberal pestilence invades Lombardy and Austria hesitates, vacillates, quakes before its own subjects. In Switzerland the oldest rebels against Austria, the L/r-Swiss, yield to Austrian suzerainty287; they are attacked, but Austria shivers at the bold words of Ochsenbein: If only one single Austrian soldier enters Switzerland I will throw twenty thousand men into Lombardy and proclaim the Italian Republic. And Austria goes off to beg in vain for assistance from the despised courts of Munich, Stuttgart and Karlsruhe. In Bohemia, the estates refuse to pay their taxes of fifty thousand guilders; Austria still wants
+
+
+
+**[p. 535]**
+
+And with these comical scratchings, the House of Austria scratches itself out of existence.
+
+If old Metternich does not follow his "upright" Franz pretty quickly he may live to see the imperial monarchy which he held together at the price of such exertions falling apart and most of it into the hands of the bourgeoisie; he may live to have the unspeakable experience of seeing the "burgher tailors" and "burgher grocers" refusing to doff their hats to him in the Prater289
+
+and calling him plain Herr Metternich. A few more shocks, one or two more costly mobilisations and Charles Rothschild will buy up the whole Austrian monarchy.
+
+We observe the victory of the bourgeois over the Austrian imperial monarchy with real satisfaction. We only wish that it may be the really vile, really dirty, really Jewish bourgeois who buy up this venerable empire. Such a repulsive, flogging, paternal, lousy government deserves to be under the heel of a really lousy, unkempt stinking adversary. Herr Metternich can depend on us to shear this adversary later as ruthlessly as Metternich will soon be shorn by him.
+
+The fall of Austria has a special significance for us Germans. It is Austria which is responsible for our reputation of being the oppressors of foreign nations, the hirelings of reaction in all countries. Under the Austrian flag Germans have held Poland, Bohemia, Italy in bondage. We have to thank the Austrian monarchy for the Germans being hated as vile mercenaries of despotism from Syracuse to Trento, from Genoa to Venice. Anyone who has seen what deadly hatred, the bloody and completely justified thirst for revenge against the Tedeschi71 reign in Italy must be moved to an undying hatred of Austria and applaud when this bulwark of barbarism, this scourge of Germany collapses.
+
+[^1]: a Germans.—Ed.
+
+
+
+
+
+**[p. 536]**
+
+La dynastie de Habsbourg a cessé de régner.3
+
+Written about January 25, 1848 Printed according to the newspaper
+
+First published in the Deutsche-Brüsseler- Published in English for the first Zeitung No. 8, January 27, 1848 time
+
+Signed: F. E.
+
+[^1]: a The Hapsburg dynasty has ceased to reign.—Ed.
+
+
+
+Karl Marx
+
+THE DÉBAT SOCIAL OF FEBRUARY 6 ON THE DEMOCRATIC ASSOCIATION
+
+The Débat social of February 6 defends the Brussels Association Démocratique and its branches.290 We shall permit ourselves a few comments on the character of this defence.
+
+It may well be in the interest of the Belgian radical party to point out to the Catholics that they are acting against their own interest in denouncing the Belgian radical party. It may well be in the interest of the Belgian radical party to distinguish between lower and higher clergy and to compensate the clergy in general with compliments for the truths it addresses to a part of it. We understand nothing of this. We are merely astonished that the Débat could overlook the fact that the attacks of the Flemish Catholic papers against the associations démocratiques were printed immediately in the Indépendance,3 and the Indépendance is not, as far as we know, a Catholic newspaper.
+
+The Débat social declares that the Belgians are demanding political reforms through the democratic associations.
+
+We realise that the Débat has forgotten the cosmopolitan bcharacter of the Association Démocratique for a moment. Or perhaps it has not even forgotten it. It has merely remembered that a society which strives to promote democracy in all countries will work first on the country in which it resides.
+
+The Débat social is not content with saying what the Belgians want of the associations démocratiques; it goes further, it says what the Belgians do not want of them, what one consequently should not want if one belongs to the Association, which the Belgians have founded to demand political reforms. Avis aux étrangers!*
+
+[^1]: "The political reforms which the Belgians wish to demand through the democratic associations," says the Débat, "are not those Utopias pursued by certain democrats in
+
+[^2]: a L'Indépendance belge.—Ed.
+
+[^3]: b See Note 8.— Ed. ' Warning to foreigners!—Ed.
+
+
+
+
+
+**[p. 538]**
+
+Here the Débat is evidently speaking of the Communists. We should like to ask it if the "modest well-being" of "free" England manifests itself in the Poor Rate growing faster than the population.
+
+We should like to ask it if by the "modest well-being of the free nations" it understands the destitution in Flanders.
+
+We should like it to let us into the secret whereby it intends to replace wages with a 100 talers of profit or rent. Or does it understand by the "modest well-being of the free nations" the modest well-being of the free capitalists and landowners?
+
+We should finally like to ask it if it has been charged by the Brussels Association Démocratique to give the lie to those Utopians who do not believe in "the modest happiness of the free nations".
+
+However, the Débat social is evidently not speaking of Communists in general, but of the German Communists, who, because political developments in their homeland do not allow them to found a German alliance or a German association libérale,291 sink in despair into the arms of communism.
+
+We remind the Débat that communism originated in England and France, and not in Germany.
+
+German communism is the most determined opponent of all utopianism, and far from excluding historical development in fact bases itself upon it—for the time being we give this assurance to the
+
+Débat social in return for its own assurance.
+
+Germany is retarded in its political development, it still has a long political development to undergo. We should be the last to deny this. On the other hand, however, we believe that a country of more than 40 million inhabitants, when it prepares for a revolution, will not seek the model for its movement in the radicalism of small free countries.
+
+Does the Débat understand by communism the throwing of class antagonisms and of class struggle into sharp relief? In that case, it is not communism which is communistic, but political economy and bourgeois society.
+
+We know that Robert Peel has prophesied that the class antagonism in modern society must erupt in a terrible crisis.292 We know that Guizot himself in his History of Civilisation* believes he is
+
+[^1]: F.-P.-G. Guizot, Histoire générale de la civilisation en Europe—Ed.
+
+
+
+
+
+**[p. 539]**
+
+The Débat social is quite free to admire and to idealise North America and Switzerland.
+
+We ask it whether the political constitution of North America could ever be introduced in Europe without great social upheavals. We believe, for instance, if the Débat will pardon our boldness, that the English Charter,293 if it were to be put forward not by individual enthusiasts for universal suffrage but by a great national party, presupposed a long and arduous unification of the English workers into a class, and that this Charter is being striven for with quite another purpose and must bring about quite different social consequences than the constitution of America or of Switzerland ever strove for or ever brought about. In our eyes those people are Utopians who separate political forms from their social foundation and present them as general, abstract dogmas.
+
+The manner in which the Débat social attempts to defend the Association Démocratique by simultaneously eliminating "certain democrats" who are dissatisfied with the "modest well-being of the free nations" is demonstrated yet again when it comes to speak of the discussions on free trade held within the Association.294
+
+Before this the Débat notes that the Association voted almost unanimously that absolute free trade between all nations should be considered as a goal of democracy.
+
+After this, in the same issue of the Débat we find a thoroughly commonplace speech by M. Le Hardy de Beaulieu, scraped together from the most decayed leavings of the English free-trade cookshop.
+
+After this presentation in the Débat social, will anyone doubt that the Association voted by a great majority for free trade in the sense of the Congress of Economists and of the bourgeois free traders?
+
+[^1]: "Six sittings," says the Débat, "were devoted to the discussion of this interesting question, and many workers from the various workshops of our city asserted here principles which would not have been out of place at the famous congress of economists held in Brussels in September last." a
+
+[^2]: And to round off, Cobden is glorified.295
+
+[^3]: Written about February 10, 1848 Printed according to the newspaper
+
+[^4]: First published in the Deutsche-Brüsseler- Published in English for the first Zeitung No. 13, Februarv 13, 1848 time
+
+[^5]: a See F. Engels' articles on the Congress of Economists, this volume, pp. 274-78 and 282-90.— Ed.
+
+
+
+Frederick Engels
+
+THREE NEW CONSTITUTIONS
+
+Our predictions concerning the imminent triumph of the bourgeoisie3 are in fact being fulfilled more rapidly than we could have expected. In less than a fortnight three absolute monarchies have been transformed into constitutional states: Denmark, Naples and Sardinia.
+
+The movement in Italy has developed with remarkable rapidity. The Papal State, Tuscany and Sardinia in succession took their place at its head; one country impelled the next further and further, one advance always brought another in its wake. The Italian Customs Union 296 was the first step towards constituting the Italian bourgeoi- sie, which decisively took the lead in the national movement and came daily more into collision with Austria. The bourgeoisie had achieved almost everything which could be achieved under an absolute monarchy, and a representative constitution daily became a more pressing necessity for it. But the winning of constitutional institutions—this was precisely the difficulty for the Italian bourgeoi- sie. The princes were reluctant; the bourgeoisie dared not confront them too threateningly as it did not want to throw them into the arms of Austria again. The Italians of the Customs Union might have gone on waiting for a long time, when help suddenly came to them from a quite unexpected quarter—Sicily rebelled; the people of Palermo drove the royal troops out of the city with unprecedented bravery,* the people of Abruzzi, Apulia and Calabria attempted a new insurrection, Naples itself prepared for battle, and Ferdinand
+
+[^1]: * Palermo with 200,000 inhabitants defeated 13,000 men. Paris with a million inhabitants defeated 7,000 to 8,000 men in the July revolution.
+
+[^2]: a See this volume, pp. 520-29.— Ed.
+
+
+
+
+
+**[p. 541]**
+
+The Italian bourgeoisie has gained its decisive victory in the streets of Palermo. It is now victorious; what will ensue can only be the exploitation of this victory in all respects and the securing of its results against Austria.
+
+This victory of the Italian bourgeoisie is again a defeat for Austria. How old Metternich must have gnashed his teeth in rage—the man who saw the Neapolitan revolution coming from afar, who again and again begged the Pope and Tuscany for permission to march his troops across their territories, and who nonetheless had to hold back his Pandours and Croats on the Po! One courier after another came to him from Naples; Ferdinand, Code and Del Carretto were screaming for help, and Metternich, who in 1823 and 1831 297 had reigned so omnipotently in Italy, could do nothing. He had to look on quietly and see his last, his most reliable ally defeated and humiliated in Italy, and the whole weight of Naples placed on the scales against Austria thanks to a revolution. And he had a hundred and fifty thousand men waiting on the Po! But England was there, and had the Austrians crossed the Po, it would have been the signal for the occupation of Venice and the bombardment of Trieste—and so Metternich's hangmen had to stand still and watch with their rifles in their hands while Naples was snatched from them.
+
+England's conduct in the whole Italian affair has been very proper. While the other great powers, France as much as Russia, have done everything to support Metternich, England has taken its place, quite alone, on the side of the Italian movement. The English bourgeoisie has the greatest interest in thwarting an Austro-Italian protective customs union and conversely in bringing about an anti-Austrian customs union in Italy based on free trade. For this reason it supports the Italian bourgeoisie, which for the time being itself still needs free trade for its development, and which is therefore the natural ally of the English bourgeoisie.
+
+In the meantime Austria is arming. These armaments are completely ruining its finances. Austria has no money, and it has
+
+
+
+**[p. 542]**
+
+Will Austria risk a war? We hardly think so. Its finances are chaotic; Hungary is in full ferment, Bohemia is not secure; on the battlefield itself, in Lombardy, guerillas would spring up every- where. And more than anything else the fear of England will restrain Metternich. At this moment Lord Palmerston is the most powerful man in Europe; his decision determines the issue, and this time his decision has been made known clearly enough.
+
+At quite the other end of Europe, in Denmark, a king3 dies. His son,b a coarse, jovial schnapps-tippler, immediately convokes an assembly of notables, a committee of the estates, in order to deliberate upon a common constitution for the Duchiesc and Denmark. And so that the Germans shall disgrace themselves everywhere, the Duchies have to declare that they do not want this constitution, because it would mean their being torn away from their common German homeland!298
+
+It is really too ridiculous. The Duchies have a considerably smaller population than Denmark, and yet the number of their representa- tives is to be the same. Their language is to have equal rights in the assembly, in the official records, in everything. In short, the Danes make every possible concession to the Germans, and the Germans persist, in their absurd national obstinacy. The Germans have never been national-minded where the interests of nationality and the interests of progress have coincided; they were always so where
+
+[^1]: a Christian VIII.—Ed. b Frederick VIL—Ed.
+
+[^2]: c Schleswig and Holstein.— Ed.
+
+
+
+
+
+**[p. 543]**
+
+Either the inhabitants of the Duchies are capable people, and more advanced than the Danes—in which case they will obtain preponder- ance over the Danes in the chamber of estate deputies and have no reason for complaint; or else they are German sluggards and lag behind the Danes in industrial and political development, in which case it is high time they were taken in tow by the Danes. But it is really too absurd for these upright Schleswig-Holsteiners to beg the 40 million Germans to help them against the Danes and to refuse to take up their positions on a battlefield where they can fight with the same advantages as their opponents; it is too absurd that they should appeal to the police of the German Confederation299 against a constitution.
+
+The Danish constitution is as much a blow against Prussia as the Neapolitan against Austria, although in itself it is only a reaction to abortive Prussian constitutional experiment of February 3.300 As a further addition to its many embarrassments the Prussian govern- ment now has received a new constitutional state as neighbour; at the same time it loses a faithful protege and ally.
+
+While Italy and Denmark have thus stepped into the ranks of the constitutional states, Germany lags behind. Every nation is moving forward, the smallest, weakest nations are always able to find a point in the European complications which enables them in spite of their big reactionary neighbours to win for themselves one modern institution after another. Only the 40 million Germans never bestir themselves. It is true that they are no longer asleep, but they still only talk and bluster, they have yet to act.
+
+But if the German governments were to set any great hopes on the bourgeoisie's fear of action, then they would be very much deceiving themselves. The Germans are the last in line because their revolution will be quite different from the Sicilian. The German bourgeois and the philistines know very well that behind them stands a daily growing proletariat which on the day after the revolution will put forward quite different demands than they themselves desire. The German bourgeois and philistines therefore behave in a cowardly, indecisive and vacillating manner—they fear a conflict not less than they fear the government.
+
+A German revolution is far more serious than a Neapolitan revolution. In Naples there is a confrontation only between Austria and England; in a German revolution the whole of the East and the
+
+
+
+**[p. 544]**
+
+For this reason the Germans must first of all be thoroughly compromised in the eyes of all other nations, they must become, more than they are already, the laughing-stock of all Europe, they must be compelled to make the revolution. But then they will really arise, not the cowardly German burghers but the German workers; they will rise up, put an end to the whole filthy, muddled official German rule and with a radical revolution restore the honour of Germany.
+
+Written in the middle of February 1848 Printed according to the newspaper
+
+First published in the Deutsche-Brüsseler- Published in English for the first Zeitung No. 15, February 20, 1848 time
+
+Karl Marx and Frederick Engels
+
+[ON THE POLISH QUESTION]
+
+SPEECHES IN BRUSSELS, ON FEBRUARY 22, 1848
+
+ON THE OCCASION OF THE SECOND ANNIVERSARY
+
+301 OF THE CRACOW INSURRECTION
+
+SPEECH BY MR. KARL MARX
+
+Gentlemen,
+
+There are striking analogies in history. The Jacobin of 1793 has become the Communist of the present day. In 1793, when Russia, Austria and Prussia divided up Poland, the three powers produced the constitution of 1791,302 which had been condemned unanimously because of its alleged Jacobin principles.
+
+And what had it proclaimed? The Polish constitution of 1791! Nothing other than a constitutional monarchy: legislation placed in the hands of the representatives of the country, freedom of the press, ireedom of conscience, public judicial trial, abolition of serfdom, etc. And all this was then called pure Jacobinism! Thus you see, gentlemen, that history has moved on. The Jacobinism of those days has today become, as far as liberalism goes, the most moderate imaginable.
+
+The three Powers have marched with history. In 1846 when by incorporating Cracow into Austria they confiscated the last remains of Polish nationality, they gave the name communism to what they once called Jacobinism.
+
+Now, what is the communism of the Cracow revolution? Was it communism to have wanted to restore Polish nationality? This is as much as to say that the war waged against Napoleon by the European coalition to save nationalities was a communist war, and that the Congress of Vienna303 was made up of crowned Communists. Or was the Cracow revolution communist because it wanted to set up a democratic government? Nobody will charge the millionaire citizens of Berne and New York with communist leanings.
+
+Communism denies the necessity for the existence of classes; it wants to abolish all classes, all class distinctions. The revolutionaries of Cracow wanted only to abolish political distinctions between the classes; they wanted to give equal rights to the different classes.
+
+
+
+**[p. 546]**
+
+If one asked French proprietors: "Do you know what Polish democrats want? The Polish democrats want to have the kind of property ownership which you already have", the French propri- etors would answer, "They are quite right." But if you say, with M. Guizot, to the French proprietors: "The Poles want to abolish property as you instituted it by the revolution of 1789 and as it still exists in your country." "What!" they will shout, "they are revolutionaries, Communists; these scoundrels must be trampled down!" The abolition of guilds, of corporations, the introduction of free competition, is now called communism in Sweden. The Journal des Débats went further: to abolish the unearned income constituted by the right of corruption for two hundred thousand electors, is to abolish a source of revenue, to destroy an acquired property, to be communist. Doubtless the Cracow revolution also wanted to abolish one kind of property. But what kind of property? One which could not be destroyed in the rest of Europe any more than the Sonderbund304 in Switzerland, both having already disappeared.
+
+No one will deny that in Poland the political question is tied to the social question. The one has always been inseparable from the other.
+
+Better ask it of the reactionaries! During the Restoration305 were they only fighting political liberalism and its inevitable load of Voltairianism?
+
+A very renowned reactionary writer loudly professed that the highest metaphysics of a de Maistre and of a de Bonald was in the end a question of money, and is not every question of money a directly social question? The men of the Restoration did not conceal the fact that to bring back good politics it was necessary to bring back good property rights, feudal property, moral property. Everybody knows that loyalty to monarchy cannot dispense with tithes and corvée labour.
+
+Let us go further back. In 1789 the political question of the rights of man included the social question of free competition.
+
+And what then happened in England? In all questions from the Reform Bill until the abolition of the Corn Laws,306 did the political parties fight about anything except changes in property rights, questions of property, social questions?
+
+Here, in Belgium itself, is the struggle of liberalism with Catholicism anything but the struggle of industrial capital with large landed property?
+
+RÉVOLUTION POLONAISE
+
+du 22 février 1846.
+
+t0C0urs
+
+m OKOKCES
+
+PAS MM, A. J. SENAULT, KARL MARX, LELEWEL, F. ENGELS
+
+ET LOUIS LUBL1NER, AVOCAT.
+
+BRUXELLES.
+
+[^1]: C. G. VOGLER, LIBRAIRE-EDITEUR.
+
+[^2]: 1 8 4 8
+
+[^3]: Cover of the pamphlet containing the speeches "On the Polish Question' by Marx and Engels
+
+
+
+
+
+
+
+**[p. 549]**
+
+Thus, however you look at it, whether from a liberal, radical, even aristocratic point of view, could you still reproach the Cracow revolution with having joined a social question to a political question?
+
+The men who led the Cracow revolutionary movement were deeply convinced that only a democratic Poland could be independ- ent, and a democratic Poland was impossible without the abolition of feudal rights, without the agrarian movement which would transform the tied peasants into free proprietors, modern propri- etors. Replace the Russian autocrat by Polish aristocrats and you will have given despotism naturalisation papers. It was thus that the Germans, in their war against foreign rule, exchanged one Napoleon for thirty-six Metternichs.307
+
+If the Polish lord no longer has a Russian lord over him, the Polish peasant will still have a lord over him, but a free lord in place of a slave lord. This political change will have altered nothing in his social position.
+
+The Cracow revolution has given a glorious example to the whole of Europe, by identifying the national cause with the democratic cause and the emancipation of the oppressed class.
+
+If this revolution has been stifled for the moment by the bloody hands of hired assassins it is now rising gloriously and triumphantly in Switzerland and Italy. It sees the confirmation of these principles in Ireland, where the narrowly nationalist party has gone to its grave with O'Connell, and where the new national party is above all reforming and democratic.308
+
+It is Poland once again which has taken the initiative, no longer feudal Poland, but democratic Poland; and from this moment its emancipation has become the point of honour for all the democrats of Europe.
+
+Gentlemen,
+
+The insurrection whose anniversary we are celebrating today has failed. After some days of heroic resistance Cracow fell and the bleeding ghost of Poland, which had risen for a moment before the eyes of its assassins, descended again into its grave.
+
+The Cracow revolution was a defeat, a very deplorable defeat. Let us render the last honours to the fallen heroes, lament their setback and offer our sympathy to the twenty million Polish people whom this failure has again enchained.
+
+[^1]: SPEECH BY MR. FREDERICK ENGELS
+
+[^2]: 19*
+
+
+
+
+
+**[p. 550]**
+
+No, gentlemen! The anniversary of Cracow is not only a day of mourning, it is a day of rejoicing for us other democrats; for the defeat itself contains a victory, a victory whose fruits are ours to gather, while the results of the defeat are only transitory.
+
+This victory is the victory of young democratic Poland over the old aristocratic Poland.
+
+Yes, the latest struggle of Poland against its foreign oppressors has been preceded by a hidden struggle, concealed but decisive within Poland itself, a struggle of oppressed Poles against Polish oppressors, a struggle of democracy against the Polish aristocracy.
+
+Compare 1830309 and 1846, compare Warsaw and Cracow. In 1830 the ruling class in Poland was as selfish, narrow-minded and cowardly in the legislative body as it was devoted, enthusiastic and courageous on the field of battle.
+
+What did the Polish aristocracy want in 1830? To safeguard its own acquired rights with regard to the Emperor.3 It limited the insurrection to the little country which the Congress of Vienna was pleased to call the Kingdom of Poland310; it restrained the uprising in the other Polish provinces; it left intact the degrading serfdom of the peasants and the infamous condition of the Jews. If the aristocracy, in the course of the insurrection, had to make concessions to the people, it only made them when it was too late, when the insurrection had failed.
+
+Let it be said clearly: the insurrection of 1830 was neither a national revolution (it excluded three-quarters of Poland) nor a social or a political revolution; it changed nothing in the internal condition of the people; it was a conservative revolution.
+
+But within the conservative revolution, within the national government itself, there was one man who vigorously attacked the narrow views of the ruling class. He proposed really revolutionary measures before whose boldness the aristocrats of the Diet recoiled. By calling the whole of ancient Poland to arms, by thus making the war for Polish independence a European war, by emancipating the Jews and the peasants, by making the latter share in landed property, by reconstructing Poland on the basis of democracy and equality, he wanted to make the national cause the cause of freedom; he wanted to identify the interest of all peoples with that of the Polish people.
+
+[^1]: a Nicholas I.—Ed.
+
+
+
+
+
+**[p. 551]**
+
+In 1830, these proposals were continually rejected by the blind self-interest of the aristocratic majority. But these principles, ripened and developed by the experience of fifteen years of servitude, we saw inscribed on the flag of the Cracow uprising. At Cracow, it was clearly seen that there were no longer men who had much to lose; there were no aristocrats; every step that was taken bore the stamp of that democratic, I might almost say proletarian, boldness which has only its misery to lose and a whole country, a whole world, to gain. There, no hesitation, no scruples; the three foreign powers were attacked together; the freeing of the peasants, agrarian reform, the emancipation of the Jews were proclaimed, without caring for a moment whether this offended certain aristocratic interests.
+
+The Cracow revolution wanted neither to re-establish ancient Poland nor to preserve what the foreign governments had let remain of the old Polish institutions; it was neither reactionary nor conservative.
+
+No, it was even more hostile to Poland itself than to its foreign oppressors, hostile to the ancient Poland, barbarous, feudal and aristocratic, based on the serfdom of the majority of the people. Far from wanting to re-establish the ancient Poland, it aimed to overthrow it utterly, and to found on its ruins, with a wholly new class, with the majority of the people, a new Poland, modern, civilised and democratic, worthy of the nineteenth century, and which might be really the outpost of civilisation.
+
+The difference between 1830 and 1846, the immense progress made within unhappy Poland itself, bleeding and torn; the Polish aristocracy completely separated from the Polish people and thrown into the arms of the oppressors of its country; the Polish people irrevocably committed to the democratic cause; and finally the class struggle, the motive force of all social progress, established in Poland as here, that is the victory of democracy proved by the Cracow revolution, that is the result which will bear fruit when the defeat of the insurgents has been avenged.
+
+Yes, gentlemen, by the Cracow insurrection the Polish cause, from being national, as it was, has become the cause of all peoples; from a question of sympathy, as it was, it has become a question of interest of all democrats. Until 1846 we had a crime to avenge; henceforth we have allies to support, and we shall do it.
+
+And it is above all our Germany which ought to congratulate itself on this explosion of democratic passion in Poland. We are, ourselves, on the eve of a democratic revolution; we shall have to fight
+
+
+
+**[p. 552]**
+
+The alliance of the two nations is therefore not by any means a beautiful dream, a charming illusion; no, gentlemen, it is an inevitable necessity resulting from the common interests of the two nations, and it has become necessary through the Cracow revolution. The German people, which until now had little of its own except words, will now have deeds to offer its Polish brothers; and just as we German democrats present here clasp hands with the Polish democrats, so the whole German people will celebrate its alliance with the Polish people on the very field of the first battle won in common over our common oppressors.
+
+[^1]: First published in March 1848 in: Printed according to the text in Célébration, à Bruxelles, du deuxième Célébration anniversaire de la Révolution Polonaise du 22 Février 1846, Bruxelles, 1848 Translated from the French
+
+[^2]: Published in English in full for the first time
+
+
+
+Frederick Engels
+
+A WORD TO THE RIFORMA
+
+The Riforma of Lucca has printed a reply to one of those well-known and vile articles which the Augsburger Zeitung* is accustomed to publish on instructions from the Imperial Chancellery in Vienna.311
+
+That trashy rag from the Lechb had not only praised to the skies the loyalty of the 518,000 Austrian soldiers to their feeble-minded Ferdinand, but had also claimed that all these soldiers, Bohemians, Poles, Slovaks, Croats, Heyducks, Wallachians, Hungarians, Italians, etc., were burning with enthusiasm for German unity and would willingly part with their lives for it, as soon as it should be the will of the Emperorl
+
+As though this were not precisely the misfortune—that so long as Austria exists Germany has to risk seeing its unity defended by Heyducks, Croats and Wallachians, as though the unity of Germany so long as Austria survives could be anything else but the unity of Germany with Croats, Wallachians, Magyars and Italians!
+
+The Riforma replies very aptly to the lying claim of the All-Gemeinec
+
+that Austria is in fact defending the interests of the German nation in Lombardy, and concludes with an appeal to the Germans, drawing a parallel between the Italian movement of 1848 and the German wars of liberation in 1813 and 1815.
+
+The Riforma evidently thought that by doing so it was paying a compliment to the Germans, otherwise it would never have equated,
+
+[^1]: a Allgemeine Zeitung (Augsburg).—Ed.
+
+[^2]: Augsburg is situated on the Lech.—Ed. c A pun on the name: Allgemeine Zeitung—"All-Gemeine" means thoroughly vile.— Ed.
+
+
+
+
+
+**[p. 554]**
+
+The Riforma may take our word for it: Germany is fully enlightened as to the wars of liberation, both through the consequences of the wars themselves and through the ignominious end to which the heroes of that "glorious" age have come. Only the hired papers of the government still puff their cheeks and trumpet forth praise for that stupidity-intoxicated period, the public laughs and even the iron cross turns red with shame.
+
+Precisely these newspapers, precisely these enthusiastic French- eaters of 1813, are now raising the same outcry against the Italians as they did before against the French, who sing paeons of praise to Austria, to Christian-Germanic Austria, and who preach crusades against Romance knavery and Romance frippery—for indeed Italians are just as much Romance as the French.
+
+Would the Italians like an example of the sympathy they may expect from the worthy blusterers of the age of liberation, of the kind of ideas these red-headed visionaries entertain about the Italian nation? We shall merely quote the well-known song by A[ugust] A[dolf] Lfudwig] Folien3:
+
+and how these poetic ravings of an ever cool-headed philistine drivel on. Then come the most ludicrous pictures of bandits, daggers, fire-belching mountains, Romance knavery, the infidelity of Italian women, bugs, scorpions, poison, vipers, assassins, etc., seen by this virtuous lover of plums running around in dozens on all the highways of Italy, and finally the gushing philistine thanks his God that he is in the land of Love and Friendship, of shindies with chair-legs, of faithful, blue-eyed pastors' daughters, of probity and cosiness, in short in the land of German Loyalty. Such are the superstitious and novelettish ideas entertained by the heroes of 1813 about Italy, which of course they have never seen.
+
+[^1]: Yon land of marvels all may sing, Where mandolines and soft guitars do ring
+
+[^2]: And, 'neath darkling leaf, the golden orange gleams; But I the purple German plum esteem And Borsdorf's apple on its leafy beam,
+
+[^3]: a August Folien composed the music and Johann Friedrichsen wrote the words.—Ed.
+
+
+
+Written about February 22, 1848 Printed according to the newspaper
+
+First published in the Deutsche-Brüsseler- Published in English for the first Zeitung No. 16, February 24, 1848 time
+
+Signed: F. Engels
+
+Frederick Engels
+
+REVOLUTION IN PARIS
+
+The year 1848 is turning out well. The Sicilian revolution with its long train of constitutions is hardly over before Paris experiences a victorious insurrection.
+
+The opposition deputies had publicly pledged themselves to defend the right of assembly against Guizot, Duchâtel and Hébert by means of a courageous demonstration.
+
+All the preparations had been made. The hall was ready and awaited the banquet guests. Then suddenly, when the time had come to act, the poltroons of the Left, M. Odilon Barrot at their head, beat, as always, a cowardly retreat.
+
+The banquet was called off. But the people of Paris, stirred up by the loud-mouths in the Chamber, raging at the cowardice of these
+
+épiciers3 and made discontented at the same time by protracted general unemployment, the people of Paris refused to be called off.
+
+At midday on Tuesday,b all Paris was on the streets. The masses were shouting: "Down with Guizot, long live the Reform!" They proceeded to Guizot's residence, which was protected by the troops with difficulty; but the windows were nevertheless broken.
+
+The masses proceeded to Odilon Barrot's house as well, shouted "Down with Barrot!" and broke his windows, too. M. Barrot, the cowardly originator of the whole outbreak, sent to the government and asked for a security guard!
+
+The troops stood by and quietly looked on. Only the Municipal Guard struck out, and that with the greatest brutality. The Municipal Guard is a corps consisting in the main of natives of Alsace and
+
+[^1]: a Grocers, here philistines.—Ed. b February 22, 1848.—Erf.
+
+
+
+
+
+**[p. 557]**
+
+Towards evening the people began to resist. Barricades were set up, guard posts stormed and set on fire. A police spy was cut down in the Place de la Bastille. Arms shops were looted.
+
+At five o'clock marching orders were sounded for the National Guard. But only a very few turned up, and those who did shouted "Down with Guizot!"
+
+During the night calm was restored. The last barricades were taken and the outbreak appeared to be over.
+
+On Wednesday morning, however, the revolt began again with renewed vigour. A large part of the centre of Paris lying to the east of the Rue Montmartre was strongly barricaded; after eleven o'clock the troops no longer dared venture in there. The National Guard gathered in large numbers, but only to hold the troops back from any attacks on the people and to shout "Down with Guizot, long live the Reform!"
+
+There were 50,000 soldiers in Paris, disposed according to Marshal Gerard's defence plan313 and holding all strategic points. But these points were so numerous that all of the troops were kept busy with them and were thus already forced into inaction. Apart from the Municipal Guard there were almost no soldiers free for an offensive. Gerard's excellent plan was of infinite help to the outbreak; it paralysed the troops and made it easier for them to maintain the passivity to which they were in any case inclined. The detached forts also proved to be anything but beneficial to the government. They had to be kept manned and thus also withdrew a considerable section of the troops from the battle area. No one thought of a bombardment. In general not a single person gave a thought to the fact that these bastilles even existed. One more proof how fruitless are all defence plans against a mass revolt in a great city!
+
+Towards noon the outcry against the Ministry in the ranks of the National Guard was so strong that several colonels sent word to the Tuileries that they would not hold themselves responsible for their regiments if the Ministry were to remain.
+
+At two o'clock the aged Louis Philippe was forced to drop Guizot and form a new Ministry. Hardly had this been made public when the National Guard went home in jubilation and illuminated their houses.
+
+
+
+**[p. 558]**
+
+The bourgeoisie has made its revolution, it has toppled Guizot and with him the exclusive rule of the Stock Exchange grandees. Now, however, in the second act of the struggle, it is no longer one section of the bourgeoisie confronting another, now the proletariat con- fronts the bourgeoisie.
+
+News has just arrived that the people have won and proclaimed the Republic. We confess that we had not dared hope for this brilliant success by the Paris proletariat.
+
+Three members of the provisional government belong to the definitely democratic party, whose organ is the Réforme. The fourth is a worker"—for the first time in any country in the world. The others are Lamartine, Dupont de l'Eure and two men from the National315
+
+By this glorious revolution the French proletariat has again placed itself at the head of the European movement. All honour to the workers of Paris! They have given the world an impulse which will be felt by every country in turn; for the victory of the Republic in France means the victory of democracy in the whole of Europe.
+
+Our age, the age of democracy, is breaking. The flames of the Tuileries and the Palais Royal are the dawn of the proletariat. Everywhere the rule of the bourgeoisie will now. come crashing down, or be dashed to pieces.
+
+Germany, we hope, will follow. Now or never will it raise itself from its degradation. If the Germans have any energy, any pride or any courage, then in a month's time we too shall be able to shout:
+
+"Long live the German Republic!"
+
+[^1]: Written on February 25-26, 1848 Printed according to the newspaper
+
+[^2]: First published in the Deutsche-Brüsseler- Published in English for the first Zeitung No. 17, February 27, 1848 time
+
+[^3]: a Albert.—Ed.
+
+
+
+Frederick Engels
+
+TO THE EDITOR OF THE NORTHERN STAR™
+
+Dear Sir,
+
+After the important events accomplished in France, the position taken by the Belgian people and government is of a greater interest than in ordinary times. I hasten, therefore, to inform your readers of what has happened since Friday, 25th of February.
+
+The excitement and inquietude was universal in this town on the evening of that day. All sorts of rumours were spread, but nothing was really believed. The railway station was full of a crowd of people of all classes, anxious for the arrival of news. The French Ambassador, ex-Marquis de Rumigny, himself was there. At half-past twelve at night, the train arrived, with the glorious news of Thursday's revolution, and the whole mass of people shouted, in one sudden outburst of enthusiasm: Vive la République! The news spread rapidly all over the town. On Saturday all was quiet. On Sunday, however, the streets were crowded with people, and every one was curious to see what steps would be taken by two societies—the Association Démocratique and the Alliance.317 Both bodies assem- bled in the evening. The Alliance, a set of middle-class Radicals, resolved to wait, and thus retired from the movement. The Association Démocratique, however, took a series of most important resolutions, by which this body placed itself at the head of the movement. They resolved to meet daily, instead of weekly; to send a petition to the town-council, reclaiming the arming, not only of the middle-class Civic Guard, but of all citizens in districts. In the evening some rioting took place in the streets. The people cried: Vive
+
+la République, and assembled in masses around the Town Hall. Several arrests took place, but nothing of any consequence occurred.
+
+Among the individuals arrested, there were two Germans—a political refugee, M. Wolff, and a working man. Now, you must
+
+
+
+**[p. 560]**
+
+The government, perfectly aware of the narrow sentiment of nationalism prevalent among a certain class of the population of a small country like Belgium, immediately profited by these circum- stances, in order to spread the rumour that the whole agitation for the Republic had been got up by the Germans—men who had nothing to lose, who had been expelled from three or four countries for their turpitudes, and who intended to place themselves at the head of the intended Belgian Republic. This precious piece of news was reported on Monday through the whole town, and in less than a day the whole mass of the shopocracy, who form the body of the Civic Guard, raised one unanimous outcry against the German rebels, who wanted to revolutionise their happy Belgian fatherland.
+
+The Germans had fixed a place of meeting in a coffee-house, where every one of them was to bring the latest news from Paris. But the outcry of the shopocrats was so great, and the rumours of government measures against the Germans were so manifold, that they were obliged to give up even this innocent means of communicating with each other.
+
+On Sunday evening already the police had succeeded in prevailing upon the publican, proprietor of the German society's room, to refuse them the room for any future meeting.
+
+The Germans behaved perfectly well during these times. Exposed to the most petty persecutions of the police, they yet rested at their post. They assisted every evening at the meeting of the Democratic Association. They abstained from all tumultuous crowding in the streets, but they showed, though personally exposing themselves, that in the hour of danger they would not abandon their Belgian brethren.
+
+When, after a few days, the extraordinary agitation of Sunday and Monday had ceased, when the people had returned to their work, when the government had recovered from their first terror, then commenced another series of persecutions against the Germans. The government published orders, according to which all foreign
+
+[^1]: a Deutsche-Brüsseler-Zeitung.—Ed.
+
+
+
+
+
+**[p. 561]**
+
+Not only against working men out of work, but also against women, they commenced their persecution. A young German Democrat, who lives, according to the French and Belgian custom, with a French lady, just as married people live—and whose presence at Brussels appears to have importuned the police—was suddenly exposed to a series of persecutions, directed against his mistress. She having no passport—and who ever before thought in Belgium of asking passports from a woman?—was threatened with immediate expulsion! and the police declared that it was not for her sake, but for the sake of the individual with whom she lived. Seven times in three days, the Commissary of Police was at her house; she had to pass at his office several times, and was sent to the central police office, escorted by an agent—and if an influential Belgian Democrat had not interposed, she would certainly have been obliged to leave.
+
+But all this is nothing. The persecutions against working men,—the spreading of rumours about such and such an individual to be arrested, or about a general chase after the Germans to be made in all public houses of the town on Tuesday evening, all this is nothing compared with what I have now to report.
+
+On Friday evening,3 Dr. Marx, amongst others, received a royal ordinance, ordering him to quit the country within twenty-four hours. He was engaged in arranging his trunks for the journey, when, at one o'clock in the morning, and in spite of the law which forbids the violation of the dwelling of a citizen from sunset to sunrise, ten police agents, armed, headed by a commissary of police, broke into his house, seized upon him and led him to the Town Hall prison. No reason was given but that his passport was not in order, though he presented them at least three passports, and though he had resided in Brussels for three years! He was led off. His wife, seized with terror, instantly ran to see a Belgian lawyer, who always offered his services to persecuted foreigners—the same whose friendly interposition has been mentioned above,—M. Jottrand, President of the Democratic Association. On her return, she met
+
+[^1]: a March 3. The Northern Star reported this erroneously as "Saturday".—Ed.
+
+
+
+
+
+**[p. 562]**
+
+at home, with a servant only, was led into a room where she found a set of prostitutes of the lowest order, with whom she had to pass the night. Next morning she was led into a room where she had to stay three hours without fire, shivering with cold. M. Gigot was also detained. M. Marx had been put into a room with a raving madman, whom he was obliged to fight every moment. The most brutal treatment on the part of the jailors was joined to this infamous conduct.
+
+At three o'clock in the afternoon, at last, they were conducted before the judge, who very soon ordered their liberation. And of what had Mrs. Marx and M. Gigot been indicted? Of vagabondage, because neither of them had a passport in their pockets!
+
+M. Marx was equally liberated, and ordered to leave the country the same evening. Thus, after having been wantonly imprisoned during eighteen of the twenty-four hours left him to settle his affairs; after having had not only himself, but also his wife, separated for all that time from his three children, the eldest of whom has not attained her fourth year, he was sent away without a minute to put his affairs in order.
+
+M. Gigot, on his arrest, had only left the prison the day before. He had been seized, along with three democrats from Liège, at six o'clock on Monday morning, in an hotel, and arrested for vag- abondage, because they had no passports. They were ordered to be liberated on Tuesday, but yet detained till Thursday against all law. One of them, M. Tedesco, is yet in prison, accused of nobody knows what. Both he and M. Wolff will be either liberated or placed before the tribunal in the course of this week.
+
+I must say, however, that the Belgian working men and several other democrats of that nation, particularly M. Jottrand, have behaved exceedingly well towards the persecuted Germans. They have shown themselves quite above all petty sentiments of nationali- ty. They saw in us not foreigners but democrats.
+
+I hear that there is an order of arrest out against a Belgian working man and brave democrat, M. de Guasco. Another, M. Dassy, arrested
+
+[^1]: Jenny, Laura and Edgar.—Ed.
+
+
+
+
+
+**[p. 563]**
+
+I am daily and hourly expecting my order of expulsion, if not worse, for nobody can foretell what this Belgio-Russian government is about to dare. I hold myself ready to leave at a moment's notice. Such is the position of a German democrat in this free country, which, as the papers say, has nothing to envy in the French Republic.
+
+Salutation and Fraternity.
+
+Your old Friend Brussels, March 5th
+
+First published in The Northern Star No. 544, March 25, 1848
+
+Reprinted from the newspaper
+
+Karl Marx
+
+TO THE EDITOR OF LA RÉFORME
+
+Dear Sir,
+
+At the present moment the Belgian government is aligning itself entirely with the policy of the Holy Alliance. Its reactionary fury falls on the German democrats with unprecedented brutality. Were we not too distressed by the persecution directed specifically against us, we would openly laugh at the ridiculous attitude assumed by the Rogier ministry when it accuses a few Germans of wishing to impose a republic on the Belgians against their wishes; but it so happens that, in the special case to which we refer, the hateful aspect of it outweighs the absurd.
+
+First of all, Sir, it is as well to know that almost all the Brussels newspapers are edited by Frenchmen, most of whom escaped from France to avoid the ignominious punishments which threatened them in their own country. These Frenchmen now have the utmost interest in protecting the Belgian independence which they all betrayed in 1833.319 The king,3 the ministry and their supporters have used these rags to give credibility to the idea that a Belgian revolution, in the republican sense, would merely be an imitation of a francequillonnerie,h and that all the democratic astivity which is now making itself felt in Belgium has only been provoked by some hot-headed Germans.
+
+The Germans do not in the least deny that they openly associated with the Belgian democrats, and this without the slightest degree of
+
+[^1]: a Leopold I.—Ed.
+
+[^2]: A scornful expression in Flemish, meaning stupidly copying anything that is French.—Ed.
+
+
+
+Having received, on March 3 at five o'clock in the evening, an order to leave the kingdom of Belgium within twenty-four hours, I was busy, that same night, with preparing for the journey when a commissary of police, accompanied by ten municipal guards, burst into the place where I was living, searched the whole house, and ended by putting me under arrest on the pretext that I was without papers. Apart from the quite proper papers sent me by M. Duchâtel in expelling me from France,320 I.had at hand the expulsion papers delivered to me by Belgium only a few hours earlier.
+
+I would not have spoken to you, Sir, about my arrest and the brutalities I suffered, were these not connected with an incident which would be difficult to understand even in Austria.
+
+Immediately after my arrest, my wife went to the home of M. Jottrand, President of the Democratic Association of Belgium, to urge him to take the necessary measures. On returning home she found at her door a policeman who told her, with perfect politeness, that if she should wish to speak to M. Marx, she need only follow him. My wife accepted the offer with alacrity. She was taken to the police station, and the Commissary at first told her that M. Marx was not there; then he brutally demanded who she was, why she had gone*to M. Jottrand's house, and whether she had her papers with her. A Belgian democrat, M. Gigot, had followed my wife to the police station with the municipal guard, and when he protested strongly against the Commissary's absurd and insolent questions he was silenced by guards who seized him and threw him into a cell. My wife, under the charge of "vagabondage", was taken to the prison at the Hôtel de Ville and locked up in a dark room with prostitutes. At eleven o'clock in the morning she was taken, under police escort and in broad daylight, to the office of the examining magistrate. For two hours she was held in close custody, despite the most vigorous protests from all sides. She stayed there, in bitter cold, exposed to the most shameless remarks by the gendarmes.
+
+Finally she appeared before the examining magistrate, who was surprised that the police, in their solicitude, had not at the same time arrested the young children. The interrogation was naturally a sham, and my wife's only crime consists in the fact that, although belonging to the Prussian aristocracy, she shares the democratic opinions of her husband.
+
+Karl Marx, Vice-President of the Brussels Democratic Association
+
+Written about March 6, 1848 Printed according to the newspaper
+
+First published in La Réforme, Translated from the French March 8, 1848 . Published in English for the first time
+
+Karl Marx
+
+[PERSECUTION OF FOREIGNERS IN BRUSSELS]321
+
+On Sunday, February 27 the Brussels Democratic Association held its first public meeting since the news of the proclamation of the French Republic. It was known in advance that an immense crowd of workers, determined to lend their active help to all measures that the Association would judge it proper to undertake, would be present.
+
+The government, for its part, had spread the rumour that king Leopold was ready to abdicate the moment the people wished it. This was a trap set for the Belgian democrats to make them undertake nothing decisive against such a good king, who asked nothing better than to shed the burden of royalty, provided that he was honourably left a reasonable pension.
+
+At the same time the king's government had ready a list of people whom it considered proper to arrest that very night as disturbers of public order. It had agreed with M. Hody, the chief of public security, to have on this list the foreigners as chief instigators of an artificial riot, as much to cover the arrest of Belgians known as resolute republicans as to awake national susceptibilities. This explains why, later on, his excellency M. Rogier, who is no more Belgian than His Majesty King Leopold is French, had published an ordinance which commanded the authorities to watch carefully the French and the Germans, the former compatriots of M. Rogier, the latter compatriots of Leopold. This ordinance recalls, in its form of wording, the laws on suspects.322
+
+This clever plan was executed in a manner the more perfidious and brutal in that the people arrested on the evening of February 27 had abstained from any provocation.
+
+It might be said that pleasure had been taken in arresting these persons in order to maltreat and abuse them at leisure.
+
+
+
+**[p. 568]**
+
+As there were no charges against them it only remained to release them. But no! They were kept in the cells for six days! Then the foreign prisoners were separated from the rest and taken directly in Black Marias to the railway station. There they were again put into vans, each in a separate cell, and sent in this way to Quiévrain where Belgian police received them and dragged them to the French frontier.
+
+When at last they were able to collect themselves on the soil of liberty, they found they had in their pockets nothing but expulsion papers, dated the eve of their arrests. One of the expelled persons, M. Allard, is French.
+
+At the same time the government of the Petty King proclaimed, in the Chamber of Representatives, that the Belgian kingdom, including the two Flanders,3 was the best of all possible republics, and that it possessed a model police force, directed by a man such as M. Hody, at one and the same time an old republican, a phalansterist and a rejoined Leopoldist. The chamber wept with joy, the Catholic and liberal papers were in ecstasies about the domestic virtues of King Leopold and the public virtues of his servant Rogier.
+
+The Belgian people are republicans. The only Leopoldists are the big bourgeoisie, the landed aristocracy, the Jesuits, the officials and the ex-Frenchmen who, chased out of France, now find themselves at the head of the Belgian administration and the press.
+
+Metternich is delighted to find so opportunely at the French frontier a Coburg, a born enemy of the French revolution. But he forgets that the Coburgs of today no longer count except in questions of marriage.
+
+[^1]: Written about March 10, 1848 Printed according to the newspaper
+
+[^2]: First published in La Réforme, Translated from the French March 12, 1848
+
+[^3]: Published in English for the first time
+
+[^4]: a West and East Flanders—two provinces of the Belgian Kingdom.—Ed.
+
+
+
+Frederick Engels
+
+[THE SITUATION IN BELGIUM]^
+
+Brussels, March 18
+
+The Belgian bourgeoisie refused a republic to the people fifteen days ago; now it is preparing itself to take the initiative in the republican movement. It cannot yet be proclaimed out loud, but it is whispered everywhere in Brussels: "Really, Leopold must go; really, only the republic can save us; but what we need is a good solid republic, without organisation of labour, without universal suffrage, without the workers meddling in it!"
+
+This is already some progress. The good bourgeoisie of Brussels who, only a few days ago, desperately denied any intention of wanting to copy the French Republic, have felt the results of the financial crisis in Paris. While still decrying political imitation they submit to financial imitation. While still singing the praises of Belgian independence and neutrality, they found that the Brussels Stock Exchange was completely and most humiliatingly dependent on the Paris Stock Exchange. The cordon of troops which holds the southern frontier has not stopped the lowering of share prices from invading, unimpeded, the guaranteed neutral territory of Belgium.
+
+Indeed, the consternation which reigns in the Brussels market could not be more general. Bankruptcy is decimating the middling and small traders, snares are finding no buyers, quotations are only nominal, money is disappearing more quickly than in Paris, trade is completely stagnant, and most manufacturers have sacked their workmen. Here are a few examples of the general depression: a few days ago a dealer offered to sell one hundred and fifty shares of the Dendre railway at one hundred francs each, which were quoted above par on the London Stock Exchange before the February revolution. The first day he refused 45 francs, the second 35 francs,
+
+
+
+**[p. 570]**
+
+And now, at this moment of general panic, the government demands, firstly, two-thirds of direct taxes in advance, and then a forced loan of fifty to sixty millions, measures which terrify the tax-payers already dissatisfied with an ever-increasing budget!
+
+This is a state of affairs which has not failed to persuade our good bourgeoisie that, in being enthusiastic for the monarchy, they have gained only full and complete participation in the troubles in France without having shared any of the advantages. This is the real cause of the growing republicanism.
+
+Meanwhile, the workers are not quiet. Ghent has had several days of disturbances; here two days ago there were meetings of many workers, ending in a petition to the king, which Leopold in person came to receive from the calloused hands which presented it to him. More serious demonstrations will soon follow. Every day puts more workers out of work. If the industrial crisis continues, if feelings in the working class warm up a little, the Belgian bourgeoisie, like that of Paris, will make its "mariage de raison" with the republic.
+
+[^1]: Written on March 18, 1848 Printed according to the manu- script First published in Marx/Engels, Gesamt- ausgabe, I. Abteilung, Bd. 6, Berlin, 1932 Translated from the French
+
+[^2]: Published in English for the first time
+
+
+
+FROM THE PREPARATORY MATERIALS
+
+
+
+Karl Marx
+
+PROTECTIONISTS324
+
+1) have never protected small industry, only machine industry. Example: the school of List in Germany. Gulich.3
+
+2) If we believe what the protectionists say, they merely preserve the status quo. Protection will never effect sales of the protected product on foreign markets. Hence reactionary.15
+
+3) The last consolation of the protectionists is that the country is not exploited by foreign but by domestic capitalists.
+
+4) It is said, indeed, that internal reforms must first be made before one can think of free trade.c The power to reform the position of the classes is not ascribed to the protective system itself. But they say it would be foolish to reform international relations before domestic relations have been reformed. But what is the protective system? It is proof that the class which carries it into effect has power in its hands. Therefore, given the protective system [] the capitalists will not concede anything. Moreover, gentlemen, great social and historical reforms are never made by concessions, by the generosity of the ruling classes, but only through the nécessité des choses. They must therefore be forced through. It is therefore ridiculous to believe that in a country where the protective system prevails [] [] [] the relations between capital and labour are reformed in any way. I shall say no more of the protectionists [] of the question/
+
+[^1]: Written about September 18, 1847 Printed according to the manu- script First published in Marx/Engels, Gesamtaus- gabe, I. Abteilung, Bd. 6, Berlin, 1932 Published in English for the first time
+
+[^2]: a In the original Jülich.—Ed.
+
+[^3]: After "reactionary" the following is written between the lines: "conservateurs, and if conserved [?], conservateurs — hommes réactionnaires."—Ed.
+
+[^4]: c Marx uses the English term.—Ed.
+
+
+
+Karl Marx
+
+DEMAND325
+
+*) Demand. Most economists treat it almost exclusively from the individual standpoint. The world historic development of demand, its first universal development, depends firstly on the products of the various countries of the world becoming known to each other. If in the further course of development demand creates intercourse, initially it is intercourse which creates demand. Demand is the material content of intercourse, the totality of the objects of exchange, of the commodities which come into exchange and trade. Wars, voyages of discovery, etc., all historical events whereby nations are brought into contact, are all so many conditions of expanding demand, of the formation of the world market. The growth of demand consists directly in the first place in the fact that already existing products of various countries <m contact, in A> are being exchanged. Demand gradually loses its local etc. character and becomes cosmopolitan. The production of all countries thus enters more and more into the consumption of the individuals of <all regions) of a country.
+
+The Crusades, for example, by making known the products of the Orient, greatly increased the demand for such products in Western Europe. (Cf. J., Notebook III, p. 106.) Places where these products stream together for exchange constitute the world market towns; the world market appeared in this form in particular before the discovery of America. In the 14th and 15th centuries Constan- tinople, the Italian cities, Bruges and London.
+
+Also still at the same time like fairs, namely the caravan-like streaming together of merchants. In the 19th century, for example, fairs are of quite subordinate significance. (Cf. J., Notebook III, p. 106.)
+
+
+
+**[p. 575]**
+
+Trade supremacy. The first dominant trading nation are the Dutch (from end of the 16th to the middle of the 17th century). Until then there were only first trading towns. The Spaniards and Portuguese form the transition from dominant trading towns to dominant trading nations. Carrying trade and fisheries nevertheless still form a decisive constituent of Dutch supremacy.
+
+The <agricultural> European North-East in the relation of an agricultural country to the European West. In the same measure in which here industry and shipbuilding increase, the demand for the raw products of the North-East increases and with it their production.
+
+Holland as the first trading and industrial nation, from the end of the 16th to the middle of the 17th century, is also the first nation for whom its domestic agriculture is insufficient and where the population is growing in far too great a proportion to domestic agriculture. Therefore carries on the first large-scale trade in grain. Amsterdam becomes the chief granary of Western Europe. (Cf. J.,
+
+Notebook III, p. 107).
+
+[^1]: Written in December 1847 Printed according to the manu- script First published in French in the book Karl Marx, Œuvres.Économie. II, Published in English for the first [Paris,] 1968 time
+
+
+
+Karl Marx
+
+DRAFT PLAN FOR SECTION III OF THE MANIFESTO OF THE COMMUNIST PARTY526
+
+First draft
+
+1) <Critique) a Critical Utopian Systems (Communist). 2)
+
+Second draft
+
+1) Reactionary socialism, feudal, religious petty bourgeois. 2) Bourgeois socialism. 3) German philosophical socialism .b
+
+4) Critical Utopian systems of literature. Owen, Cabet, Weitling, Fourier, St. Simon, Babeuf.
+
+[^1]: 5) Direct party literature. 6) Communist literature.327
+
+[^2]: Written at the end of December 1847 or the beginning of January 1848
+
+[^3]: First published in Marx/Engels, Gesamt- ausgabe, I. Abteilung, Bd. 6, Berlin, 1932
+
+[^4]: Printed according to the manu- script
+
+[^5]: Published in English for the first time
+
+[^6]: a This word is struck out in the manuscript.—Ed.
+
+[^7]: Marx added this point in the left-hand margin and accordingly altered the original numbering from 3 to 4, 4 to 5, 5 to 6.
+
+
+
+Karl Marx
+
+PAGE FROM THE ROUGH DRAFT OF THE MANIFESTO OF THE COMMUNIST PARTY528
+
+13) Proletarians, for the Ten-Hour Bill without sharing their illusions about the results of this measure.3
+
+We have seen, moreover: The Communists do not put forward a new theory of private property. They merely state the historical fact that the <means of production) b bourgeois production relations and with them bourgeois property relations <and> <eith> <certain> of the <devel> <social> development of the social forces of production no longer <are appropriate> and therefore <to the development of industry itself) (and) in t But do not argue with us because you measure (oppose) the abolition of bourgeois property by your bourgeois ideas of freedom, culture, etc.! Your ideas themselves <are only> <prod> <are> (correspond) are products of the (existing) bourgeois produc- tion and property relations, as your legal system is merely the will of your class elevated into law. (Your> A will whose content is determined by the material living conditions of your class.
+
+(Your) You share with all ruling classes that have perished the biased idea of transforming (the) your (bourgeois) production and property relations from historical, (and merely> transitory relations corresponding only to a certain (stage in the) develop- ment of the productive forces, into eternal laws of nature and reason.
+
+[^1]: a The first two lines are in Jenny Marx's hand. The rest in Marx's.—Ed.
+
+[^2]: b Deletions in the original are given here in angular brackets.—Ed.
+
+
+
+The Communists do not put forward any new theory of property. They state a fact. You deny the most striking facts. You have to deny them. You are backward looking Utopians.
+
+Written in December 1847-January 1848
+
+First published as a facsimile in the journal Der Wahre Jakob No. 565 (6), March 17, 1908
+
+Printed according to the manu- script
+
+Published in English for the first time
+
+[^1]: a In the M S. the whole sentence including deleted words is struck out.—Ed. -
+
+
+

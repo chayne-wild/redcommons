@@ -1,0 +1,160 @@
+---
+Volume: 4
+Document_Title: "The Agricultural Proletariat "
+Page_Range: "574-588"
+---
+
+# The Agricultural Proletariat 
+
+THE AGRICULTURAL PROLETARIAT
+
+We have seen in the introduction how, simultaneously with the small bourgeoisie and the modest independence of the former workers, the small peasantry also was ruined when the former Union of industrial and agricultural work was dissolved, the abandoned fields thrown together into large farms, and the small peasants superseded by the overwhelming competition of the large farmers. Instead of being landowners or leaseholders, as they had been hitherto, they were now obliged3 to hire themselves as labourers to the large farmers or the landlords. For a time this position was endurable, though a deterioration in comparison with their former one. The extension of industry kept pace with the increase of population until the progress of manufacture began to assume a slower pace, and the perpetual improvement of machin- ery made it impossible for manufacture to absorb the whole surplus of the agricultural population. From this time forward, the distress which had hitherto existed only in the manufacturing districts, and then only at times, appeared in the agricultural districts too. The twenty-five years' struggle with France came to an end at about the same time184; the diminished production at the various seats ®f the wars, the shutting off of imports, and the necessity of providing for the British army in Spain, had given English agriculture an artificial prosperity, and had besides with- drawn to the army vast numbers of workers from their ordinary occupations. This check upon the import trade, the opportunity
+
+[^1]: The German editions of 1845 and 1892 have "obliged to give up their owr farms and".— Ed.
+
+
+
+For a time after the rise of the agricultural proletariat, the patriarchal relation between master and man, which was being destroyed for manufacture, developed here the same relation of the farmer to his hands which still exists almost everywhere in Germany. So long as this lasted, the poverty of the farm-hands was less conspicuous; they shared the fate of the farmer, and were discharged only in cases of the direst necessity. But now all this is changed. The farm-hands have become day-labourers almost everywhere, are employed only when needed by the farmers, and, therefore, often have no work for weeks together, especially in winter. In the patriarchal time, the hands and their families lived on the farm, and their children grew up there, the farmer trying to find occupation on the spot for the oncoming generation; day-labourers, then, were the exception, not the rule. Thus there was, on every farm, a larger number of hands than were strictly necessary. It became, therefore, the interest of the farmers to dissolve this relation, drive the farm-hand from the farm, and transform him into a day-labourer. This took place pretty general- ly towards the year 1830,b and the consequence was that the hitherto lajentc over-population was set free, the rate of wages forced down, and the poor-rate enormously increased. From this time the agricultural districts became the headquarters of perma- nent, as the manufacturing districts had long been of periodic,
+
+[^1]: a The German editions of 1845 and 1892 give "agricultural distress" in English, followed by the German equivalent.— Ed.
+
+[^2]: b The German editions of 1845 and 1892 have "towards the end of the twenties of the present century".—Ed.
+
+[^3]: 1 The German editions of 1845 and 1892 have "to use an expression from physics".— Ed.
+
+[^4]: 19-762
+
+
+
+
+
+**[p. 550]**
+
+
+
+[^1]: a In the German editions of 1845 and 1892 this sentence reads: "From this time the agricultural districts became the main seats of permanent, as the manufac- turing districts of periodic, pauperism."—Ed.
+
+[^2]: In the German editions of 1845 and 1892, this sentence reads: "The cultivation of waste common land was too risky a speculation for big capital to be invested in it following the conclusion of peace."—Ed.
+
+
+
+"That is an English peasant or pauper; for the words are synonymous. His sire was a pauper, and his mother's milk wanted nourishment. From infancy his food has been bad as well as insufficient; and he now feels the pains of unsatisfied hunger nearly whenever he is awake. But half-clothed, and never supplied with more warmth than suffices to cook his scanty meals, cold and wet come to him, and stay by him with the weather. He is married, but he has not tasted the highest joys of husband and father. His partner, and little ones being, like himself, often hungry, seldom warm, sometimes sick without aid, and always sorrowful without hope, are greedy, selfish, and vexing; so, to use his own expression, he 'hates the sight of them', and resorts to his hovel, only because a hedge affords less shelter from the wind and rain." He must support his family, though he cannot do so. "This brings begging, trickery, and quarrelling; and ends in settled craft. Though he have the inclination, he wants the courage to become, like more energetic men of his class, a poacher or smuggler on a large scale; but he pilfers occasionally, and teaches his children to lie and steal. His subdued and slavish manner towards his great neighbours shows that they treat him with suspicion and harshness. Consequently, he at once dreads and hates them; but he will never harm them by violent means. Too degraded to be desperate, he is thoroughly depraved. His miserable career will be short; rheumatism and asthma are conducting him to the workhouse, where he will breathe his last without one pleasant recollection, and so make room for another wretch who may live and die in the same way."3
+
+Our author adds that besides this class of agricultural labourers, there is still another, somewhat more energetic and better en- dowed physically, mentally, and morally; those, namely, who live as wretchedly, but were not born to this condition. These he represents as better in their family life, but smugglers and poachers who get into frequent bloody conflicts with the gamekeepers and revenue officers of the coast, become more embittered against society during the prison life which they often undergo, and so stand abreast of the first class in their hatred of the property-holders.
+
+[^1]: * E. G. Wakefield, M. P., Swing Unmasked; or, the Causes of Rural Incendiarism, London, 1831. Pamphlet. The foregoing extracts may be found pp. 9-13, the passages dealing in the original with the then still existing Old Poor Law being here omitted.— Note by Engels.
+
+[^2]: After the words "English peasant" at the beginning of the quotation the German editions of 1845 and 1892 have in brackets "i.e., agricultural labourer"; the words "hates the sight of them" are given in brackets after the German equivalent. —Ed.
+
+[^3]: 19*
+
+
+
+Down to the present time, this description applies to the greater portion of the agricultural labourers of England. In June, 1844, the Times sent a correspondent into the agricultural districts to report upon the condition of this class, and the report which he furnished agreed wholly with the foregoing.185 In certain districts wages were not more than six shillings a week; not more, that is, than in many districts in Germany, while the prices of all the necessaries of life are at least twice as high. What sort of life these people lead may be imagined; their food scanty and bad, their clothing ragged, their dwellings cramped and desolate, small, wretched huts, with no comforts whatsoever; and, for young people, lodging-houses, where men and women are scarcely separated, and illegitimate intercourse thus provoked. One or two days without work in the course of a month must inevitably plunge such people into the direst want. Moreover, they cannot combine to raise wages, because they are scattered, and if one alone refuses to work for low wages, there are dozens out of work, or supported by the rates,b who are thankful for the most trifling offer, while to him who declines work, every other form of relief than the hated workhouse is refused by the Poor Law guardians as to a lazy vagabond; for the guardians are the very farmers from whom or from whose neighbours and acquaintances alone he can get work. And not from one or two special districts of England do such reports come. On the contrary, the distress is general, equally great in the North and South, the East and West. The condition of the labourers in Suffolk and Norfolk corresponds with that of Devonshire, Hampshire, and Sussex. Wages are as low in Dorset- shire and Oxfordshire as in Kent and Surrey, Buckinghamshire and Cambridgeshire.
+
+[^1]: One especially barbaric cruelty against the working-class0 is embodied in the Game Laws, which are more stringent0 than in
+
+[^2]: a In the German editions of 1845 and 1892 the words "by courtesy" and "the bold peasantry of England" are given in English in brackets after their German equivalents. Engels attributed the phrase "the bold peasantry of England" to Shakespeare, an inaccuracy which was corrected in the American and English editions. In fact, the phrase "a bold peasantry, their country's pride" appears in Goldsmith's The Deserted Village.—Ed.
+
+[^3]: The German editions of 1845 and 1892 have here "out of work and workhouse inmates".— Ed.
+
+[^4]: The German editions of 1845 and 1892 have "agricultural proletariat" instead of the "working-class".— Ed.
+
+[^5]: The German editions of 1845 and 1892 have here"in England".— Ed.
+
+
+
+any other country, while the game is plentiful beyond all concep- tion. The English peasant who, according to the old English custom and tradition, sees in poaching only a natural and noble expression of courage and daring, is stimulated still further by the contrast between his own poverty and the car tel est notre plaisir3 of the lord, who preserves thousands of hares and game birds for his private enjoyment. The labourer lays snares, or shoots here and there a piece of game. It does not injure the landlord as a matter of fact, for he has a vast superfluity, and it brings the poacher a meal for himself and his starving family. But if he is caught he goes to jail, and for a second offence receives at the least seven years' transportation. From the severity of these laws arise the frequent bloody conflicts with the gamekeepers, which lead to a number of murders every year. Hence the post of gamekeeper is not only dangerous, but of ill-repute and despised. Last year, in two cases, gamekeepers shot themselves rather than continue their work. Such is the moderate price at which the landed aristocracy purchases the noble sport of shooting; but what does it matter to the lords of the soilb? Whether one or two more or less of the"sur- plus" live or die matters nothing, and even if in consequence of the Game Laws half the surplus population could be put out of the way, it would be all the better for the other half — according to the philanthropy of the English landlords.
+
+Although the conditions of life in the country, the isolated dwellings, the stability of the surroundings and occupations, and consequently of the thoughts, are decidedly unfavourable to all development, yet poverty and want bear their fruits even here. The manufacturing and mining proletariat emerged early from the first stage of resistance to our social order, the direct rebellion of the individual by the perpetration of crime; but the peasants are still in this stage at the present time. Their favourite method of social warfare is incendiarism. In the winter which followed the Revolution of July, in 1830-31, these incendiarisms first became general. Disturbances had taken place, and the whole region of Sussex and the adjacent counties had been brought into a state of excitement in October, in consequence of an increase of the coastguard (which made smuggling much more difficult and "ruined the coast"—in the words of a farmer), changes in the Poor Law, low wages, and the introduction of machinery. In the
+
+[^1]: a For such is our pleasure.— Ed.
+
+[^2]: In the German editions of 1845 and 1892 this expression is given in English.— Ed.
+
+
+
+
+
+**[p. 554]**
+
+winter the farmers' hay and corn-stacks were burnt in the fields, and the very barns and stables under their windows. Nearly every night a couple of such fires blazed up, and spread terror among the farmers and landlords. The offenders were rarely discovered, and the workers attributed the incendiarism to a mythical person whom they named "Swing". Men puzzled their brains to discover who this Swing could be and whence this rage among the poor of the country districts. Of the great motive power, Want, Oppres- sion, only a single person here and there thought, and certainly no one in the agricultural districts. Since that year the incendiarisms have been repeated every winter, with each recurring unemployed season of the agricultural labourers. In the winter of 1843-44, they were once more extraordinarily frequent. There lies before me a series of numbers of the Northern Star of that time, each one of which contains a report of several incendiarisms, stating in each case its authority. The numbers3 wanting in the following list I have not at hand; but they, too, doubtless contain a number of cases. Moreover, such a sheet cannot possibly ascertain all the cases which occur. November 25th, 1843, two cases; several earlier ones are discussed. December 16th, in Bedfordshire, general excitement for a fortnight past in consequence of frequent incendiarisms, of which several take place every night. Two great farm-houses burnt down within the last few days; in Cambridgeshire four great farm-houses, Hertfordshire one, and besides these, fifteen other incendiarisms in different districts. December 30th, in Norfolk one, Suffolk two, Essex two, Cheshire one, Lancashire one, Derby, Lincoln, and the South twelve. January 6th, 1844, in all ten. January 13th, seven. January 20th, four incendiarisms. From this time forward, three of four incendiarisms per week are reported, and not as formerly until the spring only, but far into July and August. And that crimes of this sort are expected to increase in the approaching hard season of 1844-45, the English papers already indicate .b
+
+What do my readers think of such a state of things in the quiet, idyllic country districts of England? Is this social war, or is it not? Is it a natural state of things which can last? Yet here the landlords and farmers are as dull and stupefied, as blind to
+
+[^1]: The German editions of 1845 and 1892 have here "of this weekly".—Ed.
+
+[^2]: In the German editions of 1845 and 1892 this sentence reads: "The English papers I have received since then and the reports in German papers prove that crimes of this sort increased with the approach of the hard season of 1844- 45."—Ed.
+
+
+
+everything which does not directly put money into their pockets, as the manufacturers and the bourgeoisie in general in the manufacturing districts. If the latter promise their employees salvation through the repeal of the Corn Laws, the landlords and a great part of the farmers promise theirs Heaven upon earth from the maintenance of the same laws. But in neither case do the property-holders succeed in winning the workers to the support of their pet hobby. Like the operatives, the agricultural labourers are thoroughly indifferent to the repeal or non-repeal of the Corn Laws. Yet the question is an important one for both. That is to say — by the repeal of the Corn Laws, free competition, the present social economy is carried to its extreme point; all further development within the present order comes to an end, and the only possible step farther is a radical transformation of the social order.* For the agricultural labourers the question has, further, the following important bearing: Free importation of corn involves (how, I cannot explain here) the emancipation of the farmers from the landlords, their transformation into Liberals. Towards this consummation the Anti-Corn Law League has already largely contributed, and this is its only real service. When the farmers become Liberals, i.e., conscious bourgeois, the agricultural labour- ers will inevitably become Chartists and Socialists3; the first change involves the second. And that a new movement is already beginning among the agricultural labourers is proved by a meeting which Earl Radnor, a Liberal landlord, caused to be held in October, 1844, near Highworth, where his estates lie, to pass resolutions against the Corn Laws. At this meeting, the labourers, perfectly indifferent as to these laws, demanded something wholly different, namely small holdings, at low rent, for themselves, telling Earl Radnor all sorts of bitter truths to his face. Thus the movement of the working-class is finding its way into the remote, stationary, mentally dead agricultural districts; and, thanks to the general distress, will soon be as firmly rooted and energetic as in the manufacturing districts.**
+
+[^1]: * This has been literally fulfilled. After a period of unexampled extension of trade, Free Trade has landed England in a crisis, which began in 1878, and is still increasing in energy in 1886.— Note by Engels to the American edition of 1887 (reproduced in the English edition of 1892 — Ed.).
+
+[^2]: ** The agricultural labourers have now a Trade's Union; their most energetic representative, Joseph Arch, was elected M. P. in 1885.— Note by Engels to the American edition of 1887 (reproduced in the English edition of 1892 — Ed.).
+
+[^3]: a The German editions of 1845 and 1892 have here "i.e., conscious pro- letarians".— Ed.
+
+
+
+As to the religious state o£ the agricultural labourers, they are, it is true, more pious than the manufacturing operatives; but they, too, are greatly at odds with the Church—for in these districts members of the Established Church almost exclusively are to be found. A correspondent of the Morning Chronicle, who, over the signature, "One who has whistled at the plough",3 reports his tour through the agricultural districts, relates, among other things, the following conversation with some labourers after service:
+
+"I inquired if the clergyman who had preached was the one who usually ministered there? 'Yes, blast him! he be our own parson sure enough—he be always a-begging; he be always, sin' ever I knowed him.' " (The sermon had been upon a mission to the heathen.) "'And sin' I knowed him,' said another, 'I never knowed a parson as wasn't a-begging for summat or tother.' 'Ah!' says a woman who came just out of the church: 'And look at wages a comin' down, look at them rich wagerbonds as the parsons hunt and dine and drink with! So help me God, we bes more fitter to be taken into the union and starved, than pay for parsons to go abroad.' 'Why don't they,' said another, 'send them parsons as be chantering every day in Salisbury Cathedral to nobody but the bare stones, why don't they go?' 'They don't go,' said the old man who spoke first, 'because they be so rich as to have so much land all over, they wants the money to send away the poor uns; I knows what they want; I been knowing them too long not to know that.' 'But my good friends,' said I, 'you surely don't go to church always and come out of it with such bitter dislike to the parsons. If you do, why go at all?' 'Why go at all?' said the woman, 'we be like to go, and we wouldn't lose everything, work and all; we be like to go.' I learned later that they 'could get a few privileges in regard to fuel and ground for potatoes' (to be paid for!) if they went to church."
+
+After describing their poverty and ignorance, the correspondent closes by saying:
+
+If the peasantry of England shows the consequences which a numerous agricultural proletariat in connection with large farming involves for the country districts, Wales illustrates the ruin of the small holders. If the English country parishes reproduce the antagonism between capitalist and proletarian, the state of the Welsh peasantry corresponds to the progressive ruin of the small bourgeoisie in the towns. In Wales are to be found, almost exclusively, small holders, who cannot with like profit sell their products as cheaply as the larger, more favourably situated English farmers, with whom, however, they are obliged to com- pete. Moreover, in some places the quality of the land admits of
+
+[^1]: "Now I assert fearlessly that the condition of these people, their poverty, their hatred of the churches, their outward compliance with, but inward bitterness towards, its dignitaries, is the rule throughout rural England; and that anything to the contrary is the exception."
+
+[^2]: a The pen-name of Alexander Somerville.—Ed.
+
+
+
+If England illustrates the results of the system of farming on a large scale and Wales on a small one, Ireland exhibits the consequences of overdividing the soil. The great mass of the population of Ireland consists of small tenants who occupy a sorry hut without partitions, and a potato patch just large enough to
+
+[^1]: a The German editions of 1845 and 1892 have here "In February 1843".—Ed.
+
+
+
+
+
+**[p. 558]**
+
+
+
+[^1]: * Report of the Poor Law Commissioners for Ireland. Parliamentary Session of 1837.—Note by Engels.
+
+[^2]: ** Principles of Population, vol. ii.— Note by Engels.
+
+[^3]: The German editions of 1845 and 1892 have "annually produces".— Ed. In the German editions of 1845 and 1892 the word "destitution" is given in English in brackets after the German equivalent.— Ed.
+
+
+
+The cause of this poverty lies in the existing social conditions, especially in competition here found in the form of the subdivision of the soil. Much effort has been spent in finding other causes. It has been asserted that the relation of the tenant to the landlord who lets his estate in large lots to tenants, who again have their sub-tenants, and sub-sub-tenants, in turn, so that often ten middlemen come between the landlord and the actual cul- tivator— it has been asserted that the shameful law which gives the landlord the right of expropriating the cultivator who may have paid his rent duly, if the first tenant fails to pay the landlord, that this law is to blame for all this poverty. But all this determines only the, form in which the poverty manifests itself. Make the small tenant a landowner himself and what follows? The majority could not live upon their holdings even if they had no rent to pay, and any slight improvement which might take place would be lost again in a few years in consequence of the rapid increase of population. The children would then live to grow up under the improved conditions who now die in consequence of poverty in early childhood. From another side comes the assertion that the shameless oppression inflicted by the English is the cause of the trouble. It is the cause of the somewhat earlier appearance of this poverty, but not of the poverty itself. Or the blame is laid on the Protestant Church forced upon a Catholic nation; but divide among the Irish what the Church takes from them, and it does not reach six shillings3 a head. Besides, tithes are a tax upon landed property, not upon the tenant, though he may nominally pay them; now, since the Commutation Bill of 1838,187 the landlord pays the tithes directly and reckons so much higher rent, so that the tenant is none the better off. And in the same way a hundred other causes of this poverty are brought forward, all proving as little as these. This poverty is the result of our social conditions; apart from these, causes may be found for the manner in which it manifests itself, but not for the fact of its existence. That poverty manifests itself in Ireland thus and not otherwise, is owing to the character of the people, and to their historical development. The Irish are a people related- in their whole character to the Latin nations, to the French, and especially to the Italians. The bad features of their character we have already had
+
+[^1]: 3 The German editions of 1845 and 1892 have "two talers".—Ed.
+
+
+
+"They are restless yet indolent, shrewd and indiscreet, impetuous, impatient and improvident, instinctively brave, thoughtlessly generous; quick to resent and forgive offences, to form and renounce friendships. With genius they are profusely gifted; with judgment sparingly."
+
+With the Irish, feeling and passion predominate; reason must bow before them. Their sensuous, excitable nature prevents reflection and quiet, persevering activity from reaching develop- ment— such a nation is utterly unfit for manufacture as now conducted. Hence they held fast to agriculture, and remained upon the lowest plane even of that. With the small subdivisions of land, which were not here artificially created, as in France and on the Rhine, by the division of great estates,** but have existed from time immemorial, an improvement of the soil by the investment of capital was not to be thought of; and it would, according to Alison, require 120 million pounds sterling to bring the soil up to the not very high state of fertility already attained in England. The English immigration, which might have raised the standard of Irish civilisation, has contented itself with the most brutal plunder- ing of the Irish people; and while the Irish, by their immigration into England, have furnished England a leaven which will produce its own results in the future, they have little for which to be thankful to the English immigration.
+
+The attempts of the Irish to save themselves from their present ruin, on the one hand, take the form of crimes. These are the order of the day in the agricultural districts, and are nearly always directed against the most immediate enemies, the landlords' agents, or their obedient servants, the Protestant intruders, whose large farms are made up of the potato patches of hundreds of ejected families. Such crimes are especially frequent in the South and West. On the other hand, the Irish hope for relief by means of the agitation for the repeal of the Legislative Union with England.188 From all the foregoing, it is clear that the uneducated
+
+[^1]: * The State of Ireland, London, 1807; 2nd ed., 1821. Pamphlet.—Note by Engels. ** (1892) Mistake. Small-scale agriculture had been the prevailing form of farming ever since the Middle Ages. Thus the small peasant farms existed even before the Revolution. The only thing the latter changed was their ownership; that it took away from the feudal lords and transferred, directly or indirectly, to the peasants.— Note by Engels to the German edition of 1892.
+
+[^2]: a John Wilson Croker.—Ed.
+
+
+
+I close my observations upon Ireland at this point the more readily, as the Repeal Agitation of 1843 and O'Connell's trial189
+
+have been the means of making the Irish distress more and more known in Germany.
+
+We have now followed the proletariat of the British Islands through all branches of its activity, and found it everywhere living in want and misery under totally inhuman conditions. We have seen discontent arise with the rise of the proletariat, grow, develop, and organise; we have seen open bloodless and bloody battles of the proletariat against the bourgeoisie. We have investi- gated the principles according to which the fate, the hopes, and fears of the proletariat are determined, and we have found that there is no prospect of improvement in their condition.
+
+We have had an opportunity, here and there, of observing the conduct of the bourgeoisie towards the proletariat, and we have found that it considers only itself, has only its own advantage in view. However, in order not to be unjust, let us investigate its mode of action somewhat more exactly.
+

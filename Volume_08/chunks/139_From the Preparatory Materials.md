@@ -1,0 +1,202 @@
+---
+Volume: 8
+Document_Title: "From the Preparatory Materials"
+Page_Range: "512-524"
+---
+
+# From the Preparatory Materials
+
+
+
+**[p. 1934]**
+
+Karl Marx
+
+[PROHIBITION OF A TORCHLIGHT PROCESSION FOR GOTTSCHALK]
+
+At 10 o'clock on Friday (December 23) a deputation from the Workers' Association went to see Geiger, the Police Superintendent, to get permission to hold a torchlight procession for Gottschalk. Geiger stated that he could not permit this as "it was not allowed". A second deputation then went to see Commandant Engels.
+
+He asked for the names of those who wished to see him. Beckhaus- en and another man came in and explained that they had come from police headquarters and that permission to hold the torchlight procession had been refused there. They now wished to request him.
+
+Engels was already prepared. No names had yet been mentioned, nothing had yet been said about for whom and for what purpose the torchlight procession was to be held; he interrupted:
+
+He also refused "under any circumstances" to allow a song with accom paniment.
+
+[^1]: "The authorities had the men arrested and so on; it is true that they have been acquitted by the jury; but because they once had them arrested the authorities cannot now allow the torchlight procession to take place."
+
+[^2]: Written by Marx in December 1848 Printed according to the manu-
+
+[^3]: First published in the book: W. Kühn, Der P junge Hermann Becker, Bd. I, Dortmund, Published in English for the first time
+
+[^4]: i?-2>780
+
+
+
+
+
+**[p. 484]**
+
+Karl Marx FRAGMENT OF THE DRAFT OF "THE BOURGEOISIE
+
+AND THE COUNTER-REVOLUTION"380
+
+5) in a word low thus even these unseemly things already made him into a type characteristic of the class which he represented, and thus lent him a charm of his own for the impartial observer of Prussian bourgeois natural history.
+
+Let us pass on from the programme to its execution, and let us not forget that the Hansemann Ministry characterises the epoch in which the upstart German philistine is at pains to play the role of the English or French bourgeois.
+
+Hansemann, characteristic of his Ministry
+
+[^1]: Written by Marx at the end of December Printed according to the manu- 1848 script
+
+[^2]: First published in: Marx/Engels, Gesamt- ausgabe, Abt. 1, Bd. 7, 1935
+
+[^3]: Published in English for the first time
+
+
+
+
+
+**[p. 485]**
+
+Karl M a r x
+
+DRAFT OF A SPEECH AT THE TRIAL OF THE NEUE RHEINISCHE ZEITUNG3
+
+II. JURIDICAL
+
+Ad Article 222.
+
+"Lorsqu'un ou plusieurs magistrats de l'ordre administratif ou judiciaire auront reçu dans l'exercice de leurs fonctions ou à l'occasion de cet exercice quelque outrage par paroles tendant: inculper leur honneur ou leur délicatesse, celui qui les aura ainsi outragés, sera puni d'un emprisonnement d'un mois à deux ans.—Si l'outrage a eu lieu à l'audience d'une cour ou d'un tribunal, l'emprisonnement sera de deux à cinq
+
+What is honneur? What is délicatesse? The distinction between "insult" and "calumny" is contained in Article 375, which reads as follows:
+
+[^1]: >> a ans.
+
+[^2]: "Quant aux injures ou aux expressions outrageantes qui ne renfermeraient l'imputation d'aucun fait précis, mais celle d'un vice déterminé, si elles ont été proférées dans des lieux ou réunions publics ou insérées dans des écrits imprimés ou non, qui auraient été répandus et distribués, la peine sera une amende de seize francs à cinq cents francs." § 376. "Toutes autres injures ou expressions outrageantes qui n'auront pas eu ce double caractère de gravité et de publicité, ne donneront lieu qu'à des peines de simple police."
+
+[^3]: "If one or more officials of the administrative or judiciary system during the performance of their official functions or on the occasion of this performance have been subjected to insult by words tending to impugn their honour or delicacy, the person who has insulted them in this way will be punished by imprisonment from one month to two years.— If the insult took place at the sitting of a court or tribunal, the imprisonment will be from two to five years."—Ed.
+
+[^4]: "As regards insults or insulting expressions which do not contain the imputation of any precise act, but that of a definite vice, if they have been put forward in public places or meetings or inserted in writings, whether printed or not, which have been disseminated and distributed, the punishment will be a fine of from sixteen to five hundred francs." § 376. "AH other insults or insulting expressions which do not have this double character of seriousness and publicity will entail only a simple police punishment." — Ed.
+
+[^5]: 17'
+
+
+
+
+
+**[p. 486]**
+
+Calumny, therefore, is present only where I impute to someone a fait précis, a definite act, which he himself is supposed to have committed. If I call someone a thief, then only Article 375 is applicable. The term "thief" is not a "fait précis", it is not at all the imputation of an "act", but only an "expression outrageante", the imputation of a "definite vice". Yesterday at such and such a place you stole a couple of silver spoons, is on the other hand calumny. Instead of the fine under §375 it incurs the much heavier punishment of imprisonment and loss of civil rights. The reason is: in the latter case the thing is more probable, greater damage to honour, and so on. Just as Article 375 concerns a private person, Article 222 concerns an official when the délit is committed against him in the performance of his duties. In accordance with the hierarchical spirit of the Code, an insult to a functioning official is punished more severely than an insult to an ordinary person. In content and concept, Article 222 is entirely identical with Article 375. Article 222 is simply an intensification of the punishment, as of the crime. Article 375 is applied in respect of officials engaged in performing their function.
+
+Article 222 does not take the place of Article 367, where the crime of calumny against functioning officials is committed, but of Article 375. Otherwise crimes against private persons would be more severely punished than crimes against functioning officials, which is contrary to the spirit of the Code.
+
+Therefore 1) Article 222 is identical with Article 375.
+
+2) Article 222 differs from Article 367, just as 367 does from 375. As regards Zweiffel, the only incriminating statement can be: "Furthermore, Herr Chief Public Prosecutor Zweiffel is said to have stated that within eight days etc. he would put an end to it."b
+
+Hence Article 222 (375) is not applicable, for which it would have to be said: "Zweiffel is said to have made base and dishonourable statements"0 and the particular statement is a "fait précis", a definite and precisely adduced utterance.
+
+But Article 222 is not applicable for other reasons, too: 2) Zweiffel was not functioning at all.
+
+[^1]: a Offence.—Ed.
+
+[^2]: The reference is to the following passage in the incriminated article "Arrests" printed in the Neue Rheinische Zeitung: "Chief Public Prosecutor Zweiffel, moreover, is said to have declared that he would within a week put an end to March 19, the clubs, freedom of the press and other outrages of the evil year 1848 at Cologne on the Rhine" (see present edition, Vol. 7, p. 179).— Ed. The manuscript is indecipherable here.— Ed.
+
+
+
+^ a ^ v^r<u-T^VT^' ^ f ^ U - ^ S £ W-* ^ J l
+
+ft^^^—i^ r ^ V * * ^ — r > ^ - , 1 ^ w é P t4-v~"¥ (H*-4**—^ - É W ^ * K^-«***- ^ v ^
+
+[^1]: A page from Marx's draft of a speech at the trial of the Neue Rheinische Zeitung
+
+
+
+
+
+The words in Article 222 "dans l'exercice de leurs fonctions ou à l'occasion de cet exercice" and the words "outrage par paroles" express the same thought, and demonstrate in an equally convincing way that in this article the legislator had in view only insults which occur immediately on the occasion of an official function, hence must be made orally, and that Article 222 does not cover insults which are made in written form long after the completion of the official function.
+
+If the insult must have taken place "par paroles", orally, then that already implies that it is made during the performance of the official function. If we prove that in Article 222 the legislator had in view only insults uttered in the presence in person of the official, it is thereby shown that no insult comes under Article 222 which is made long afterwards and in the absence of the official in written form. (A writ- ten insult in itself presupposes the absence of the person insulted, the presence of the person insulted presupposes an oral insult.)
+
+In the motives given for Article 222 (exposé par M. le conseiller d'état Berlier, séance du 6 février 1810), it is stated:
+
+"Il ne sera donc ici question que des seuls outrages qui compromettent la paix publique e.àd. de ceux dirigés contre les fonctionnaires ou agents publics dans l'exercice ou à l'occasion de l'exercice de leurs fonctions; dans ce cas ce n'est plus seulement un particulier, c'est l'ordre public qui est blessé La hiérarchie politique sera dans ce cas prise en considération: celui qui se permet des outrages ou violences envers un officier ministériel est coupable, sans doute, mais il commet un moindre scandale que lorsqu'il outrage un magistrat."
+
+It follows from this: The legislator regards the insult against which he invokes Article 222 as the lowest degree of resistance to a functioning official, as a revolt and résistance against the functioning official which is confined to grumbling without going as far as acts of violence. How otherwise could such an "outrage" violate "la paix publique"? La paix publique is violated only when a revolt for overthrowing the laws is undertaken in one way or another, or when any official performing the duties of his office testifies to resistance to the law, whether by deed or only by insulting utterances. If today I insult the Chief Public
+
+[^1]: a "It will therefore be a question here only of insults which violate public peace, that is to say, insults directed against officials or public agents during the performance or on the occasion of the performance of their functions; in this case it is no longer a private person, it is public order which is harmed In this case the political hierarchy will be taken into consideration : one who indulges in insults or acts of violence directed against a government agent is undoubtedly guilty, but he causes a lesser scandal than when he insults a judge."—Ed.
+
+
+
+
+
+**[p. 490]**
+
+Prosecutor in a newspaper, I do not thereby disturb la paix publique, and it is expressly stated in the motives quoted above:
+
+"II ne sera donc ici question que des seuls outrages qui compromettent la paix publique."
+
+In the same passage it is stated:
+
+"Ainsi qui se permet des outrages ou violences envers un officier."
+
+Outrage and violence are here regarded as identical in concept and are treated as crimes differing only in the degree of their gravity. But just as violence can only be committed in the presence in person of the functioning official, so outrage, the lowest degree of the same offence, requires the personal presence of the official. Otherwise the insult does not cause any disturbance to the performance of an official function, and therefore also no disturbance of la paix publique.
+
+If, however, this presence in person of the official (the insulted person) is necessary, the insult can only be committed orally, par parole, and cannot be extended to include insults in writing, or at any rate only in those cases where written insults are possible during the performance of an official Junction. (For example, the examining magistrate.) Hence, too, there is no provision for lèse-majesté in the Code. If the Code understands insults to officials only in such a way that the official is insulted during the performance of his office and in fact in his own presence in person, crimes of lèse-majesté in this sense would be impossible, because the King does not perform any func- tion personally, but only causes it to be performed by others, and consequently can never be insulted in the sense of Article 222, during appearance in person and immediate functioning.
+
+By the addition of "à l'occasion de cet exercice", it seems that the matter assumes a different character and that the requirement of presence in person ceases to exist. This interpretation is best refuted by §228, which states:
+
+[^1]: "Tout individu qui, même sans armes, et sans qu'il en soit résulté de blessures, aura frappé un magistrat dans l'exercice de ses fonctions, ou à l'occasion de cet exercice, sera puni d'un emprisonnement de deux à cinq ans/—Si cette voie de fait a eu lieu à l'audience d'une cour ou d'un tribunal, le coupable sera puni du carcan."
+
+[^2]: a "Thus anyone who indulges in insults or violence against an official."—Ed. "Any person who, even unarmed and without any wounds resulting, strikes an official during the performance of his functions, or on the occasion of this performance, will be punished by imprisonment from two to five years.—If such an act has taken place during the sitting of a court or tribunal, the guilty person will be punished by the pillory."—Ed.
+
+
+
+Presence in person, therefore, continues to be essential through the words "à l'occasion", for I cannot strike anyone in his absence. Moreover, "à l'occasion" does not mean "in relation to ", but "on the occasion of". I cannot deal any "relative" blows.
+
+The legislator has added here the words "à l'occasion" only so that the case envisaged by Articles 222 and 228 is not restricted merely to the duration of the official action, so that the insult can take place also immediately before or immediately afterwards, but always immediately linked with the official function, and must take place in the presence in person of the official.
+
+As I can strike an official only in his presence, so, too, the case envisaged by Article 222, since it contains the'same phrase "à l'occasion de cet exercice" as is required also by Article 228 concerning coups* and blessures* can take place only in the presence of the official and therefore by means of words.
+
+There is no calumny in respect of the police:
+
+a) Proof of the truth. b) Because they are not named. The word "policeman" does not denote a particular individual, but is a collective concept.
+
+There is no calumny in respect of Zweiffel:
+
+a) Zweiffel not accused of any "faits, qui s'ils existaient"1 etc., but merely of "mots".d This distinction justified. An "utterance"6 not only does not make one punishable by law, but equally does not make "the citizen hated and despised".
+
+b) Zweiffel "is said". An assertion which is to be believed must not cast doubt on itself/
+
+Article 367 concludes with the words:
+
+[^1]: "La présente disposition n'est point applicable aux faits dont la loi autorise la publicité, ni à ceux que l'auteur de l'imputation était, par la nature de ses fonctions ou de ses devoirs, obligé de révéler ou de réprimer. " g
+
+[^2]: a Blows.—Ed.
+
+[^3]: Wounds.—Ed. c "Facts, which if they were real facts."—Ed. d Words.— Ed. e This, evidently, refers to Zweiffel's utterance cited in the incriminated article "Arrests" (see p. 486).— Ed.
+
+[^4]: Here the manuscript is illegible.— Ed. g "The present provision is not applicable to facts which the law permits to be made public, nor to those which the author of the imputation, owing to the nature of his functions or duties, was bound to reveal or repress."—Ed.
+
+
+
+
+
+**[p. 492]**
+
+There is, in addition:
+
+§ 372. "Lorsque les faits imputés seront punissables suivant la loi, et que l'auteur de l'imputation les aura dénoncés, il sera, durant l'instruction sur ces faits, sursis à la poursuite et au jugement du délit de calomnie."
+
+§ 309. Written by Marx on February 7, 1849 Printed according to the manu- script
+
+First published in Russian in: Marx and Published in English for the first Engels, Collected Works, Vol. 43, 1976 time
+
+[^1]: "When the acts imputed are punishable in accordance with the law and they have been denounced by the author of the imputation, he shall be remanded for proceedings and decision in regard to the offence of calumny during the investigation of these acts."—Ed.
+
+
+
+APPENDICES
+
+
+

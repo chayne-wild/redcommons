@@ -1,0 +1,6512 @@
+---
+Volume: 3
+Document_Title: "Karl Marx Works March 1843-August 1844"
+Page_Range: "24-400"
+---
+
+# Karl Marx Works March 1843-August 1844
+
+KARL MARX
+
+WORKS
+
+March 1843-August 1844
+
+/
+
+CONTRIBUTION TO THE CRITIQUE
+
+OF HEGEL'S PHILOSOPHY
+
+OF LAW1
+
+
+
+**[p. c]**
+
+
+
+[^1]: Written in the spring and summer of 1843 Printed according to the manu-
+
+[^2]: First published in: Marx/Engels, Gesamt- " ausgäbe, Abt. 1, Bd. 1, Hb. 1, 1927
+
+
+
+261. "Over against the spheres of civil law and personal welfare, the family and civil society, the state is on the one hand an external necessity and their superior authority, and both their laws and interests are subordinate to and dependent upon the nature of this authority. On the other hand, however, the state is their immanent end, and its strength lies in the unity of its ultimate general purpose with the particular interest of individuals — in the fact that they have duties towards the state since they have rights as well (para. 155)."
+
+The previous paragraph [i. e., para. 260] tells us that concrete freedom consists in the identity (as an ought, a dual identity) of the system of particular interest (the family and civil society) with the system of general interest (the state). The relation between these spheres has now to be more precisely defined.
+
+On the one hand, the state, over against the sphere of the family and civil society, is an "external necessity", an authority, in relation to which "laws" and "interests" are "subordinate and dependent". That the state is an "external necessity" over against the family and civil society was already implied to some extent in the category of "transition" and to some extent in the conscious relation of family and civil society to the state. The "subordination" to the state, too, corresponds completely to this relation of "external necessity". What Hegel means by "dependence", how- ever, is shown by the following sentence in the Remark to this paragraph:
+
+Hegel is thus speaking here of the fact that civil law, etc., is intrinsically dependent on, or determined in its essence by, the state.
+
+[^1]: "It was Montesquieu above all who kept in view [] both the thought of the dependence of civil law in particular on the specific character of the state, and also the philosophical notion of always treating the part in its relation to the whole", etc.
+
+
+
+
+
+**[p. 6]**
+
+At the same time, however, he subsumes this dependence under the relation of "external necessity" and contrasts it with the other relation in which the family and civil society have the state as their "immanent end".
+
+"External necessity" can only be taken to mean that where a collision occurs, the "laws" and "interests" of family and society must give way to the "laws" and "interests" of the state; that they are subordinate to it; that their existence is dependent on its existence; or again that its will and its laws appear to their "will" and their "laws" as a necessity!
+
+However, Hegel is not here speaking of empirical collisions: he is speaking of the relation of the "spheres of civil law and personal welfare, the family and civil society" to the state. What is at issue is the essential relationship of these spheres themselves. Not only their "interests", but also their "laws", their "fundamental characteris- tics" are "dependent" on the state, "subordinate" to it. It stands to their "laws and interests" as "superior authority". Their "interest" and "law" stand as its "subordinate". They live in "dependence" on it. Precisely because "subordination" and "dependence" are external relations which constrain and run counter to independent being, the relation of the "family" and of "civil society" to the state is that of "external necessity", of a necessity which goes against the inner nature of the thing. This fact itself, that the "civil law" depends on and is modified by "the specific character of the state", is therefore subsumed under the relation of "external necessity", precisely because "civil society and family" in their true (i. e., in their independent and complete) development are antecedent as particular "spheres" to the state. "Subordination" and "dependence" are the expressions for an "external", imposed, illusory identity, as the logical expression for which Hegel rightly uses "external necessity". In "subordination" and "dependence" Hegel has further developed one side of the dual identity, namely, the aspect of the estrangement within the unity;
+
+Hegel here sets up an unresolved antinomy. On the one hand external necessity, on the other hand immanent end. The unity of the ultimate general purpose of the state with the particular interest of individuals is supposed to consist in the fact that their duties to the state and their rights in the state are identical. (Thus, for example, the duty to respect property is supposed to coincide with the right to property.)
+
+[^1]: "on the other hand, however, the state is their immanent end, and its strength lies in the unity of its ultimate general purpose with the particular interest of individuals — in the fact that they have duties towards the state since they have rights as well."
+
+
+
+
+
+**[p. 7]**
+
+In the Remark [to para. 261] this identity is explained thus: "Duly is primarily behaviour towards something which is for me substantial and which is intrinsically universal; fight, on the other hand, is actually existente of this substance, and is thus the aspect of its particularity and of my particular freedom. Consequently, at formal levels both duty and right appear allocated to different sides or different persons. In the state, as something ethical, as the interpénétration of the substantial and the particular, my obligation to what is substantial is at the same time the form of existence of my particular freedom: in the state, that is, duty and right are united in one and the same relation."
+
+262. "The actual idea, mind, divides itself into the two ideal spheres of its concept, family and civil society, that is, its finite phase, so as to emerge from their ideality as explicitly infinite actual mind. Accordingly, it assigns to these spheres the material of this, its finite actuality, individuals as a multitude, in such a way that with regard to the individual this assignment appears mediated by circumstances, caprice and the individual's own choice of vocation."
+
+Translated into prose, the above yields this: The way in which the state effects its self-mediation with the family and civil society is decided by "circumstances, caprice and the individual's own choice of vocation". Political reason has therefore nothing to do with the distribution of the material of the state to the family and civil society. The state arises from them in an unconscious and arbitrary fashion. The family and civil society appear as the dark natural ground from which the light of the state arises. The material of the state is taken as comprising the concerns of the state, namely, the family and civil society, insofar as they form parts of the state and participate in the state as such.
+
+This exposition is remarkable in two respects.
+
+1) Family and civil society are conceived as spheres of the concept of the state, namely, as the spheres of its finite phase, as its finiteness. It is the state which divides itself into them, which presupposes them, and it does this "so as to emerge from their ideality as explicitly infinite actual mind". "It divides, so as to." It "accordingly assigns to these spheres the material of its actuality in such a way that this assignment, etc., appears mediated". The so-called "actual idea" (mind as infinite and actual) is presented as if it acted on a specific principle and with specific intent. It divides into finite spheres; it does this "so as to return into itself, to be conscious of itself"; and this it does indeed so that what comes to pass is precisely what actually exists.
+
+At this point the logical, pantheistic mysticism becomes very clear.
+
+The actual relation is this: "with regard to the individual the assignment of the material of the state is mediated by cir- cumstances, caprice and the individual's own choice of vocation". Speculative philosophy expresses this fact, this actual relation as
+
+
+
+**[p. 8]**
+
+appearance, as phenomenon. These circumstances, this caprice, this choice of vocation, this actual mediation—these are merely the appearance of a mediation which the actual idea effects with itself, and which goes on behind the scenes. Reality is expressed not as itself but as another reality. Ordinary empirical fact has not its own but an alien spirit for its law; whereas the form of existence of the actual idea is not an actuality evolved from itself, but ordinary empirical fact.
+
+The idea is made the subject and the actual relation of family and civil society to the state is conceived as its internal imaginary activity. Family and civil society are the premises of the state; they are the genuinely active elements, but in speculative philosophy things are inverted. When the idea is made the subject, however, the real subjects, namely, civil society, family, "circumstances, caprice, etc.", become unreal objective elements of the idea with a changed significance.
+
+The assignment of the material of the state "with regard to the individual mediated by circumstances, caprice and the individu- al's own choice of vocation" is not expressly stated to be what is true, necessary and absolutely warranted. These [circumstances, caprice, etc.] are as such not presented as rational. And yet, on the other hand, they are so presented simply by being presented as a seeming mediation, by being left as they are but at the same time acquiring the significance of being an attribute of the idea, a result, a product of the idea. The difference lies not in the content but in the method of approach or in the manner of speaking. There is a double history, an esoteric and an exoteric. The content lies in the exoteric part. The interest of the esoteric part is always that of finding again in the state the history of the logical concept. It is on the exoteric side, however, that development proper takes place.
+
+Rationally interpreted, Hegel's propositions would only mean this: The family and civil society are parts of the state. The material of the state is distributed amongst them "by circumstances, caprice and the individual's own choice of vocation". The citizens of the state are members of families and members of civil society.
+
+"The actual idea, mind, divides itself into the two ideal spheres of its concept, family and civil society, that is, its finite phase" — hence, the division of the state into family and civil society is ideal, i. e., necessary as part of the essence of the state. Family and civil society are actual components of the state, actual spiritual existences of the will; they are modes of existence of the state. Family and civil society constitute themselves as the state.
+
+
+
+**[p. 9]**
+
+They are the driving force. According to Hegel, they are on the contrary produced by the actual idea. It is not the course of their own life which unites them in the state; on the contrary, it is the idea which in the course of its life has separated them off from itself. Indeed, they are the finiteness of this idea. They owe their presence to another mind than their own. They are entities determined by a third party, not self-determined entities. Accord- ingly, they are also defined as "finiteness", as the "actual idea's" own finiteness. The purpose of their being is not this being itself; rather, the idea separates these presuppositions off from itself "so as to emerge from their ideality as explicitly infinite actual mind". That is to say, there can be no political state without the natural basis of the family and the artificial basis of civil society; they are for it a conditio sine qua non. But the condition is postulated as the conditioned, the determinant as the determined, the producing factor as the product of its product. The actual idea only degrades itself into the "finiteness" of the family and civil society so as by transcending them to enjoy and bring forth its infinity. "Accord- ingly" (in order to achieve its purpose), it "assigns to these spheres the material of this, its finite actuality" (this? which? these spheres are indeed its "finite actuality", its "material"), "individuals as a multitude" ("the individuals, the multitude" are here the material of the Wate; "the state consists of them": this composition of the state is here expressed as an act of the idea, as an "allocation" which it undertakes with its own material. The fact is that the state issues from the multitude in their existence as members of families and as members of civil society. Speculative philosophy expresses this fact as the idea's deed, not as the idea of the multitude, but as the deed of av subjective idea different from the fact itself), "in such a way that with regard to the individual this assignment" (previously the discussion was only about the assignment of individuals to the spheres of the family and civil society) "appears mediated by circumstances, caprice, etc." Empirical actuality is thus accepted as it is. It is also expressed as rational, but it is not rational on account of its own reason, but because the empirical fact in its empirical existence has a different significance from it itself. The fact which is taken as a point of departure is not conceived as such, but as a mystical result. The actual becomes a phenomenon, but the idea has no other content than this phenomenon. Nor has the idea any other purpose than the logical one of being "explicitly infinite actual mind". The entire mystery of the philosophy of law and of Hegel's philosophy as a whole is set out in this paragraph.
+
+[^1]: 2—482
+
+
+
+
+
+**[p. 10]**
+
+263. "In these spheres in which its elements, individuality and particularity, have their immediate and reflected reality, mind is present as their objective generality shining into them, as the power of the rational in necessity [(para. 184)], i. e., as the institutions considered above."
+
+264. "Since they themselves possess spiritual natures and therefore unite in themselves the two poles, namely, explicitly knowing and willing individuality, and the generality which knows and wills what is substantial, the individuals who make up the multitude acquire their rights on these two counts only insofar as they are actual both as private and as substantial persons. In these spheres [the family and civil society] they attain partly the first of these rights directly, and partly the second, in that they have their essential self-consciousness in the institutions as the inherently general aspect of their particular interests, and partly in that these institutions furnish them in the corporation with an occupation and an activity directed to a general purpose."
+
+265. "These institutions are the components of the constitution (i.e., of de- veloped and actualised rationality) in the sphere of particularity. They are, therefore, the firm foundation of the state as well as of the individual's confidence in it and disposition towards it, and the pillars of public freedom, since in them particular freedom is realised and rational, so that in themselves there is implicitly present the union of freedom and necessity."
+
+266. "But mind is objective and actual to itself not merely as this" (which?) "necessity [], but also as the ideality and the heart of this necessity. In this way this substantial generality is itself its own object and purpose, and therefore this necessity is equally present to itself in the shape of freedom."
+
+The transition of the family and civil society into the political state is, therefore, this: the mind of these spheres, which is implicitly the mind of the state, now also behaves to itself as such and is actual for itself as their inner core. The transition is thus derived, not from the particular nature of the family, etc., and from the particular nature of the state, but from the general relationship of necessity to freedom. It is exactly the same transition as is effected in logic from the sphere of essence to the sphere of the concept. The same transition is made in the philosophy of nature from inorganic nature to life. It is always the same categories which provide the soul, now for this, now for that sphere. It is only a matter of spotting for the separate concrete attributes the corresponding abstract attributes.
+
+The subject here is "necessity in ideality"—the "idea within itself". The predicate: political conviction and the political constitution. In plain language political conviction is the subjective and the political constitution the objective substance of the state. The logical development from family and civil society to the state is thus sheer pretence. For it is not explained how family sentiment, civic sentiment, the institution of the family and social institutions as
+
+[^1]: 267. "Necessity in ideality is the development of the idea within itself. As subjective substantiality it is political conviction, as objective substantiality, in distinction therefrom, it is the organism of the state, the strictly political state and its constitution."
+
+
+
+
+
+**[p. 11]**
+
+The transition in which mind exists "not merely as this necessity and as a realm of appearance" but is actual for itself and has a particular existence as "the ideality [] of this necessity", as the soul of this realm, this transition is no transition at all, for the soul of the family exists for itself as love, etc. The pure ideality of an actual sphere, however, could exist only as science.
+
+It is important that Hegel everywhere makes the idea the subject and turns the proper, the actual subject, such as "political conviction", into a predicate. It is always on the side of the predicate, however, that development takes place.
+
+Paragraph 268 contains a fine disquisition on political conviction, patriotism, which has nothing in common with logical exposition, except that Hegel describes this conviction as "only the result of the institutions existing in the state, in which rationality is actually present"; whereas on the contrary, these institutions are just as much an objectification of political conviction. Cf. the Remark to this paragraph.
+
+269. "This conviction gets its distinctive content from the various aspects of the organism of the state. This organism is the development of the idea into its distinct aspects and their objective actuality. These different aspects are thus the various authorities and their functions and activities, through which the general continually engenders itself, and that in a necessary fashion, since they are determined by the nature of the concept; and through these authorities the general also preserves itself, being likewise presupposed in its own production. This organism is the political
+
+The political constitution is the organism of the state, or the organism of the state is the political constitution. That the various aspects of an organism stand to one another in a necessary connection arising out of the nature of the organism is sheer tautology. That if the political constitution is defined as an organism, the various aspects of the constitution, the various authorities, behave as organic features and stand to one another in a rational relationship, is likewise a tautology. It is a great advance to treat the political state as an organism and therefore to look upon the variety of authorities no longer as something [in]or- ganic,a but as a living and rational differentiation. But how does Hegel present this discovery?
+
+1) "This organism is the development of the idea into its distinct aspects and their objective actuality." It does not say: this
+
+[^1]: constitutum. "
+
+[^2]: a Marx has written organische (organic) here, but this seems to be a slip of the pen. It should probably read anorgantsc/ie (inorganic) or mechanische (me- chanical).— Ed.
+
+[^3]: 2*
+
+
+
+
+
+**[p. 12]**
+
+"These different aspects are thus the various authorities and their functions and activities." By means of the little word "thus", the appearance is given of logical sequence, of deduction and explana- tion. We must rather ask "why?" That "the various aspects of the organism of the state" are "the various authorities" and "their functions and activities" is an empirical fact; that they are members of an "organism" is the philosophical "predicate".
+
+Here we note a stylistic peculiarity in Hegel which often recurs, and which is a product of mysticism. The whole paragraph runs:
+
+
+
+**[p. 13]**
+
+(1) "This conviction gets its distinc- tive content from the various aspects of the organism of the state." "These different aspects are the various authorities and their functions and ac- tivities."
+
+(2) "This conviction gets its distinc- tive content from the various aspects of the organism of the state. This organism is the development of the idea into its distinct aspects and their objec- tive actuality through which the gen- eral continually engenders itself, and that in a necessary fashion, since they are determined by the nature of the con- cept; and through these authorities the general also preserves itself, being like- wise presupposed in its own produc- tion. This organism is the political constitution."
+
+As can be seen, Hegel uses two subjects, the "various aspects of the organism" and the "organism", as the point of departure for further definitions. In the third sentence [of Hegel's original para. 269] the "different aspects" are described as the "various au- thorities". By the inserted word "thus" it is made to seem as if these "various authorities" had been derived from the preceding sentence about the organism as the development of the idea.
+
+Then comes more about the "various authorities". The state- ment that the general continually "engenders" itself and thereby preserves itself says nothing new, for this is already implied in the description [of these authorities] as "aspects of the organism", as "organic" aspects. Or rather this characterisation of the "various au- thorities" is nothing but a paraphrase of the statement that the orga- nism is "the development of the idea into its distinct aspects, etc."
+
+The propositions that this organism is "the development of the idea into its distinct aspects and their objective actuality" or into distinct aspects through which "the general" (the general is here the same as the idea) "continually engenders itself, and that in a necessary fashion, since they are determined by the nature of the concept; and [] also preserves itself, being likewise presupposed in its own production"—these propositions are identical. The latter is merely a more detailed elaboration of "the development of the idea into its distinct aspects". Hegel has thereby not advanced one step beyond the general concept of "the idea" or at most of the "organism" as such (for really it is this specific idea which is in question). What, then, entitles him to the final sentence: "This
+
+"This conviction gets its distinctive content from the various aspects of the organism of the state. This organ- ism is the development of the idea into its distinct aspects and their ob- jective actuality. These different aspects are thus the various authorities and their functions and activities, through which the general continually engenders itself, and that in a necessary fashion, since they are determined by the nature of the concept; and through these authorities the general also pre- serves itself, being likewise presup- posed in its own production. This organism is the political constitution."
+
+
+
+**[p. 14]**
+
+In truth, Hegel has done nothing but dissolve the "political con- stitution" into the general abstract idea of "organism"; but in appearance and in his own opinion he has evolved something determinate from the "general idea". He has turned the subject of the idea into a product, a predicate, of the idea. He does not develop his thinking from the object, but expounds the object in accordance with a thinking that is cut and dried — already formed and fixed in the abstract sphere of logic. It is not a question of evolving the specific idea of the political constitution, but of establishing a relationship of the political constitution to the ab- stract idea, of placing it as a phase in the life-history of the idea, a manifest piece of mystification.
+
+Another statement is that the character of the "various au- thorities" is "determined by the nature of the concept", and there-
+
+
+
+**[p. 15]**
+
+fore that the general "engenders" them "in a necessary fashion". The various authorities are therefore not determined by their "own nature", but by a nature alien to them. Similarly, the necessity is not derived from their own essence, still less critically es- tablished. Rather, their fate is predetermined by the "nature of the concept", sealed in "the sacred registers of the Santa Casa",a
+
+of logic. The soul of objects, in this case of the state, is cut and dried, predestined, prior to its body, which is really mere ap- pearance. The "concept" is the Son in the "idea", in God the Father, the agens, the determining, differentiating principle. "Idea" and "concept" are here hypostatised abstractions.
+
+270. "The fact that the purpose of the state is the general interest as such and the conservation therein of particular interests, the general interest being their substance, is, firstly, the abstract actuality or substantiality of the state. But it [this abstract actuality or substantiality of the state] is, secondly, its necessity, since it divides up into the conceptual differentiations of its activities which by virtue of that substantiality are equally actual, concrete attributes [of the state] — the authorities. Thirdly, however, this very substantiality, having passed through the phase of education, is mind knowing and willing itself. The state therefore knows what it wills, and knows it in its generality, as something thought. Hence it works and acts according to consciously adopted ends, known principles, and laws which are not merely implicit but are actually present to consciousness; and further, it acts with precise knowl- edge of existing conditions and circumstances, inasmuch as its actions have a bearing on these."
+
+(The Remark to this paragraph on the relation of state and church [is to be considered] later.3)
+
+The application of these logical categories deserves quite special scrutiny.
+
+The fact that the general interest as such and as the existence of particular interests is the purpose of the state—this fact constitutes the actuality of the state, its existence, abstractly defined. The state is not actual without this purpose. This is the essential object of its willing—but at the same time it is only a quite general definition of this object. This purpose as being is for the state the element of existence.
+
+[^1]: "The fact that the purpose of the state is the general interest as such and the conservation therein of particular interests, the general interest being their substance, is, firstly, the abstract actuality or substantiality of the state."
+
+[^2]: "But it" (the abstract actuality, substantiality [of the state]) "is, secondly, its necessity, since it divides up into the conceptual differentiations of its activities which by virtue of that substantiality are equally actual, concrete attributes—the au- thorities."
+
+[^3]: 1 Friedrich Schiller, Don Carlos, Act V, Scene 10. Santa Casa — literally "the holy house" — the Inquisition's prison in Madrid.— Ed.
+
+
+
+
+
+**[p. 16]**
+
+It (the abstract actuality, the substantiality) is its (the state's) necessity, since its actuality divides up into distinct activities, whose differentiation is rationally determined and which are moreover concrete attributes. The abstract actuality of the state, its substan- tiality, is necessity, inasmuch as it is only in the existence of the different state authorities that the true purpose of the state and the true existence of the whole are realised.
+
+That is clear. The first description of the state's actuality was abstract: the state cannot be regarded as simple actuality; it has to be seen as activity — and as differentiated activity.
+
+"The abstract actuality or substantiality of the state [] is its necessity, since it [the abstract actuality or substantiality] divides up into the conceptual differentiations of its activities which by virtue of that substantiality are equally actual, concrete attributes—the authorities."
+
+The substantiality-relation is a relation of necessity: that is to say, substance appears divided into independent, but essentially determinate actualities or activities. These abstractions will be ap- plicable to anything and everything actual. If I first regard the state under the heading of "abstract actuality", I shall subsequent- ly have to regard it under the heading of "concrete actuality", of "necessity", of realised difference.
+
+Now let us translate this whole paragraph into plain language. 1) Mind knowing and willing itself is the substance of the state (mind, educated and self-aware, is the subject and the foundation of the state, its independent existence).
+
+2) The general interest and, therein, the conservation of particular interests constitutes the general purpose and content of this mind—the enduring substance of the state, the political aspect of self-knowing and self-willing mind.
+
+3) Self-knowing, self-willing, self-aware, educated mind achieves the actualisation of this abstract content only in the form of differentiated activities—as the existence of the various authorities, as articulated power.
+
+About Hegel's presentation of this the following should be noted:
+
+a) It is abstract actuality, necessity (or difference of substance), substantiality—hence abstractly logical categories—that are made into
+
+[^1]: "Thirdly, however, this very substantiality, having passed through the phase of education, is mind knowing and willing itself. The state therefore knows what it wills, and knows it in its generality, as something thought. Hence it works and acts according to consciously adopted ends, known principles, and laws which are not merely implicit but are actually present to consciousness; and further, it acts with precise knowledge of existing conditions and circumstances, inasmuch as its actions have a bearing on these."
+
+
+
+
+
+**[p. 17]**
+
+subjects. True, the "abstract actuality" and "necessity" are de- scribed as "its", the state's, actuality and necessity. But, firstly, "it", "the abstract actuality" or "substantiality", is the state's necessity. Secondly, it is it ["the abstract actuality" or "substantiality"] which "divides up into the conceptual differentiations of its activities". The "conceptual differentiations" are "by virtue of that substan- tiality equally actual, concrete" attributes, authorities. Thirdly, "sub- stantiality" is no longer treated as an abstract attribute of the state, as "its" substantiality; substantiality as such is made the subject, for we are told, finally, that "this very substantiality, having passed through the phase of education, is mind knowing and willing itself".
+
+b) Finally, it is not stated that "mind educated, etc., is the substantiality", but, on the contrary, that "the substantiality is mind educated, etc." Mind thus becomes the predicate of its predicate.
+
+c) After being described as, firstly, the general purpose of the state, and then, secondly, as the various authorities, substantiality is described, thirdly, as actual mind educated and knowing and willing itself. The true point of departure, self-knowing and self-willing mind, without which the "purpose of the state" and the "state authorities" would be untenable fantasies, unreal, even impossible phenomena, this true starting point makes its appear- ance only as the last predicate of substantiality, which has already been described as the general purpose and as the various state authorities. Had actual mind been made the starting point, the "general purpose" would have been its content, the various authorities its mode of self-realisation—its real or material exist- ence, whose specific character could have been explained from the very nature of its purpose. Because, however, the "idea" or "substance" as subject, as actual essence, is made the starting point, the real subject appears only as the last predicate of the abstract predicate.
+
+The "purpose of the state" and the "state authorities" are mystified since they are presented as "modes of existence" of "substance" and cut off from their real mode of existence, from "mind knowing and willing itself, educated mind".
+
+d) The concrete content, the actual definition, appears as something formal; the wholly abstract formal definition appears as the concrete content. The essence of the definitions of the state is not that they are definitions of the state, but that in their most abstract form they can be regarded as logical-metaphysical defini- tions. Not the philosophy of law but logic is the real centre of interest. Philosophical work does not consist in embodying think-
+
+
+
+**[p. 18]**
+
+ing in political definitions, but in evaporating the existing political definitions into abstract thoughts. Not the logic of the matter, but the matter of logic is the philosophical element. The logic does not serve to prove the state, but the state to prove the logic.
+
+1) The general interest and, therein, the conservation of particular interests as the purpose of the state;
+
+2) The various authorities as the actualisation of this purpose; 3) Mind educated, self-aware, willing and acting mind, as the subject of this purpose and of its actualisation.
+
+These concrete definitions are regarded as extrinsic, as hors- d'œuvres: their philosophical meaning is that in them the state has this logical significance:
+
+1) As abstract actuality or substantiality; 2) That the substantiality-relation passes over into the relation of necessity, of substantial actuality;
+
+3) That substantial actuality is in truth concept, subjectivity. Omitting the concrete definitions, which when it comes to another sphere, e.g., physics, can quite well be exchanged for other concrete definitions and which are therefore not essential, what we have before us is a chapter of logic.
+
+Substance has to "divide up into conceptual differentiations, which by virtue of that substantiality are equally actual, concrete attributes". Essentially, this proposition belongs to logic and has been produced before the philosophy of law. That these conceptu- al differentiations are here "its" (the state's) distinct "activities" and that the "concrete attributes" are "state authorities", this parenthesis belongs to the philosophy of law, to the realm of empirical political fact. Thus the whole of the philosophy of law is only a parenthesis within logic. The parenthesis is, of course, only an hors-d'œuvre of the proper exposition. Cf. p. 347 [para. 270, Addition], for example.
+
+[^1]: "Necessity consists in the whole being divided into conceptual differentiations and that this divided whole yields concrete and enduring attributes, which are not fossilised but perpetually recreate themselves in dissolution." Cf. also the Logic.
+
+[^2]: 271. "The political constitution is in the first place the organisation of the state and the process of its organic life in relation to itself, in which the state differentiates its elements within itself and unfolds them into existence.
+
+[^3]: "Secondly, as something individual the state is an exclusive unit, which is therefore related to others; thus it turns its differentiating activity outward and accordingly establishes its existing distinct aspects within itself in their ideality."
+
+[^4]: Addition: "The internal state as such is the civil power, while its orientation outwards is the military power, which however also forms a distinct aspect of the state itself."
+
+
+
+
+
+**[p. 19]**
+
+I. T H E I N T E R N A L C O N S T I T U T I O N AS SUCH
+
+272. "The constitution is rational insofar as the state internally differen- tiates and defines its activity in accordance with the nature of the concept; and that in such a way that each of these authorities is in itself the totality, by containing the other elements in an operative form in itself, and that these authorities, since they express the differentiation of the concept, remain wholly within its ideality and constitute a single individual whole."
+
+The constitution is thus rational insofar as its elements can be dissolved into abstractly logical elements. The state has to differen- tiate and define its activity not in accordance with its specific nature, but in accordance with the nature of the concept, which is the mystified movement of abstract thought. The rationale of the constitution is thus abstract logic and not the concept of the state. In place of the concept of the constitution we get the constitution of the concept. Thought does not conform to the nature of the state; but the state to a ready-made system of thought.
+
+273. "The political state thus" (why?) "divides up into the following substantial divisions:
+
+"a) The power to determine and lay down the general, legislative power; "b) The power to subsume particular spheres and individual cases under the general, executive power,
+
+We shall return to this division [of powers] after examining the details of its exposition separately.
+
+All that follows from Hegel's argumentation is that a state in which there is a contradiction between "character and develop- ment of self-consciousness" and "constitution" is no true state. That the constitution which was the product of a bygone con- sciousness can become a heavy fetter on an advanced conscious- ness, etc., etc., these are surely trivial truths. What would really follow would be simply the demand for a constitution which contains within itself the designation and the principle to advance along with consciousness, to advance as actual men advance, this is only possible when "man" has become the principle of the constitution. Hegel here is a sophist.
+
+[^1]: "c) The power of subjectivity as the will which makes the final decision, the power of the monarch, in which the different powers are bound together into an individual unity, and which is therefore the summit and the source of the whole, i.e., of the constitutional monarchy."
+
+[^2]: 274. "Mind is actual only as that which it knows itself to be, and the state, being the mind of a people, is at the same time the law permeating all its relationships and the customs and consciousness of its individual members. Hence the constitu- tion of any given people generally depends on the character and development of its self-consciousness. Its subjective freedom and with this the actuality of the constitution is rooted in its self-consciousness Every nation, therefore, has the constitution appropriate to it and suitable for it."
+
+
+
+
+
+**[p. 20]**
+
+a) The Monarch's Authority
+
+275. "The monarchical authority contains in itself the three elements of the whole [(para. 272)], the general element of the constitution and the laws, consultation as the relation of the particular to the general, and the element of final decision, as the self-determination to which everything else can be traced back and from which everything else derives its actuality. This absolute self-determination forms the distinctive principle of the monarchical authority as such, which has yet to be expounded."
+
+The beginning of this paragraph says first of all no more than this: "The general element of the constitution and the laws" is the monarchical authority. Consultation, or the relation of the particular to the general, is the monarchical authority. The authority of the monarch does not stand outside the general system of the constitu- tion and the laws, once it is taken to refer to the authority of the (constitutional) monarch.
+
+What Hegel really wants to establish, however, is only that "the general element of the constitution and the laws" is the monarchical authority, the sovereignty of the state. It is wrong, then, to make the monarchical authority into the subject, and to make it seem, since the monarchical authority can also be taken as referring to the authority of the monarch, as if he, the monarch, were the master of this element, its subject. But let us turn now to what Hegel presents as "the distinctive principle of the monarchical authority as such"—namely, "the element of final decision, as the self- determination to which everything else can be traced back and from which everything else derives its actuality" — "absolute self- determination".
+
+Here Hegel is simply saying that the actual, i.e., individual, will is the monarchical authority. Thus in paragraph 12 he says:
+
+Insofar as this element of "final decision" or "absolute self- determination" is separated from the "general element" of the contents and from the particularity of consultation, we have actual will as arbitrariness. Or:
+
+"Arbitrariness is the monarchical authority", or "the monarchical authority is arbitrariness".
+
+[^1]: "In giving itself the form of individuality [] the will is that which resolves, and only as the will that resolves is it an actual will."
+
+[^2]: 276. "The fundamental attribute of the political state is substantial unity as the ideality of its elements. In this unity
+
+[^3]: "a) The particular powers and functions of the state are as much dissolved as preserved, and they are preserved only insofar as they have no independent justification but are justified only to the extent determined by the idea of the
+
+
+
+
+
+**[p. 21]**
+
+whole, since they issue from the power of the whole, and are flexible limbs of it, as their single self."
+
+Addition: "With this ideality of the elements it is much as with life in the physical organism."
+
+Of course. Hegel is speaking purely of the idea of the "parti- cular powers and functions" they are to be justified only to the extent determined in the idea of the whole; they are to issue only "from the power of the whole". That this ought to be so is implied in the idea of organism. What really called for explanation, how- ever, was just how this is to be brought about. For what must prevail in the state is conscious reason; and substantial necessity, a necessity which, being purely internal, is also purely external, the accidental [intertwining]3 of "powers and functions", cannot be passed off as something rational.
+
+277. "ft) The particular functions and activities of the state, being its essential elements, are peculiar to the state and are associated with the individuals by whom they are applied and exercised not on the strength of their immediate personalities but only by virtue of their general and objective qualities. Hence the functions and affairs of the state are linked with a particular personality as such only formally and accidentally. State functions and powers cannot therefore be private property."
+
+It goes without saying that if particular functions and activities are described as functions and activities of the state, as state func- tions and state powers they are not private property but state property. That is a tautology.
+
+The functions and activities of the state are associated with individuals (the state is only effective through individuals), but with the individual not as a physical but as a political being, that is, with the political quality of the individual. It is therefore ridiculous of Hegel to say that they are "linked with a particular personality as such only formally and accidentally". On the contrary, they are linked with the individual by a vinculum substantiate* by an essential quality of the individual. They are the natural expression in action of his essential quality. This nonsense comes in because Hegel takes state functions and activities in abstract isolation, and the particular individual in antithesis to them. He forgets, though, that the particular individual is human and that the functions and activities of the state are human functions. He forgets that the essence of a "particular personality" is not its beard, its blood, its abstract physical character, but its social quality, and that state functions, etc., are nothing but modes of being and modes of
+
+[^1]: a There is an unclear word at this point in Marx's manuscript. The word may be Verschränkung or Verschlingung—"intertwining" or "intermingling". — Ed. b Deep bond.— Ed.
+
+
+
+
+
+**[p. 22]**
+
+action of the social qualities of men. Clearly, therefore, insofar as individuals are bearers of state functions and powers, they must be regarded in the light of their social and not of their private quality.
+
+278. "That the particular functions and powers of the state are not self-sufficient or firmly based either on themselves or in the particular will of individuals, but have their ultimate root, rather, in the unity of the state as their single self, these two attributes together constitute state sovereignty."
+
+"Despotism generally means the condition of lawlessness where the particular will as such, whether of a monarch or of a nation [], counts as law, or rather, takes the place of law; whilst sovereignty by contrast forms the aspect of the ideality of the particular spheres and functions found precisely in a legal, constitutional state of affairs, such that no one of these spheres is independent, something self-sufficient in its purposes and ways of working and immersing itself only in itself, but on the contrary these purposes and ways of working are determined by and dependent on the purpose of the whole (which has been denominated in general terms by the rather vague expression 'good of the state').
+
+"This ideality manifests itself in two ways. "In peaceful conditions, the particular spheres and functions pursue the path of minding their own business [], and it is in part only by way of the unconscious necessity of the thing that their self-seeking is turned into a contribution to the support of one another and of the whole []. In part, however, it is by direct influence from above that they are not only continually brought back to the purpose of the whole and restricted accordingly [], but are also constrained to perform direct services for the support of the whole. In time of need, however, whether internal or external, the organism in all its particularity fuses into the single concept of sovereignty, and to sovereignty is entrusted the salvation of the state at the sacrifice of this otherwise legitimate particularity. It is then that the ideality attains its own proper actuality."
+
+This idealism is therefore not developed into a conscious rational system. In peaceful conditions it appears either merely as an external constraint imposed on the prevailing power, on private life by "direct influence from above", or as a blind, unconscious result of self-seeking. This ideality finds its "own proper actuality" only when the state is in a "condition of war or emergency" so that its essential nature is expressed here in this "condition of war and emergency" of the actual, existing state; whereas its "peaceful" conditions are just the war and misery of selfishness.
+
+Sovereignty—the idealism of the state—exists, therefore, only as inner necessity, as idea. Hegel is satisfied even with this, for all that is at issue is the idea. Sovereignty thus exists, on the one hand, only as unconscious, blind substance. We shall presently encounter its other actuality.
+
+[^1]: 279. "Sovereignty, in the first 1) "Sovereignty, in the first place place simply the general thought of simply the general thought of this this ideality, exists only as subjectivity ideality, exists only as subjectivity sure sure of itself and as the will's abstract of itself []. In its truth subjectivity and to that extent unfounded self- exists only as subject, personality only as
+
+
+
+determination with which lies the final decision. This is the state's individuali- ty as such, and only in this is the state itself one. In its truth, however, sub- jectivity exists only as subject, personal- ity only as person, and in the constitu- tion which has developed into real rationality each of the three elements of the concept has its explicitly actual and separate form. This absolutely decisive element of the whole is there- fore not individuality in general, but one individual, the monarch."
+
+person. In the constitution which has developed into real rationality each of the three elements of the concept has [its] explicitly actual and separate form."
+
+2) Sovereignty "exists only [] as the will's abstract and to that extent unfounded self-determination with which lies the final decision. This is the state's individuality as such, and only in this is the state itself on« [] (and in the constitution which has de- veloped into real rationality each of the three elements of the concept has its explicitly actual and separate form). This absolutely decisive element of the whole is therefore not individuality in general, but one individual, the monarch".
+
+The first proposition means only that the general thought of this ideality, the sorry character of whose existence we have seen above, would have to be the self-conscious work of subjects and exist as such for them and in them.
+
+If Hegel had set out from real subjects as the bases of the state he would not have found it necessary to transform the state in a mystical fashion into a subject. "In its truth, however," says Hegel, "subjectivity exists only as subject, personality only as person." This too is a piece of mystification. Subjectivity is a characteristic of the subject, personality a characteristic of the person. Instead of conceiving them as predicates of their subjects, Hegel gives the predicates an independent existence and subsequently transforms them in a mystical fashion into their subjects.
+
+The existence of predicates is the subject, so that the subject is the existence of subjectivity, etc.; Hegel transforms the predicates, the objects, into independent entities, but divorced from their actual independence, their subject. Subsequently the actual subject appears as a result, whereas one must start from the actual subject and look at its objectification. The mystical substance, therefore, becomes the actual subject, and the real subject appears as something else, as an element of the mystical substance. Precisely because Hegel starts from the predicates of the general description instead of from the real ens (oiroxeijxevov, subject), and since, nevertheless, there has to he a bearer of these qualities, the mystical idea becomes this bearer. The dualism consists in the fact that Hegel does not look upon the general as being the actual
+
+
+
+**[p. 24]**
+
+nature of the actual-finite, i.e., of what exists and is determinate, or upon the actual ens as the true subject of the infinite.
+
+So in this case sovereignty, the essential feature of the state, is treated to begin with as an independent entity, is objectified. Then, of course, this objective entity has to become a subject again. This subject then appears, however, as a self-incarnation of sovereignty; whereas sovereignty is nothing but the objectified mind of the subjects of the state.
+
+Leaving aside this fundamental defect of the exposition, let us consider this first proposition of the paragraph. As it stands there it means no more than this: Sovereignty, the ideality of the state, exists as person, as "subject" — obviously, as many persons, many subjects, since no single person absorbs in himself the sphere of personality, nor any single subject the sphere of subjectivity. What sort of state idealism would that be which, instead of being the actual self- consciousness of the citizens, the collective soul of the state, were to be one person, one subject? In this proposition Hegel has not set forth anything else. But let us now look at the second proposition which is interlinked with this one. Hegel is concerned to present the mon- arch as the true "God-man", as the actual incarnation of the Idea.
+
+"Sovereignty exists only as the will's abstract and to that extent unfounded self-determination with which lies the final decision. This is the state's individuality as such, and only in this is the state itself on«. In the constitution which has developed into real rationality each of the three elements of the concept has its explicitly actual and separate form. This absolutely decisive element of the whole is therefore not individuality in general, but one individual, the monarch."
+
+We have already drawn attention to this proposition earlier. The moment of resolving, of arbitrary, because definite, decision, is the monarchical authority of the will as such. The idea of the monarchical authority, as Hegel expounds it, is nothing but the idea of the arbitrary, of the decision of the will.
+
+But whereas Hegel conceives of sovereignty as the idealism of the state, as the actual regulation of the parts by the idea of the whole, now he makes it "the will's abstract and to that extent unfounded self-determination with which lies the final decision. This is the state's individuality as such". Previously the discussion was about subjectivity, now it is about individuality. The state as sovereign must be one, one individual, [it must] possess individuali- ty. The state is one "not only" in this individuality. The individual- ity is only the natural element in the oneness of the state, the natural attribute of the state. "This absolutely decisive element is therefore not individuality in general, but one individual, the monarch." Why? Because "each of the three elements of the
+
+
+
+**[p. 25]**
+
+concept in the constitution which has developed into real rationali- ty has its explicitly actual and separate form". One element of the concept is "individuality", but this is not yet one individual. And what sort of constitution would that be in which generality, particularity and individuality each had "its explicitly actual and separate form"? Since it is not at all a question of an abstract entity but of the state, of society, we can even accept Hegel's classification. What would follow from it? As determining the general the citizen is legislator; as the maker of individual decisions, as actually exercising his will, he is king. What is the meaning of [saying that] the individuality of the state's will is "one individual", one particular individual distinct from all others? The element of generality, legislation, also has an "explicitly actual and separate form". One could therefore conclude that "the legislature are these particular individuals".
+
+The Common Man: Hegel: 2) The monarch has sovereign 2) The sovereignty of the state is power, sovereignty. the monarch. 3) Sovereignty does what it wills. 3) Sovereignty is "the will's ab- stract and to that extent unfounded self-determination with which lies the final decision". Hegel converts all the attributes of the constitutional monarch in the Europe of today into the absolute self-determinations of the will. He does not say "the monarch's will is the final decision", but "the will's final decision is the monarch". The first proposition is empirical. The second perverts the empirical fact into a metaphysi- cal axiom.
+
+Hegel mixes up the two subjects—sovereignty "as subjectivity sure of itself" and sovereignty "as the will's unfounded self- determination, as the individual will", so as to construe the "idea" as "one individual".
+
+It is obvious that subjectivity sure of itself must also actually will, and will as a unity, as an individual. But who has ever doubted that the state acts through individuals? Should Hegel want to argue that the state must have one individual as the representative of its individual unity, he would not get the monarch out of this. The positive result of this paragraph which we set down is merely this:
+
+In the state the monarch is the element of individual will, of unfounded self-determination, of arbitrariness.
+
+Hegel's Remark to this paragraph is so remarkable that we must examine it closely.
+
+[^1]: "The immanent development of a science, the derivation of its entire content from the elementary concept exhibits this peculiarity, that one and the same concept, in
+
+
+
+
+
+**[p. 26]**
+
+this case the will, which is abstract to begin with (because this is the beginning), is maintained, but its attributes are condensed — and this, indeed, purely through the concept itself—and in this way it gains a concrete content. Thus it is the basic element of personality, abstract at first in the sphere of immediate law, which has evolved through its various forms of subjectivity, and here, in the sphere of absolute law, in the state, in the completely concrete objectivity of the will, it is the personality of the state, the state's certainty of itself. This last, which in its single self transcends all particularities, cuts short the weighing of pros and cons between which it is possible to oscillate perpetually, concluding with its 'I will' and initiating all activity and actuality."
+
+In the first place, it is not a "peculiarity of science" that the fundamental concept of a subject always recurs.
+
+But then no advance has taken place. Abstract personality was the subject of abstract law. It has not changed; it is as abstract personality again the personality of the state. Hegel ought not to have been surprised that the actual person—and persons make the state—everywhere recurs as the essence of the state. He would have had cause for surprise at the contrary — and even more so at the recurrence of the person as a political person in the same meagre abstraction as the person of civil law.
+
+Hegel here defines the monarch as "the personality of the state, the state's certainty of itself". The monarch is "personified sovereignty", "sovereignty incarnate", political consciousness in the flesh; in consequence, therefore, all other people are excluded from this sovereignty, from personality, and from political con- sciousness. At the same time, however, Hegel knows of no other content to give to this "souveraineté personne" than the "I will", the element of arbitrary choice within the will. "Political reason" and "political consciousness" are a "single" empirical person to the exclusion of all others; but this personified reason has no content other than the abstraction of the "I will". L'état c'est moi.
+
+It goes without saying that since personality and subjectivity are only predicates of person and subject, they exist only as person and subject; and a person is one. But, Hegel should have continued, the one only has truth as the many ones. The predicate, the essence, never exhausts the spheres of its existence in one unit but in many units.
+
+Instead, Hegel concludes:
+
+[^1]: "Further, however, personality, and subjectivity in general, as something infinitely self-relating, only has truth, and its most direct, immediate truth, as person, as a subject existing for itself; and what exists for itself is likewise simply one."
+
+[^2]: "The personality of the state is actual only as a person, the monarch." Hence, because subjectivity is actual only as subject and the subject is actual only as one, the personality of the state is actual
+
+
+
+
+
+**[p. 27]**
+
+only as one person. A fine conclusion! Hegel might as well have concluded that because the individual human being is a unit, the human species is only a single human being.
+
+"Personality expresses the concept as such; at the same time the person con- tains the concept's actuality, and only when so determined is the concept idea, truth."
+
+Without the person, personality is certainly a mere abstraction; but the person is only the actual idea of personality as the embodi- ment of the species, as the persons.
+
+"A so-called juridical person, a society, a community or a family, however inherently concrete it may be, contains personality only as an element, only abstractly; in a juridical person personality has not attained to the truth of its existence. The state, however, is precisely this totality in which the elements of the concept achieve the actuality corresponding to the truth peculiar to each of them."
+
+There is considerable confusion in this passage. The juridical person, a society, etc., is called abstract: that is to say, precisely those species-forms are termed abstract in which the actual person manifests what is actually within him, objectifies himself and aban- dons the abstraction of the "person quand même". Instead of recog- nising this realisation of the person as the most concrete thing of all, the state is supposed to have the distinction that [in it] "the element of the concept", the "individuality", attains a mystical "presence". Rationality consists not in the reason of actual persons achieving actuality but in the elements of the abstract concept doing so.
+
+In a certain sense every necessary being "originates purely in itself" — in this respect the monarch's louse is as good as the monarch. Hence Hegel here was not saying anything special about the monarch. But if something is supposed to appertain to the monarch which makes him different in kind from all the other objects of science and of the philosophy of law, then that is real tomfoolery; and only correct insofar as the "one person-idea" is indeed something not derivable from the understanding but only from the imagination.
+
+[^1]: "The concept of the monarch is therefore of all concepts the most difficult for ratiocination, i.e., for the method of reflection employed by the understanding. For this way of thinking does not get beyond the standpoint of isolated categories, and therefore knows only reasons [for this and that], finite points of view and derivation from premises. It therefore presents the dignity of the monarch as something derivative not merely in form but in content; whereas the concept of the monarch, on the contrary, is not derivative but originates purely in itself. Most closely related" (indeed!) "to this view is the idea of regarding the royal prerogative as based on divine authority, since its unconditional character is contained therein."
+
+[^2]: "National sovereignty may be spoken of in the sense that a nation is indeed an independent unit in its external relations and constitutes a state of its own", etc.
+
+
+
+
+
+**[p. 28]**
+
+That is triviality. If the king is the "actual sovereignty of the state", it ought to be possible for "the king" to count as an "independent state" also in external relations, even without the people. But if he is sovereign inasmuch as he represents the unity of the nation, then he himself is only the representative, the symbol, of national sovereignty. National sovereignty does not exist by virtue of him, but he on the contrary exists by virtue of it.
+
+"We may also speak of sovereignty in home affairs residing in the people, provided that we are only speaking generally about the whole and meaning only what was shown above (paras. 277, 278), namely, that sovereignty belongs to the state."
+
+As if the actual state were not the people. The state is an abstraction. The people alone is what is concrete. And it is remarkable that Hegel, who without hesitation attributes a living quality such as sovereignty to the abstraction, attributes it only with hesitation and reservations to something concrete.
+
+"The usual sense, however, in which men have recently begun to speak of the sovereignty of the people is in opposition to the sovereignty existing in the monarch. In this antithesis the sovereignty of the people is one of those confused notions which are rooted in the wild idea of the people."
+
+The "confused notions" and the "wild idea" are here exclusively Hegel's. To be sure, if sovereignty exists in the monarch, then it is foolish to speak of an antithetical sovereignty in the people; for it is implied in the concept of sovereignty that sovereignty cannot have a double existence, still less one which is contradictory. However:
+
+1) This is just the question: Is not that sovereignty which is claimed by the monarch an illusion? Sovereignty of the monarch or sovereignty of the people—that is the question."
+
+2) One can also speak of a sovereignty of the people in opposition to the sovereignty existing in the monarch. But then it is not a question of one and the same sovereignty which has arisen on two sides, but two entirely contradictory concepts of sovereignty, the one a sovereignty such as can come to exist in a monarch, the other such as can come to exist only in a people. It is the same with the question: "Is God sovereign, or is man?" One of the two is an untruth, even if an existing untruth.
+
+[^1]: "Taken without its monarch and the articulation of the whole which is necessarily and directly associated with the monarch, the people is that formless mass which is no longer a state. It no longer possesses any of the attributes which are to be found only in an internally organised whole — sovereignty, government, courts of law, the administration, estates of the realm, etc. With the appearance in a nation of such fac- tors, which relate to organisation, to the life of the state, a people ceases to be that indeterminate abstraction, which, as a purely general notion, is called the nation."
+
+[^2]: Marx here uses the English word "question".— Ed.
+
+
+
+
+
+**[p. 29]**
+
+All this is a tautology. If a people has a monarch and the structure that necessarily and directly goes with a monarch, i. e., if it is structured as a monarchy, then indeed, taken out of this structure, it is a formless mass and a purely general notion.
+
+"If by sovereignty of the people is understood a republican form of government and, more specifically, democracy [] then [] there can be no further discussion of such a notion in face of the developed idea."
+
+That is indeed right, if one has only "such a notion" and not a "developed idea" of democracy.
+
+Democracy is the truth of monarchy; monarchy is not the truth of democracy. Monarchy is necessarily democracy inconsistent with itself; the monarchical element is not an inconsistency in democra- cy. Monarchy cannot be understood in its own terms; democracy can. In democracy none of the elements attains a significance other than what is proper to it. Each is in actual fact only an element of the whole demos [people]. In monarchy one part determines the character of the whole. The entire constitution has to adapt itself to this fixed point. Democracy is the genus Constitution. Monarchy is one species, and a poor one at that. Democracy is content and form. Monarchy is supposed to be only a form, but it falsifies the content.
+
+In monarchy the whole, the people, is subsumed under one of its particular modes of being, the political constitution. In democ- racy the constitution itself appears only as one determination, that is, the self-determination of the people. In monarchy we have the people of the constitution; in democracy the constitution of the people. Democracy is the solved riddle of all constitutions. Here, not merely implicitly and in essence but existing in reality, the constitution is constantly brought back to its actual basis, the actual human being, the actual people, and established as the people's own work. The constitution appears as what it is, a free product of man. It could be said that in a certain respect this applies also to constitutional monarchy; but the specific distinguishing feature of democracy is that here the constitution as such forms only one element in the life of the people — that it is not the political constitution by itself which forms the state.
+
+Hegel starts from the state and makes man the subjectified state; democracy starts from man and makes the state objectified man. Just as it is not religion which creates man but man who creates religion, so it is not the constitution which creates the people but the people which creates the constitution. In a certain respect the relation of democracy to all other forms of state is like
+
+
+
+**[p. 30]**
+
+the relation of Christianity to all other religions. Christianity is the religion xax' s£o)e*)V ,a the essence of religion— deified man as a particular religion. Similarly, democracy is the essence of all state constitutions—socialised man as a particular state constitution. Democracy stands to the other constitutions as the genus stands to its species; except that here the genus itself appears as an existent, and therefore as one particular species over against the others whose existence does not correspond to their essence. To democ- racy all other forms of state stand as its Old Testament. Man does not exist for the law but the law for man — it is a human manifestation; whereas in the other forms of state man is a legal manifestation. That is the fundamental distinction of democracy.
+
+All other state forms are definite, distinct, particular forms of state. In democracy the formal principle is at the same time the material principle. Only democracy, therefore, is the true unity of the general and the particular. In monarchy, for example, and in the republic as a merely particular form of state, political man has his particular mode of being alongside unpolitical man, man as a private individual. Property, contract, marriage, civil society, all appear here (as Hegel shows quite correctly with regard to these abstract state forms, but he thinks that he is expounding the idea of the state) as particular modes of existence alongside the political state, as the content to which the political state is related as organis- ing form: properly speaking, the relation of the political state to this content is merely that of reason, inherently without content, which defines and delimits, which now affirms and now denies. In democracy the political state, which stands alongside this content and distinguishes itself from it, is itself merely a particular content and particular form of existence of the people. In monarchy, for example, this particular, the political constitution, has the signifi- cance of the general that dominates and determines everything particular. In democracy the state as particular is merely particular; as general, it is the truly general, i.e., not something determinate in distinction from the other content. The French have recently interpreted this as meaning that in true democracy the political state is annihilated.5 This is correct insofar as the political state qua political state, as constitution, no longer passes for the whole.
+
+In all states other than democratic ones the state, the law, the constitution is what rules, without really ruling — i. e., without materially permeating the content of the remaining, non-political
+
+[^1]: Par excellence—i.e., "Christianity is the pre-eminent religion".— Ed.
+
+
+
+
+
+**[p. 31]**
+
+spheres. In democracy the constitution, the law, the state itself, insofar as it is a political constitution, is only the self-determination of the people, and a particular content of the people.
+
+Incidentally, it goes without saying that all forms of state have democracy for their truth and that they are therefore untrue insofar as they are not democracy.
+
+In the states of antiquity the political state makes up the content of the state to the exclusion of the other spheres. The modern state is a compromise between the political and the unpolitical state.
+
+In democracy the abstract state has ceased to be the dominant factor. The struggle between monarchy and republic is itself still a struggle within the abstract state. The political republic is democra- cy within the abstract state form. The abstract state form of democracy is therefore the republic; but here it ceases to be the merely political constitution.
+
+Property, etc., in short, the entire content of the law and the state, is the same in North America as in Prussia, with few modifications. The republic there is thus a mere state form, as is the monarchy here. The content of the state lies outside these constitutions. Hegel is right, therefore, when he says: The political state is the constitution, i.e., the material state is not political. What obtains here is merely an external identity, a determination of changing forms. Of the various elements of national life, the one most difficult to evolve was the political state, the constitution. It developed as universal reason over against the other spheres, as ulterior to them. The historical task then consisted in its [the constitution's] reassertion, but the particular spheres do not realise that their private nature coincides with the other-worldly nature of the constitution or of the political state, and that the other-worldly existence of the political state is nothing but the affirmation of their own estrangement. Up till now the political constitution has been the religious sphere, the religion of national life, the heaven of its generality over against the earthly existence of its actuality. The political sphere has been the only state sphere in the state, the only sphere in which the content as well as the form has been species-content, the truly general; but in such a way that at the same time, because this sphere has confronted the others, its content has also become formal and particular. Political life in the modern sense is the scholasticism of national life. Monarchy is the perfect expression of this estrangement. The republic is the negation of this estrangement within its own sphere. It is obvious that the political constitution as such is brought into being only
+
+
+
+**[p. 32]**
+
+where the private spheres have won an independent existence. Where trade and landed property are not free and have not yet become independent, the political constitution too does not yet exist. The Middle Ages were the democracy of unfreedom.
+
+The abstraction of the state as such belongs only to modern times, because the abstraction of private life belongs only to modern times. The abstraction of the political state is a modern product.
+
+In the Middle Ages there were serfs, feudal estates, merchant and trade guilds, corporations of scholars, etc.: that is to say, in the Middle Ages property, trade, society, man are political; the material content of the state is given by its form; every private sphere has a political character or is a political sphere; that is, politics is a characteristic of the private spheres too. In the Middle Ages the political constitution is the constitution of private proper- ty, but only because the constitution of private property is a political constitution. In the Middle Ages the life of the nation and the life of the state are identical. Man is the actual principle of the state—but unfree man. It is thus the democracy of unfreedom—es- trangement carried to completion. The abstract reflected antithesis belongs only to the modern world. The Middle Ages are the period of actual dualism; modern times, one of abstract dualism.
+
+In the spontaneously evolved monarchy, democracy and aristoc- racy there is as yet no political constitution as distinct from the actual, material state or the other content of the life of the nation. The political state does not yet appear as the form of the material state. Either, as in Greece, the res publica* is the real private affair of the citizens, their real content, and the private individual is a slave; the political state, qua political state, being the true and only content of the life and will of the citizens; or, as in an Asiatic despotism, the political state is nothing but the personal caprice of a single individual; or the political state, like the material state, is a slave. What distinguishes the modern state from these states characterised by the substantial unity between people and state is not, as Hegel would have it, that the various elements of the
+
+[^1]: "We have already noted the stage at which the division of constitutions into democracy, aristocracy and monarchy has been made — the standpoint, that is, of that unity which is still substantial, which still remains within itself and has not yet come to its process of infinite differentiation and inner deepening: at that stage, the element of the final self-determining resolution of the will does not emerge explicitly into its own proper actuality as an immanent organic factor in the state."
+
+[^2]: a i.e., state, republic; etymologically, "public affairs".— Ed.
+
+
+
+
+
+**[p. 33]**
+
+constitution have been developed into particular actuality, but that the constitution itself has been developed into a particular actuality alongside the actual life of the people — that the political state has become the constitution of the rest of the state.
+
+280. "This, the ultimate self of the state's will, is in its abstraction a single self and therefore immediate individuality. Its very concept thus implies its attribute of being something natural: the essential nature of the monarch is therefore to be this individual, in abstraction from any other content, and this individual is destined for the dignity of the monarch directly and naturally, by birth in the course of nature."
+
+We have already heard that subjectivity is a subject and the subject necessarily an empirical individual, one. Now we learn that in the concept of immediate individuality is implied the attribute of being natural, corporeal. Hegel has proved nothing but what is self-evident, namely, that subjectivity exists only as the corporeal individual; and, of course, to the corporeal individual belongs birth in the course of nature.
+
+Hegel thinks he has proved that the "essential nature" of the subjectivity of the state, of sovereignty, of the monarch, is "to be this individual, in abstraction from any other content, and [that] this individual is destined for the dignity of the monarch directly and naturally, by birth in the course of nature". Sovereignty, royal dignity, would therefore be born. The body of the monarch would determine the dignity of the monarch. Thus at the very summit of the state, instead of reason, the merely physical would be decisive. Birth would determine the quality of the monarch, as it determines the quality of cattle.
+
+Hegel has proved that the monarch has to be born, which no one doubts; but he has not proved that birth makes a monarch.
+
+That man becomes a monarch by birth can no more be made a metaphysical truth than can the immaculate conception of the Virgin Mary. But just as this latter notion, this fact of conscious- ness, can be understood in the light of human illusion and cir- cumstances, so can this other empirical fact.
+
+In the Remark [to para. 280] which we are about to examine more closely, Hegel indulges himself in the pleasure of having demonstrated the irrational as absolutely rational.
+
+This is indeed purely speculative, but not the leap from pure self-determination, an abstraction, to the other extreme, the pure realm of nature (the accident of birth)—car les extrêmes se touchent. What is purely speculative is calling this a "transition of the
+
+[^1]: "This transition of the concept of pure self-determination into the immediacy of being and so into the realm of nature is of a purely speculative character, and cognition of it therefore belongs to logical philosophy."
+
+
+
+
+
+**[p. 34]**
+
+We may regard it as a positive admission by Hegel that with the hereditary monarch the place of self-determining reason is taken by the abstract natural order, not as what it is, not as the natural order, but as the supreme determinant of the state; that this is the positive point at which monarchy can no longer preserve the appearance of being the organisation of rational will.
+
+"Moreover, this transition is on the whole the same" (?) "as that familiar to us in the nature of volition in general, it is the process of translating a content from the sphere of subjectivity (in the form of a preconceived purpose) into that of existence []. But the peculiar form of the idea and of the transition here under consideration is the immediate transformation of the pure self-determination of the will (of the simple concept itself) into a this, a natural form of existence without mediation by a particular content (by a purpose in action)."
+
+Hegel is saying that the transformation of state sovereignty (of a self-determination of the will) into the body of the born monarch (into existence) is on the whole that transition of content in general effected by the will in order to realise, to translate into existence, a purpose entertained in thought. But Hegel says: on the whole. The peculiar difference which he specifies is so peculiar as to destroy all analogy and to put magic in the place of the "nature of volition in general".
+
+In the first place, the transformation of the preconceived purpose into existence is here immediate, magical. Secondly, the subject here is the pure self-determination of the will, the simple concept itself, it is the essence of the will as a mystical subject that makes decisions. It is not an actual, individual, conscious willing, it is the abstraction of volition which turns into a natural form of existence, the pure idea which embodies itself as one individual.
+
+Thirdly, as the actualisation of willing into a natural form of existence takes place immediately, i.e., without any means, which otherwise the will requires for its objectification, so there is even lacking any particular, i.e., determinate, purpose: "Mediation by a particular content, by a purpose in action" does not take place, clearly, because no acting subject is present, and the abstraction, the pure idea of will, in order to act, has to act mystically. A purpose which is not a particular purpose is no purpose, just as action without purpose is purposeless, meaningless action. Thus the whole comparison with the teleological act of the will reveals itself in the end to be a piece of mystification itself, and an empty action of the idea.
+
+The means is the absolute will and the word of the philosopher; the particular purpose is again the philosophising subject's aim of
+
+
+
+**[p. 35]**
+
+"In the so-called ontological proof of the existence of God we have the same transformation of the absolute concept into being" (the same mystification). "This transformation has constituted the depth of the idea in modern times, although recently it .has been presented" (rightly) "as inconceivable."
+
+"But since the notion of the monarch is regarded as falling entirely within the scope of ordinary" (sc. intelligent) "consciousness, the intellect here persists all the more in its separation [of the concept and existence] and sticks to the results thus derived by its clever ratiocination: it therefore denies that the moment of final decision in the state as such (i.e., in the rational concept) is bound up with what is directly natural in character."
+
+People deny that the final decision is born and Hegel asserts that the monarch is by birth the final decision; but who has ever doubted that the final decision in the state is attached to actual corporeal individuals, and that it is therefore "bound up with what is directly natural in character"?
+
+281. "Both elements in their undivided unity — the will's ultimate unfounded self, and, consequently, existence, likewise unfounded, as the aspect committed to nature—this idea of that which is unmoved by caprice constitutes the majesty of the monarch. In this unity lies the actual unity of the state, and it is only through this, its inward and outward immediacy, that the unity of the state is raised above the possibility of being drawn down into the sphere of particularity and its caprice, aims and opinions, and it likewise remains above the war of factions round the throne and the weakening and shattering of state power."
+
+The two elements are: the accident of the will—caprice — and the accident of nature—birth. So: His Majesty Accident. Accident is thus the actual unity of the state.
+
+How an "inward and outward immediacy" is supposed to be free from collision, etc., is an assertion of Hegel's which is quite incomprehensible, for it is just this immediacy which is exposed to it.
+
+What Hegel asserts about elective monarchy applies with still greater force to the hereditary monarch:
+
+The right of pardon [Begnadigungsrecht] is the prerogative of mercy [Gnade]. Mercy is the highest expression of haphazard arbitrari- ness, and it is significant that Hegel makes it the attribute proper
+
+[^1]: "In an elective monarchy, because of the nature of that relationship within it which has made particular will the ultimate deciding power, the constitution becomes an elective capitulation"—etc., etc.—"becomes a surrender of state authori- ty at the discretion of the particular will, from which proceeds the transformation of particular offices of state into private property", etc. 282. "The right to pardon criminals flows from the sovereignty of the monarch, for to this alone it falls to actualise mind's power to undo what has been done and by forgiving and forgetting to wipe out a crime."
+
+
+
+
+
+**[p. 36]**
+
+283. "The second element in the monarch's authority is particularity or determi- nate content and its subsumption under the general. Insofar as this is given a particular existence, it takes the form of supreme consultative bodies and individual advisers. They bring before the monarch for his decision the content of current affairs of state or the legal provisions required to meet existing needs, together with their objective aspects, i.e., the grounds on which decisions are to be based, the relevant laws, circumstances, etc. Because individuals who discharge these duties are in direct contact with the person of the monarch, their choice and dismissal alike rest with his unrestricted arbitrariness." 284. "Since it is solely with regard to the objective element in decision-making (the knowledge of a topic and its context, and the relevant legal and other considerations) that responsibility can exist, in other words, since solely this aspect is capable of objective proof and therefore subject to consultation which is distinct from the personal will of the monarch as such, only these consultative bodies or individual advisers can incur responsibility. The peculiar majesty of the monarch, however, as the subjectivity making the final decision, is raised above all accountability for acts of government."
+
+Hegel here describes quite empirically the ministerial function as it is usually defined in constitutional states. All that philosophy adds is to interpret this "empirical datum" as the existence, the predicate, of the "element of particularity in the monarch's au- thority".
+
+(The Ministers represent the rational, objective aspect of the sovereign will. To them, therefore, also falls the honour of responsibility, whilst the monarch is fobbed off with the peculiar fancy of "majesty".) The speculative element is thus very meagre. The argument in its particulars, on the other hand, is based on quite empirical grounds, and actually on very abstract, very bad empirical grounds.
+
+Thus, for example, the choice of Ministers is placed within "the unrestricted arbitrariness" of the monarch "because they are in direct contact with the person of the monarch"—i.e., because they are Ministers. In the same way, the "unrestricted choice" of the monarch's valet can be derived from the absolute idea.
+
+Better, at least, is the reason given for the accountability of Ministers: "it is solely with regard to the objective element in decision-making (the knowledge of a topic and its context, and the relevant legal and other considerations) that responsibility can exist, in other words, solely this aspect is capable of objective proof. Of course, when one individual is the hallowed, sanctified embodiment of caprice, then "the subjectivity making the final decision", pure subjectivity, pure caprice, is not objective, and thus cannot be established objectively or therefore be accountable. Hegel's proof
+
+
+
+**[p. 37]**
+
+285. "The third element in the monarchical authority concerns that which is the general as such, which exists subjectively in the conscience of the monarch and objectively in the whole of the constitution and in the laws. The monarchical authority in this respect presupposes the other elements in the state, just as it is presupposed by each of them." 286. "The objective guarantee of the monarchical authority, of the right of hereditary succession to the throne and so forth, consists in the fact that just as this sphere has its own actuality, differentiated from that of the other rationally determined elements of the state, so these others in themselves have the rights and duties proper to their own definition. In the rational organism of the state, each member, by maintaining itself as such, thereby maintains the others in their distinctiveness."
+
+Hegel does not see that with this third element, "the general as such", he explodes the first two or vice versa. "The monarchical authority in this respect presupposes the other elements in the state, just as it is presupposed by each of them." If this positing is understood not in a mystical sense but in a real sense, then the authority of the monarch is established not by birth but by the other elements, and is therefore not hereditary but fluid, i.e., it is a state function which is varyingly distributed among individual members of the state in accordance with the organisation of the other elements. In a rational organism the head cannot be of iron and the body of flesh. If the members are to maintain themselves, they must be of equal birth, of one flesh and blood. But the hereditary monarch is not of equal birth, he is made of different stuff. The prose of the rationalist will of the other members of the state is here confronted by the magic of nature. Besides, members of an organism can only mutually support one another insofar as the whole organism is fluid and each of them is absorbed in this fluidity, and when, therefore, no one of them, such as in this case the head of the state, is "unmoved" or "unalterable". By this proposition, therefore, Hegel abolishes "sovereignty by birth".
+
+Secondly, irresponsibility. If the monarch violates "the whole of the constitution", the "laws", his irresponsibility is at an end, because his constitutional existence is at an end. But it is precisely these laws and this constitution which make him irresponsible. They therefore contradict themselves, and this one clause abolishes law and constitution. The constitution of constitutional monarchy is irresponsibility.
+
+However, if Hegel is content with the thought "that just as this sphere has its own actuality, differentiated from that of the other
+
+
+
+**[p. 38]**
+
+Résumé of Hegel's Exposition of the Monarch's Authority, or of the Idea of State Sovereignty
+
+279. In the Remark, p. 367, it is said:
+
+"Sovereignty of the people may be spoken of, in the sense that a people as a whole is an independent unit in its external relations and constitutes a state of its own, like the people of Great Britain. But the people of England, Scotland or Ireland, or the people of Venice, Genoa, Ceylon, etc., are no longer sovereign now that they have ceased to have their own rulers or supreme governments."
+
+Here, therefore, the sovereignty of the people is nationality: the sovereignty of the monarch is nationality, or the monarchical principle is nationality, which by itself and exclusively forms the sovereignty of a people. A people whose sovereignty consists solely in nationality has a monarch. Difference of nationality among peoples cannot be better established or expressed than by having different monarchs. The same cleft which separates one absolute individual from another separates these nationalities.
+
+The Greeks (and Romans) were national because and insofar as they were the sovereign peoples. The Germans are sovereign because and insofar as they are national. (Vid. pag. XXXIV.)'
+
+The juridical person, society, the family, etc., contains personali- ty only abstractly. In the monarch, on the other hand, the state is contained within the person.
+
+It is only within the juridical person, society, the family, etc., that the abstract person has truly brought his personality into real exist- ence. But Hegel conceives society, the family, etc., the juridical person in general, not as the realisation of the actual empirical person, but as an actual person, who, however, contains the ele-
+
+[^1]: "a so-called juridical person," further says the same Remark, "a society, a community or a family, however inherently concrete it may be, contains personality only as an element, only abstractly; in a juridical person personality has not attained to the truth of its existence. The state, however, is precisely this totality in which the elements of the concept achieve the actuality corresponding to the truth peculiar to each of them."
+
+[^2]: This refers to the relevant sheet of the manuscript (see this volume, p. 110).— Ed.
+
+
+
+
+
+**[p. 39]**
+
+ment of personality as yet only abstractly. Hence, too, in Hegel, actual persons do not come to the state; instead, the state must first come to the actual person. Hence, instead of the state being brought forth as the supreme actuality of the person, as the supreme social actuality of man, one single empirical man, the empirical person, is brought forth as the supreme actuality of the state. This perversion of the subjective into the objective and of the objective into the subjective is a consequence of Hegel's wanting to write the biography of abstract substance, of the idea, man's activity, etc., thus having to appear as the activity and result of something else, and of his wanting to make the human essence operate on its own, as an imaginary individuality, instead of in its actual human existence. The inevitable outcome of this is that an empirical existent is uncritically accepted as the actual truth of the idea; for it is not a question of bringing empirical existence to its truth, but of bringing truth to an empirical existent, and so what lies to hand is expounded as a real element of the idea. (On this necessary transforming of empirical fact into speculation and of speculation into empirical fact, more later.2)
+
+In this way, too, the impression is produced of something mystical and profound. It is common knowledge that men are born, and that what is brought into being by physical birth becomes a social person, etc., and eventually a citizen of a state; that it is via his birth that a man comes to be all that he is. But it is very profound, it is startling, to hear that the idea of the state is born without intermediary; that, in the birth of the monarch, this idea has given birth to its own empirical existence. No content is gained in this way, only the form of the old content is changed. It has received a philosophical form, a philosophical testimonial.
+
+Another consequence of this mystical speculation is that a par- ticular empirical existent, one individual empirical existent in dis- tinction from the others, is regarded as the embodiment of the idea. Again, it makes a deep mystical impression to see a particular empirical existent posited by the idea, and thus to meet at every stage an incarnation of God.
+
+If, for example, in the exposition of the family, civil society, the state, etc., these social modes of man's existence are regarded as the actualisation, the objectification, of his essence, then the fami- ly, etc., appear as qualities inherent in a subject. The human being remains always the essence of all these entities, but these entities also appear as man's actual generality, and therefore also as something
+
+[^1]: " See this volume, pp. 60-65.— Ed.
+
+
+
+
+
+**[p. 40]**
+
+It therefore necessarily seems that the most profound, most speculative level has been reached when the most abstract attri- butes, the natural bases of the state such as birth (in the case of the monarch) or private' property (in primogeniture), which have not yet developed at all into genuine social actualisation, appear as the highest ideas directly personified.
+
+And it is self-evident. The correct method is stood on its head. The simplest thing becomes the most complicated, and the most complicated the simplest. What ought to be the starting point becomes a mystical outcome, and what ought to be the rational outcome becomes a mystical starting point.
+
+However, if the monarch is the abstract person who contains the state within his own person, this only means that the essence of the state is the abstract private person. Only in its flower does the state reveal its secret. The monarch is the one private person in whom the relation of private persons generally to the state is actualised.
+
+The hereditary character of the monarch follows from his concept. He is to be the person specifically distinguished from the whole species, from all other persons. What is it, then, that ultimately and firmly distinguishes one person from all others? The body. The highest function of the body is sexual activity. The highest constitutional act of the king is therefore his sexual activity, for through this he makes a king and perpetuates his body. The body of his son is the reproduction of his own body, the creation of a royal body.
+
+b) The Executive
+
+[^1]: 287. There is a difference between the decisions of the monarch and the execution and application of these decisions and, in general, the prosecution and maintenance of past decisions, of existing laws, arrangements and institutions for
+
+
+
+
+
+**[p. 41]**
+
+common purposes, and the like. This task of subsumption [] falls within the scope of the executive, as do the judicial and police authorities, which have more direct relation to the particular concerns of civil society, and which assert the general interest within these aims."
+
+The usual explanation of the executive. The only thing that can be said to be original in Hegel is that he links the executive, the police and the judiciary, whereas usually the administration and the judiciary are treated as antithetical.
+
+288. "Particular common interests, which fall within civil society and lie outside the intrinsically and explicitly general character of the state proper (para. 256), are administered by the corporations (para. 251) of the municipalities and of other trades and estates with their authorities, officials, administrators and the like. These concerns are on the one hand the private property and interest of these particular spheres, and from this point of view the authority of these officials rests on the confidence of their social equals and the members of their communities, and on the other hand, these circles must be subordinated to the higher interests of the state. This being so, the filling of these official posts in the corporations will in general be effected by a mixture of popular election by those interested with ratification and appointment by a higher authority."
+
+A straightforward description of the empirical position in some countries.
+
+289. "The maintenance of the general state interest and of legality in this sphere of particular rights, and the relating back of these to the general interest and legality, require to be seen to by représentatives of the executive — executive civil servants and higher advisory bodies inasmuch as they are constituted on collegiate lines—which converge at the top in chiefs who are in direct touch with the monarch."
+
+Hegel has not fully set forth executive authority. But even taking this into account, he has not proved that the executive power is more than one function, one attribute, of state citizens as such. He has deduced the executive as a particular, separated power only by looking at the "particular interests of civil society" as such, which "lie outside the intrinsically and explicitly general character of the state".
+
+The above is remarkable
+
+[^1]: "Just as civil society is the battlefield of the individual private interests of all against all, so here the struggle of private interests against particular common concerns and of both these together against the superior viewpoints and edicts of the state has its seat. At the same time the corporation spirit, generated by the vested rights of the particular spheres, is itself inwardly transformed into the spirit of the state, on finding in the state the means for the support of particular aims. It is the secret of the patriotism of the citizens in this respect, that they know the state to be their substance, because it is the state which backs their particular spheres, both their rights and authority, and their welfare. The corporation spirit, since it directly comprises the rooting of the particular in the general, therefore constitutes the depth and strength which the state possesses in the citizens' frame of mind."
+
+[^2]: li—482
+
+
+
+
+
+**[p. 42]**
+
+2) Because private egoism is revealed as the "secret of the patriotism of the citizens" and as the "depth and strength which the state possesses in the citizens' frame of mind";
+
+3) Because the "citizen", the man of the particular interest as opposed to the general, the member of civil society, is looked upon as a "fixed individual", whereas the state also confronts the "citizens" in "fixed individuals".
+
+Hegel, one would have thought, should have defined "civil society" as well as the "family" as an attribute of every individual member of the state, and therefore the subsequent "political qualities" too as attributes of the individual member of the state as such. But [with Hegel] it is not the self-identical individual who unfolds new attributes out of his social essence. It is the essence of the will which allegedly brings forth its attributes out of itself. The extant, various and disparate, empirical forms of existence of the state are looked upon as direct incarnations of one or other of these attributes.
+
+The general as such being given an independent existence, it is directly confounded with the empirical form of existence, and the limited straightway accepted uncritically as the expression of the idea.
+
+Hegel falls into self-contradiction here only inasmuch as he does not regard the "family man", like the citizen, as a fixed breed denied those other qualities.
+
+The Addition to this paragraph is to be considered later.6
+
+[^1]: 290. "Division of labour [] also occurs in the business of the government. The organisation of administrative bodies has this formal but difficult task insofar as below, where civil life is concrete, it must be governed concretely, while the business of the executive is nevertheless divided into its abstract branches, administered by special departments as distinct centres whose activities merge below, as well as at the top, in the supreme government authority, in a concrete survey."
+
+[^2]: 291. Government business is by nature objective and determined, explicitly and in substance, by decisions already taken (para. 287), and has to be carried through and realised by individuals. Between it and these individuals there is no immediate natural link. The individuals are therefore not destined for office by virtue of their birth or natural personality. The objective factor in their appointment is knowledge and proof of ability. Such proof guarantees that the state gets what it requires, and since it is the sole condition of appointment, it also guarantees to every citizen the opportunity to devote himself to the general estate." 292. "Since the objective element in appointing to office in the administration is not genius (as in art, for example), selection is of necessity from an indefinite plurality of individuals whose relative merits cannot be positively ascertained, and is therefore subjective. The selection of a particular individual for a post, his appoint-
+
+
+
+293. "The particular affairs of state which monarchy devolves to departments of state constitute one part of the objective aspect of the sovereignty dwelling in the monarch. Their specific differentiation is also given by the nature of the subject- matter. And whilst the activity of the departments is the fulfilment of a duty, their business is also a right relieved of contingency."
+
+The only thing to note is the "objective aspect of the sovereignty dwelling in the monarch".
+
+294. "The individual who is appointed by sovereign act (para. 292) to an official position has to fulfil the duties — the substantial feature — of his post as the condition of his appointment, where as a consequence of this substantial relationship he finds means and the assured satisfaction of his particularity (para. 264), and is freed in his external circumstances and his official activity from other kinds of subjective dependence and influence."
+
+"The service of the state [] requires," the Remark says, "the renunciation of independent and arbitrary satisfaction of subjective aims; and at the same time offers the right to find satisfaction in, but only in, the discharge of one's duties. In this fact, so far as this aspect is concerned, there lies the link between the general and the particular interests which constitutes both the concept of the state and its inner stability (para. 260)." "The assurance of satisfaction of particular needs removes the external pressure which may induce a man to seek means for their satisfaction at the expense of his work and his duty as an official. In the general power of the state, those entrusted with its affairs find protection against that other subjective aspect, the private passions of the governed, whose private interests, etc., suffer as the general interest is made to prevail against them."
+
+[^1]: 295. "The security of the state and of the governed against the abuse of power by government departments and their officials lies, on the one hand, directly in their hierarchical structure and accountability and, on the other hand, in the rights vested in local authorities and corporations. This prevents the intrusion of subjective arbitrariness into the power entrusted to a civil servant, and supplements from below the control from above which does not reach down to the conduct of individuals."
+
+[^2]: 296. "But the fact that behaviour marked by dispassionateness, uprightness and kindness becomes customary [among civil servants] is partly connected with direct moral and intellectual education, which provides a spiritual counterpoise to whatever there is of the mechanical and suchlike in the learning of the so-called sciences related to their spheres of work, in the requisite professional training, in the actual work itself, etc.; in part the size of the state is also an important factor, weakening the pressure of family and other personal ties, and making less potent and less keen such passions as hatred, revenge, etc. In preoccupation with the large interests present in a great state these subjective features disappear of themselves, and habituation to general interests, points of view, and concerns is produced."
+
+[^3]: 297. "The members of the government and the civil servants constitute the major part of the middle estate, in which is concentrated the developed intelligence of the mass of a people and its consciousness of what is lawful. That this section should not assume the isolated position of an aristocracy or use education and ability as a means to arbitrary domination, depends on the institutions of sovereignty working from above and on the corporate institutions' rights exercised from below."
+
+[^4]: 3*
+
+
+
+
+
+**[p. 44]**
+
+What Hegel says about the "executive" does not deserve to be called a philosophical exposition. Most of the paragraphs could stand word for word in the Prussian Common Law.7 And yet, the administration proper is the most difficult point of all in the exposition.
+
+As Hegel has already assigned the "police" and the "judiciary" to the sphere of civil society, the executive is nothing more than the administration, which he expounds as bureaucracy.
+
+The bureaucracy presupposes, firstly, the "self-government" of civil society in "corporations". The only stipulation added is that the selection of administrators, officials, etc., for these corporations is a mixed responsibility, initiated by the citizens and ratified by the executive proper ("ratification by a higher authority", as Hegel puts it).
+
+Over this sphere, for the "maintenance of the general state interest and of legality", stand "representatives of the executive", the "executive civil servants" and the "collegiate bodies", which converge in the "monarch".
+
+"Division of labour" takes place in the "business of the govern- ment". Individuals must prove their suitability for government service — i.e., pass examinations. The choice of specific individuals for public office is the prerogative of * the monarchical state authority. The division of state business is "given by the nature of the subject-matter". The responsibility of office is the duty of civil servants and their life's vocation. They must therefore receive salaries from the state. The guarantee against the abuse of bureaucratic power is partly the hierarchical structure and account- ability of the bureaucracy, and on the other hand the rights which communities and corporations possess. The humanity of the bureaucracy depends partly on the "direct moral and intellectual education", partly on the "size of the state". Officials form the "major part of the middle estate". Against their becoming an "aristocracy and arbitrary domination" protection is provided, partly by "the institutions of sovereignty working from above",
+
+
+
+**[p. 45]**
+
+and partly by "the corporate institutions' rights exercised from below". The "middle estate" is the estate of "education". Voilà
+
+tout. Hegel gives us an empirical description of the bureaucracy, partly as it is in actual fact, and partly as it is on its own estimation. And with this the difficult chapter on the "executive" is done with.
+
+Hegel proceeds from the separation of the "state" and "civil" society, from "particular interests" and the "intrinsically and explicitly general"; and indeed bureaucracy is based on this separation. Hegel proceeds from the presupposition of the "corpo- rations", and indeed the bureaucracy does presuppose the corpora- tions, or at least the "spirit of the corporations". Hegel expounds no content for the bureaucracy, but only some general features of its "formal" organisation; and indeed the bureaucracy is only the "formalism" of a content which lies outside itself.
+
+The corporations are the materialism of the bureaucracy, and the bureaucracy is the spiritualism of the corporations. The corpora- tion is the bureaucracy of civil society; the bureaucracy is the corporation of the state. In actual fact, therefore, bureaucracy as the "civil society of the state" confronts the "state of civil society", the corporations. Wherever the "bureaucracy" is a new principle, wherever the general state interest begins to become something "distinctive and separate" and thus a "real" interest, the bureau- cracy fights against the corporations, as every consequence fights against the existence of its premises. On the other hand, once the state actually comes to life and civil society frees itself from the corporations by its own rational impulse, the bureaucracy tries to restore them. For with the fall of the "state of civil society" goes the fall of the "civil society of the state". The spiritualism disappears along with the materialism which opposes it. The conse- quence fights for the existence of its premises as soon as a new principle challenges not their existence, but the principle of their existence. The same spirit which creates the corporation in society creates the bureaucracy in the state. Hence, the attack on the spirit of the corporations is an attack on the spirit of the bureau- cracy; and if earlier the bureaucracy combated the existence of the corporations in order to make room for its own existence, so now it tries forcibly to keep them in existence in order to preserve the spirit of the corporations, which is its own spirit.
+
+The "bureaucracy" is the "state formalism" of civil society. It is the "state consciousness", the "state will", the "state power", as one corporation—and thus a particular, closed society within the
+
+
+
+**[p. 46]**
+
+The "state formalism" which bureaucracy is, is the "state as formalism"; and it is as a formalism of this kind that Hegel has described bureaucracy. Since this "state formalism" constitutes itself as an actual power and itself becomes its own material content, it goes without saying that the "bureaucracy" is a web of practical illusions, or the "illusion of the state". The bureaucratic spirit is a Jesuitical, theological spirit through and through. The bureaucrats are the Jesuits and theologians of the state. The bureaucracy is la république prêtre.
+
+Since by its very nature the bureaucracy is the "state as formal- ism", it is this also as regards its purpose. The actual purpose of the state therefore appears to the bureaucracy as an objective hostile to the state. The spirit of the bureaucracy is the "formal state spirit". The bureaucracy therefore turns the "formal state spirit" or the actual spiritlessness of the state into a categorical imperative. The bureaucracy takes itself to be the ultimate purpose of the state. Because the bureaucracy turns its "formal" objectives into its content, it comes into conflict everywhere with "real" objectives. It is therefore obliged to pass off the form for the content and the content for the form. State objectives are transformed into objectives of the department, and department objectives into objectives of the state. The bureaucracy is a circle from which no one can escape. Its hierarchy is a hierarchy of knowledge. The top entrusts the understanding of detail to the lower levels, whilst the
+
+
+
+**[p. 47]**
+
+lower levels credit the top with understanding of the general, and so all are mutually deceived.
+
+The bureaucracy is the imaginary state alongside the real state—the spiritualism of the state. Each thing has therefore a double meaning, a real and a bureaucratic meaning, just as knowledge (and also the will) is both real and bureaucratic. The really existing, however, is treated in the light of its bureaucratic nature, its other-worldly, spiritual essence. The bureaucracy has the state, the spiritual essence of society, in its possession, as its private property. The general spirit of the bureaucracy is the secret, the mystery, preserved within itself by the hierarchy and against the outside world by being a closed corporation. Avowed political spirit, as also political-mindedness, therefore appear to the bureaucracy as treason against its mystery. Hence, authority is the basis of its knowledge, and the deification of authority is its conviction. Within the bureaucracy itself, however, spiritualism becomes crass materialism, the materialism of passive obedience, of faith in authority, of the mechanism of fixed and formalistic behaviour, and of fixed principles, views and traditions. In the case of the individual bureaucrat, the state objective turns into his private objective, into a chasing after higher posts, the making of a career. In the first place, he looks on actual life as something material, for the spirit of this life has its distinctly separate existence in the bureaucracy. The bureaucracy must therefore proceed to make life as material as possible. Secondly, actual life is material for the bureaucrat himself, i.e., so far as it becomes an object of bureaucratic manipulation; for his spirit is prescribed for him, his aim lies beyond him, and his existence is the existence of the department. The state only continues to exist as various fixed bureaucratic minds, bound together in subordination and passive obedience. Actual knowledge seems devoid of content, just as actual life seems dead; for this imaginary knowledge and this imaginary life are taken for the real thing. The bureaucrat must therefore deal with the actual state jesuitically, whether this Jesuitry is conscious or unconscious. However, once its antithesis is knowledge, this Jesuitry is likewise bound to achieve self- consciousness and then become deliberate Jesuitry.
+
+Whilst the bureaucracy is on the one hand this crass material- ism, it manifests its crass spiritualism in the fact that it wants to do everything, i.e., by making the will the causa prima. For it is purely an active form of existence and receives its content from without and can prove its existence, therefore, only by shaping and
+
+
+
+**[p. 48]**
+
+When Hegel calls the executive the objective aspect of the sovereignty dwelling in the monarch, that is right in the same sense in which the Catholic Church was the real presence of the sovereignty, substance and spirit of the Holy Trinity. In the bureaucracy the identity of state interest and particular private aim is established in such a way that the state interest becomes a particular private aim over against other private aims. .
+
+The abolition of the bureaucracy is only possible by the general interest actually—and not, as with Hegel, merely in thought, in abstraction — becoming the particular interest, which in turn is only possible as a result of the particular actually becoming the general interest. Hegel starts from an unreal antithesis and therefore achieves only an imaginary identity which is in truth again a contradictory identity. The bureaucracy is just such an identity.
+
+Now let us follow his exposition in detail. The sole philosophical statement Hegel makes about the execu- tive is that he "subsumes" the individual and the particular under the general, etc.
+
+Hegel contents himself with this. On the one hand, the category of "subsumption" of the particular, etc. This has to be actualised. Then he takes any one of the empirical forms of existence of the Prussian or modern state (just as it is), anything which actualises this category among others, even though this category does not express its specific character. Applied mathematics is also sub- sumption, etc. Hegel does not ask "Is this the rational, the adequate mode of subsumption?" He only takes the one category, and contents himself with finding a corresponding existent for it. Hegel gives a political body to his logic: he does not give the logic of the body politic (para. 287).
+
+On the relation to the government of the corporations and the local bodies, we learn first of all that their administration (the appointment of their magistracy) requires "in general a mixture of popular election by those interested with ratification and appoint- ment by a higher authority". The mixed selection of officials of local bodies and corporations would thus be the first relationship between civil society and state or executive, their first identity (para. 288). According to Hegel himself, this identity is very superficial — a mixtum compositum, a "mixture". Superficial as is this identity, so the antithesis is sharp. Since "these concerns" (of the corporation, the local body, etc.) "are on the one hand the private property and
+
+
+
+**[p. 49]**
+
+interest of these particular spheres, and from this point of view the authority of these officials rests on the confidence of their social equals and the members of their communities, and on the other hand, these circles must be subordinated to the higher interests of the state", the outcome is the indicated "mixed selection".
+
+The administration of the corporation therefore has this an- tithesis:
+
+Private property and the interest of the particular spheres against the higher interest of the state; antithesis between private property and state.
+
+It does not need to be remarked that the resolution of this antithesis in the mixed selection is a mere compromise, a treaty, a confession of unresolved dualism, itself a dualism, a "mixture". The particular interests of the corporations and local authorities have a dualism within their own sphere—a dualism which likewise shapes the character of their administration.
+
+The well-marked antithesis only comes to the fore, however, in the relationship of these "particular common interests", etc., which "lie outside the intrinsically and explicitly general character of the state" on the one hand, and this "intrinsically and explicitly general character of the state" on the other. To begin with, it is again present within this latter sphere.
+
+Incidentally, let us note the construction of the administrative councils which are unknown in France, for instance. "Inasmuch" as Hegel adduces these bodies as "advisory", it is certainly obvious that they are "constituted on collegiate lines".
+
+Hegel brings in the "state proper", the "executive", to "see to" the "general state interest and legality, etc.", within civil society through "representatives", and according to him it is really these "representatives of government", the "executive civil servants", who constitute the true "representation of the state" — not "of", but "against" "civil society". The antithesis of state and civil society is thus fixed: the state does not reside in, but outside civil society. It touches it only through its "representatives" who are entrusted with "seeing to the state" within these spheres. Through these "represen- tatives" the antithesis is not transcended, but has become a "legal", "fixed", antithesis. By means of deputies the "state" — an entity alien and ulterior to the essence of civil society — asserts itself
+
+[^1]: "The maintenance of the general state interest and of legality in this sphere of particular rights, and/ the relating back of these to the general interest and legality, require to be seen tù by representatives of the executive—executive civil servants and higher advisory bodies inasmuch as they are constituted on collegiate Hoes—which converge at the top in chiefs who are in direct touch with the monarch." (Para. 289,)
+
+
+
+
+
+**[p. 50]**
+
+over against civil society. The "police", the "judiciary" and the "administration" are not deputies of civil society itself, in and through whom it administers its own general interest, but rep- resentatives of the state for the administration of the state over against civil society. Hegel further explains this antithesis in the frank Remark [to para. 289] examined above.
+
+"Government business is by nature objective and determined, explicitly [], by decisions already taken." (Para. 291.)
+
+Does Hegel conclude from this that for this very reason this government business all the less requires any "hierarchy of knowledge", and that it can be completely carried out by "civil society itself"? On the contrary.
+
+He makes the profound observation that this business has to be carried out by "individuals", and that "between it and these individuals there is no immediate natural link". This is an allusion to the monarch's power, which is nothing but the "natural power of arbitrary choice", and so can be "born". The "monarchical authority" is nothing but the representative of the element of nature in the will, of the "dominion of physical nature in the state".
+
+The "executive civil servants" are therefore essentially distin- guished from the "monarch" in the way they acquire their offices.
+
+This opportunity for every citizen to become a civil servant is thus the second affirmative relationship between civil society and state, the second identity. It is of a very superficial and duahstic nature. Every Catholic has the opportunity to become a priest (i.e., to separate himself from the laity as from the world). Does the clergy confront the Catholic as an other-worldly power any the less on that account? The fact that anyone has the opportunity to acquire the right of another sphere merely proves that in his own sphere this right has no reality.
+
+In the genuine state it is not a question of the opportunity of every citizen to devote himself to the general estate as one particular estate, but the capacity of the general estate to be really general—that is, to be the estate of every citizen. But Hegel proceeds from the premise of the pseudo-general, illusory-general estate — the premise of generality as a particular estate.
+
+The identity which he has constructed between civil society and state is the identity of two hostile armies, where every soldier has the "opportunity" to become, by "desertion", a member of the
+
+[^1]: "The objective factor in their appointment" (sc. to government) "is knowl- edge" (subjective arbitrariness lacks this factor) "and proof of ability. Such proof guarantees that the state gets what it requires, and since it is the sole condition of appointment, it also guarantees to every citizen the opportunity to devote himself to the general estate."
+
+
+
+
+
+**[p. 51]**
+
+"hostile" army; and indeed Hegel herewith correctly describes the present empirical position.
+
+It is the same with his construction of the "examinations". In a rational state, to sit an examination should be demanded of a shoemaker rather than an executive civil servant. For shoemaking is a skill without which one can be a good citize"n of the state and social human being; whereas the necessary "political knowledge" is a requirement without which a person in the state lives outside the state, cut off from himself, from the air. The "examination" is nothing but a Masonic rite, the legal recognition of a knowledge of citizenship as a privilege.
+
+The examination—this "link" between the "office of state" and the "individual", this objective bond between the knowledge of civil society and the knowledge of the state—is nothing but the bureaucratic baptism of knowledge, the official recognition of the transubstantiation of profane into sacred knowledge (in every examination, it goes without saying, the examiner knows all). One does not hear that the Greek or Roman statesmen passed examinations. But of course, what is a Roman statesman against a Prussian government official!
+
+Besides the examination, the objective bond between the individu- al and public office, there is another bond—the arbitrary decision of the monarch.
+
+The monarch is everywhere the representative of contingency. In addition to the objective element of the bureaucratic confession of faith (the examination) there is also needed the subjective element of monarchical grace and favour, so that the faith may bear fruit.
+
+"The particular affairs of state which monarchy devolves to departments of state" (the monarchy distributes, devolves the particular activities of the state to the departments as business, distributes the state amongst the bureaucrats; it hands them over as the Holy Roman Church hands out ordination. The monarchy is a system of emanation; the monarchy leases out the functions of the state) "constitute one part of the objective aspect of the sovereignty dwelling in the monarch." Here Hegel distinguishes for the first
+
+[^1]: "Since the objective element in appointing to office in the administration is not genius (as in art, for example), selection is of necessity from an indefinite plurality of individuals whose relative merits cannot be positively ascertained, and is therefore subjective. The selection of a particular individual for a post, his appointment, and his authorisation to conduct public business, this linking of the individual to the office, whose relation one to the other must always be fortuitous, is the prerogative of the monarch as the deciding and sovereign power in the state." [Para. 292.]
+
+
+
+time the objective from the subjective aspect of the sovereignty dwelling in the monarch. Previously he cast them both together. The sovereignty dwelling in the monarch is taken here in a clearly mystical sense, just as theologians find the personal God in nature. It was also stated that the monarch is the subjective aspect of the sovereignty dwelling in the state (para. 293).
+
+In para. 294 Hegel deduces the salary of the civil servants from the idea. Here in the salary of the civil servants, or in the fact that the service of the state also guarantees security of empirical existence, the real identity of civil society and the state is estab- lished. The civil servant's pay is the highest identity which Hegel constructs. The transformation of state activities into official posts presupposes the separation of the state from society. Hegel says:
+
+"The service of the state [] requires the renunciation of independent and arbitrary satisfaction of subjective aims", which is what any service requires, "and at the same time offers the right to find satisfaction in, but only in, the discharge of one's duties. In this fact, so far as this aspect is concerned, there lies the link between the general and the particular interests which constitutes both the concept of the state and its inner stability."
+
+(1) This holds good of every servant, and (2) it is true that civil service pay constitutes the inner stability of the deep[-rooted] modern monarchies. Only the existence of civil servants is guaran- teed, in contrast to that of the member of civil society.
+
+Now it cannot escape Hegel that he has constructed the executive as an antithesis to civil society, and indeed as a dominant pole. How does he now establish a relation of identity?
+
+According to para. 295, "the security of the state and of the governed against the abuse of power by government departments and their officials" lies, on the one hand, directly in their "hierarchical structure". (As if the hierarchy were not the chief abuse, and the few personal sins of the officials not at all to be compared with their inevitable hierarchical sins. The hierarchy punishes the official if he sins against the hierarchy or commits a sin unnecessary from the viewpoint of the hierarchy. But it takes him into its protection whenever the hierarchy sins in him; moreover, the hierarchy is not easily convinced of the sins of its members.) And security against abuse also lies "in the rights vested in local authorities and corporations. This prevents the intrusion of subjective arbitrariness into the power entrusted to a civil servant, and supplements from below the control from above which does not reach down to the conduct of individuals" (as if this control were not exercised from the standpoint of the bureaucratic hierarchy).
+
+
+
+**[p. 53]**
+
+Thus the privileges of the corporations are the second guaran- tee against the arbitrariness of the bureaucracy.
+
+If we ask Hegel, then, what protection civil society has against the bureaucracy, his answer is:
+
+1) "Hierarchy" of the bureaucracy; control. It is the fact that the adversary himself is bound hand and foot, and that if he is a hammer to those below, he is an anvil to those above. Where, then, is the protection against the "hierarchy"? The lesser evil is indeed abolished by the greater insofar as it vanishes by com- parison.
+
+2) The conflict, the unresolved conflict, between bureaucracy and corporation. Struggle, the possibility of struggle, is the guarantee against defeat. Later (para. 297) Hegel adds as a further guaran- tee the "institutions of sovereignty working from above", by which is meant again the hierarchy.
+
+However, Hegel adduces two more factors (para. 296): In the civil servant himself—and this is supposed to humanise him and make "behaviour marked by dispassionateness, upright- ness and kindness" "customary" — "direct moral and intellectual education" is supposed to provide the "spiritual counterpoise" to the mechanical character of his knowledge and of his "actual work". As if the "mechanical character" of his "bureaucratic" knowledge and of his "actual work" did not provide the "counterpoise" to his "moral and intellectual education"! And will not his actual mind and his actual work as substance triumph over the accident of his other endowments? For his "post" is his "substantial" relationship and his "livelihood". Fine, except that Hegel sets "direct moral and intellectual education" against the "mechanical character of bureaucratic knowledge and work"! The man within the official is supposed to secure the official against himself. But what unity! Spiritual counterpoise. What a dualistic category!
+
+Hegel also cites the "size of the state", which in Russia provides no guarantee against the arbitrariness of the "executive civil servants", and which in any case is a circumstance which lies "outside" the "essential nature" of the bureaucracy.
+
+Hegel has expounded the "executive" as "state officialdom". Here, in the sphere of the "intrinsically and explicitly general character of the state proper", we find nothing but unresolved conflicts. The final syntheses are the civil servants' examinations and their livelihood.
+
+As the final consecration of the bureaucracy Hegel adduces its impotence, its conflict with the corporation.
+
+In para. 297 an identity is established, insofar as "the members
+
+
+
+**[p. 54]**
+
+of the government and the civil servants constitute the major part of the middle estate". Hegel praises this "middle estate" as the "pillar of the state in terms of uprightness and intelligence". (Addition to the quoted paragraph.)
+
+"The education of this middle estate is a principal interest of the state, but this can only occur in an organic structure such as we have been considering, namely, as a result of the rights vested in particular, relatively independent circles, and through a world of officials whose arbitrariness is checked by those who possess such rights."
+
+Certainly, only in such an organic structure can the nation appear as one estate, the middle estate. But is that an organic structure which keeps itself going by means of the counterposing of privileges? The executive power is the most difficult to expound. It belongs to the entire nation to an even much higher degree than the legislative power.
+
+Later, in the Remark to para. 308, Hegel expresses the real spirit of the bureaucracy when he characterises it as "business routine" and the "horizon of a restricted sphere".
+
+c) The Legislature
+
+The first thing that is striking is Hegel's emphasis on the point that "this authority is itself a part of the constitution, which is antecedent to it and which lies wholly beyond direct determination by the legislature", since he has not made this remark about either the monarchical or the executive authority, though it is equally true of them. Then, however, Hegel is constructing the constitu- tion as a whole, and, thus, cannot presuppose it. However, we recognise the profundity in Hegel precisely in the fact that he everywhere begins with and lays stress on the opposition between attributes (as they exist in our states).
+
+The "legislative authority is itself a part of the constitution" which "lies wholly beyond direct determination by the legislature". But, again, the constitution has surely not made itself spontane- ously. The laws, which "require to be further determined", must surely have had to be formulated. A legislative authority prior to the constitution and outside of the constitution must exist or have
+
+[^1]: 298. "The legislative authority is concerned with the laws as such, insofar as they require to be further determined, and with internal affairs in their entirely general aspects" (a very general expression). "This authority is itself a part of the constitution, which is antecedent to it and which accordingly lies wholly beyond direct determination by the legislature, but which undergoes further develop- ment by the elaboration of laws and by the dynamic character of government affairs in general."
+
+
+
+
+
+**[p. 55]**
+
+existed. A legislative authority must exist beyond the actual, empir- ical, established legislative authority. But, Hegel will reply, we are presupposing an existing state. Hegel, however, is a philosopher of law and is expounding the genus of the state. He must not measure the idea by what exists, but what exists by the idea.
+
+The collision is simple. The legislative power is the power to organise the general. It is the power of the constitution. It reaches beyond the constitution.
+
+But, on the other hand, the legislative power is a constitutional power. It is therefore subsumed under the constitution. The constitution is law for the legislative authority. It gave and con- tinues to give laws to the legislature. The legislative authority is only the legislative authority within the constitution, and the constitution would stand hors de loi, were it to stand outside the legislative authority. Voilà la collision! In recent French history this proved to be a hard nut to crack.
+
+How does Hegel resolve this antinomy? First he says: The constitution is "antecedent" to the legislature; it "accordingly lies wholly beyond direct determination by the legislature".
+
+"But"—but "by the elaboration of laws" "and by the dynamic character of government affairs in general" it "undergoes" its "further development".
+
+That is to say, then: directly, the constitution lies beyond the reach of the legislature; but indirectly, the legislature changes the constitution. The legislature does in a roundabout way what it cannot and must not do straightforwardly. It takes the constitution apart piecemeal, because it cannot change it wholesale. It does through the nature öf things and circumstances what, from the nature of the constitution, it ought not to do. It does materially and in fact what formally, legally, and constitutionally it does not do.
+
+Hegel has not herewith abolished the antinomy: he has trans- formed it into another antinomy. He has posed the working of the legislature — its constitutional working — in antithesis to its constitu- tional designation. The opposition between the constitution and the legislature remains. Hegel has depicted the actual and the legal action of the legislature as constituting a contradiction, or again depicted the contradiction between what the legislature is sup- posed to be and what it actually is, between what it thinks it is doing and what it really does.
+
+How can Hegel present this contradiction as the truth? "The dynamic character of government affairs in general" explains just
+
+
+
+**[p. 56]**
+
+In the Addition Hegel contributes nothing, it is true, to the solu- tion of these difficulties. But he sets them out still more clearly.
+
+"The constitution must be actually and explicitly the firm and recognised ground on which the legislature stands, and for this reason it must not initially be completed. Thus the constitution is, but just as essentially it becomes, i.e., its formation advances. This advance is an alteration which is inconspicuous and does not have the form of alteration."
+
+That is to say: according to the law (illusion) the constitution is, but according to reality (the truth) it develops. According to its definition the constitution is unalterable, but actually it is altered; only, this alteration is unconscious, it does not have the form of alteration. The appearance contradicts the essence. The appearance is the conscious law of the constitution, and the essence is its unconscious law, which contradicts the former. What the thing is in its own nature is not in the law. In law it is rather the contrary.
+
+Is this, then, the truth: that in the state, according to Hegel the highest presence of freedom, the presence of self-conscious reason, it is not the law, the presence of freedom, which rules, but blind natural necessity? And if the law of the thing is recognised as contradicting the legal definition, why not recognise the law of the thing, of reason, as the law of the state as well; why consciously cling to the dualism? Hegel wants everywhere to present the state as the actualisation of free mind, but re vera he resolves all the difficult collisions by means of a natural necessity which stands in opposition to freedom. Thus the transition of the particular interest into the general is likewise not a conscious law of the state, but is mediated by accident, proceeds against consciousness, and Hegel wants everywhere in the state the realisation of free will! (Here Hegel's substantial standpoint makes itself evident.)
+
+The examples of gradual alteration of the constitution which Hegel gives are infelicitously chosen, like the transformation of the property of the German princes and their families from private estates into state domains, or the transformation of the personal administration of justice by the German emperors into administra- tion by representatives. The first transition only worked out in such a way that all state property was transformed into private property of the monarch.
+
+Besides, these are particular changes. Certainly, entire state constitutions have changed in such a way that gradually new needs arose, the old broke down, etc.; but for a new constitution a real revolution has always been required.
+
+
+
+**[p. 57]**
+
+"Hence further development of a condition of affairs," Hegel concludes, "is something apparently tranquil and unnoticed. In this way, after a long time, a constitution passes into a condition quite different from what existed previously."
+
+The category of gradual transition is, in the first place, historical- ly false; and in the second place, it explains nothing.
+
+If the constitution is not merely to suffer change; if, therefore, this illusory appearance is not finally to be violently shattered; if man is to do consciously what otherwise he is forced to do without consciousness by the nature of the thing, it becomes necessary that the movement of the constitution, that advance, be made the principle of the constitution and that therefore the real bearer of the constitution, the people, be made the principle of the constitution. Advance itself is then the constitution.
+
+Does the "constitution" itself, then, properly belong to- the domain of the "legislative authority"? This question can only be raised (1) when the political state exists as the mere formalism of the real state, when the political state is a distinct domain, when the political state exists as "constitution"; (2) when the legislative authority has a different source from that of the executive authority, etc.
+
+The legislature made the French Revolution; in general, wher- ever it has emerged in its particularity as the dominant element, it has made the great, organic, general revolutions. It has not fought the constitution, but a particular, antiquated constitution, precisely because the legislature was the representative of the people, of the will of the species. The executive, on the other hand, has produced the small revolutions, the retrograde revolutions, the reactions. It has made revolutions not for a new constitution against an old one, but against the constitution, precisely because the executive was the representative of the particular will, of subjective arbitrariness, of the magical part of the will.
+
+Posed correctly, the question is simply this: Has the people the right to give itself a new constitution? The answer must be an unqualified "Yes", because once it has ceased to be an actual expression of the will of the people the constitution has become a practical illusion.
+
+The collision between the constitution and the legislature is nothing but a conflict of the constitution with itself, a contradiction in the concept of the constitution.
+
+The constitution is nothing but a compromise between the political and the unpolitical state. Hence, it is necessarily in itself a treaty between essentially heterogeneous powers. Here, then, it is impossible for the law to declare that one of these powers, one
+
+
+
+**[p. 58]**
+
+part of the constitution, is to have the right to modify the constitution itself, the whole.
+
+If we are to speak of the constitution as something particular, however, it must be considered, rather, as one part of the whole.
+
+If by the constitution is understood the general, the fundamen- tal attributes of rational will, then it is obvious that every people (state) has these as its basis, and that they must form its political credo. This is really a matter of knowledge and not of will. The will of a people can no more escape the laws of reason than the will of an individual. In the case of an irrational people one cannot speak at all of a rational organisation of the state. Here, in the philosophy of law, moreover, the will of the species is our subject-matter.
+
+The legislature does not make the law; it only discovers and formulates it.
+
+The resolution of this conflict has been sought in the distinction between assemblée constituante and assemblée constituée.
+
+299. "These concerns" (of the legislature) "are more precisely defined in relation to individuals under two heads: ( a ) what advantages and benefits they receive from the state; and ( ß ) what they have to contribute to the state. Under the former come the laws belonging to the sphere of civil law generally, laws concerning the rights of local bodies and corporations, and quite general arrange- ments; and, indirectly (para. 298), the whole of the constitution. As for the contributions [from individuals]: only if these contributions are reduced to money, as the existing general value of things and services, can they be fixed justly, and at the same time in such a way that the particular tasks and services which the individual can perform are mediated by his own choice."
+
+With regard to this definition of the concerns of the legislature Hegel himself observes in the Remark to this paragraph:
+
+But it is precisely this organic unity which Hegel has failed to construct. The different authorities have different principles.
+
+[^1]: "In general, indeed, the way in which the concerns of general legislation can be distinguished from matters calling for decision by administrative departments or government regulation generally, is that to the former belongs what is wholly general in content — the legal enactments, whereas to the latter belongs the particular and the manner of execution. This distinction, however, is not a hard and fast one, because a law, to be a law and not a mere general command (such as 'Thou shalt not kill' [], must in itself be something definite; and the more definite it is, the more its terms are capable of being carried out as they stand. At the same time, however, to give to laws such a very detailed determinacy would give them empirical features which would inevitably become subject to alterations in the course of being actually implemented, and this would jeopardise their character as laws. The organic unity of the state authorities itself implies that one spirit establishes the general and also brings it to its determinate actuality and carries it out."
+
+
+
+
+
+**[p. 59]**
+
+They are, moreover, solid reality. To take refuge from their real conflict in an imaginary "organic unity", instead of expounding them as elements of an organic unity, is therefore mere empty, mystical evasion.
+
+The first unresolved collision was that between the constitution as a whole and the legislature. The second is that between the legislature and the executive, between the law and its execution.
+
+The second statement in the paragraph is that the only contribution which the state requires from individuals is money.
+
+The reasons Hegel gives for this are:
+
+1) Money is the existing general value of things and services; 2) The contributions can only be fixed justly by means of this reduction;
+
+3) Only in this way can the contribution be fixed so that the particular tasks and services which an individual can perform are mediated by his own choice.
+
+Hegel observes in the Remark:
+
+On 1: "It may, in the first place, seem astonishing that of the numerous skills, possessions, activities and talents and the infinitely manifold living properties* this implies, which are at the same time associated with a definite frame of mind, the state demands no direct service, but lays claim only to the one kind of prop- erty,3—that which appears in the form of money.
+
+[^1]: "The services relating to the defence of the state against enemies pertain only to the duty considered in the next section." (Not because of the next section but for other reasons, it is only later that we shall come to the personal obligation to military service. )
+
+[^2]: "In fact, however, money is not one particular kind of property alongside the others but their general form, insofar as they are produced in the externality of concrete being, in which they can be grasped as a thing."
+
+[^3]: "With us," he goes on in the Addition, "the state buys what it needs." On 2: "Only at this extreme of externality" (sc. where wealth is produced in the externality of concrete being, in which its various forms can be grasped as things) "is quantitative precision, and therewith justice and equality of contributions, possible." In the Addition he says: "By means of money, however, the justice of equality can be much better achieved." "Otherwise the talanted would be more taxed than the untalented, if it depended on concrete ability."
+
+[^4]: On 3: "In his state Plato has individuals assigned to the particular estates by the guardians and has their particular services imposed on them []; in feudal monarchy vassals had equally indeterminate services to perform, but they had also to serve in their particular character—e. g., as judges, etc. The services demanded in the East, in Egypt, for the immense architectural works, etc., are likewise of particular quality, etc. In these conditions the principle of subjective freedom is lacking—i. e., the principle that the individual's substantial activity, which in any case becomes something particular in content in services like those mentioned, shall
+
+[^5]: a The German word Vermögen, here rendered as "property", has a wide range of meanings including ability, capacity, faculty, power, etc., as well as fortune, wealth, riches.— Ed.
+
+
+
+
+
+**[p. 60]**
+
+be mediated by his particular will. This is a right which can only be realised through the demand for services in the form of a general value, and it is the reason which has brought about this transformation."
+
+In the Addition he says: "With us, the state buys what it needs, and this may at first seem abstract, dead and heartless, and it can also look as if the state were in decline because it is satisfied with abstract services. But the principle of the modern state requires that everything which the individual does shall be mediated by his will."
+
+"But nowadays respect for subjective freedom is publicly recognised precisely in the fact that the state lays hold of a man only by that by which he is capable of being seized."
+
+Do what you will, pay what you must. The beginning of the Addition reads:
+
+"The two sides of the constitution relate to the rights and services of individuals. As regards services, they are now almost all reduced to money. Military service is now almost the only personal service."
+
+300. "Effective in the legislative authority as a totality are, first, the other two elements — the monarchy, whose prerogative it is to make the supreme decisions, and the executive, as the advisory authority possessing the concrete knowledge and over-all view of the whole in its manifold aspects together with the actual principles which have become firmly established in it, and also a knowledge of the requirements of state power in particular; and finally the estates element."
+
+The monarchical authority and the executive authority are legislative authority. If, however, the legislative authority is the totality, monarchical and executive authority would, rather, have to be elements of the legislative authority. The supervening estates element is legislative authority alone, or the legislative authority in distinction from the monarchical and executive authority.
+
+The estates element is a deputation of civil society to the state, which it confronts as the "many". The many are to deal for a moment with matters of general concern consciously, as being their own, as objects of public consciousness which according to Hegel is nothing but the "empirical generality of the opinions and thoughts of the many" (and in fact in modern monarchies, including constitutional monarchies, it is nothing else). It is significant that Hegel, who has such a great respect for the state spirit, for the ethical spirit, for state consciousness, positively despises it when it confronts him in an actual, empirical form.
+
+This is the enigma of mysticism. The same fantastic abstraction, which rediscovers state consciousness in the inadequate form of the bureaucracy, a hierarchy of knowledge, and which uncritically
+
+[^1]: 301. "The estates element has this characteristic, that in it matters of general concern come to exist not merely in themselves but also for themselves; in it, that is to say, the element of subjective formal freedom, public consciousness as the empirical generality of the opinions and thoughts of the many, comes into existence."
+
+
+
+
+
+**[p. 61]**
+
+accepts this inadequate existent as the real existent and as fully valid, this same mystical abstraction just as candidly avows that the real, empirical state spirit, public consciousness, is a mere pot-pourri of "thoughts and opinions of the many". As it imputes to the bureaucracy an alien essence, so it leaves for the true essence the inadequate form of appearance. Hegel idealises the bureaucracy, and empiricises public consciousness. He can treat actual public consciousness as very special precisely because he has treated the special consciousness as the public consciousness. He needs to concern himself all the less about the actual existence of the state spirit since he believes he has already realised it properly in its so-called existences. As long as the state spirit mystically haunted the forecourt, many bows were made in its direction. Now, when we have caught it in person, it is scarcely regarded.
+
+"The estates element has this characteristic, that in it matters of general concern come to exist not merely in themselves but also for themselves." And indeed they come to exist explicitly as "public consciousness", as the "empirical generality of the opinions and thoughts of the many".
+
+The process by which "matters of general concern" — which are in this way turned into an independent entity — come to be a subject, is here presented as a phase in the life-process of the "matters of general concern". Instead of the subjects making themselves objective in the "matters of general concern", Hegel brings the "matters of general concern" to the point of being the "subject". The subjects do not need the "matters of general concern" as their true concerns, but the matters of general concern require the subjects for their formal existence. It is a matter for "matters of general concern" that they exist also as subject.
+
+What has especially to be kept in view here is the difference between the "being in itself" and the "being for itself' of the matters of general concern.
+
+The "matters of general concern" already exist "in themselves" as the business of the government, etc. They exist, without actually being matters of general concern. They are on no account matters of general concern, for they are not the concern of "civil society". They have already found their essential, actual existence. That they now also actually become "public consciousness", "empirical gen- erality", is something purely formal and, as it were, only a symbolic attaining to actuality. The "formal" existence or the "empirical" existence of matters of general concern is separated from their substantial existence. The truth of this is that "matters of general
+
+
+
+**[p. 62]**
+
+concern" in their being as such are not actually general, and the actual, empirical matters of general concern are merely formal.
+
+Hegel separates content and form, being in itself and being for itself, and brings in the latter externally as a formal element. The content is complete and exists in many forms, which are not the forms of this content; whereas clearly the form which is supposed to be the actual form of the content, has not the actual content for its content.
+
+The matters of general concern are complete, without being actual concerns of the people. The actual business of the people has come into being without action by the people. The estates element is the illusory existence of matters of state as a public concern. [It is] the illusion that the matters of general concern are matters of general concern, public matters; or the illusion that the people's affairs are matters of general concern. Things have gone so far, both in our states and in Hegel's philosophy of law, that the tautological sentence "Matters of general concern are matters of general concern" can only appear as an illusion of practical consciousness. The estates element is the political illusion of civil society. Precisely because he does not establish objective freedom as the realisation, the practical manifestation of subjective freedom, subjective free- dom appears in Hegel as formal freedom. (It is certainly important though that what is free is also done freely; that freedom does not prevail as the unconscious natural instinct of society.) Because he has given the presumed or actual content of freedom a mystical bearer, the actual subject of freedom acquires a formal signifi- cance.
+
+The separation of the in itself and the for itself, of substance and subject, is abstract mysticism.
+
+In the Remark Hegel explains the "estates element" very much as something "formal" and "illusory".
+
+Both the knowledge and the will of the "estates element" are treated partly as unimportant, partly as suspect: i.e., the estates element is not a substantial addition.
+
+[^1]: 1) "The idea uppermost in men's minds when they speak about the necessity or usefulness of summoning the estates is usually something of this sort, that the people's representatives, or even the people, must best understand what is best for them, and that they undoubtedly have the best intention to bring about this best. On the first point, it is rather the case that if by the people' is meant one particular section of the members of the state, then it is that section which does not know what it wants. To know what one wants, and, even more, to know what will, existing in and for itself, i.e., reason, wants, is the fruit of deep understanding" (confined, of course, to [government] offices) "and insight—which, of course, is not the people's affair."
+
+
+
+Further on, he says with reference to the estates themselves: "The highest civil servants necessarily have deeper and more comprehensive insight into the nature of the structure and the needs of the state, as well as being more skilled in, and more accustomed to, these affairs; without the estates they are therefore able to do what is» best, as they constantly must do their best when the estates are in session."
+
+And it stands to reason that in the organisation described by Hegel this is perfectly true.
+
+2) "As for the estates' especially good intention to bring about the general good, it has already been pointed out [] that to presume a bad or less good intention in the executive is characteristic of the vulgar crowd and of a negative outlook generally. If one were to answer in like manner, the countercharge would follow that since the estates have their origin in individuality, the private standpoint, and particular interests, they are inclined to use their powers on behalf of these at the expense of the general interest, whereas the other state authorities consciously adopt the standpoint of the state from the start, and are devoted to the common purpose."
+
+Thus the knowledge and will of the estates are partly superfluous, partly suspect. The people do not know what they want. The estates do not possess knowledge of state affairs in the same degree as the officials, who have a monopoly of this knowledge. The estates are superfluous for the implementation of "matters of general concern", the officials are able to accomplish them without the estates, and indeed have to do what is best in spite of the estates. Thus from the point of view of content, the estates are a pure luxury. Their presence is therefore in the most literal sense a mere form.
+
+Furthermore, with regard to the attitude, the will of the estates: this is suspect, for they issue from the private standpoint and from private interests. The truth is that private interest is their matter of general concern, and that matters of general concern are not their private interest. But what a state of things when "matters of general concern" assume the form of matters of general concern in a will which does not know what it wants, or at least does not possess any particular knowledge of the general, and which has as its real content an opposing interest!
+
+In modern states, as in Hegel's philosophy of law, the conscious, the true actuality of matters of general concern is merely formal; or, only what is formal is an actual matter of general concern.
+
+Hegel is not to be blamed for depicting the nature of the modern state as it is, but for presenting that which is as the nature of the state. That the rational is actual is proved precisely in the contradiction of irrational actuality, which everywhere is the contrary of what it asserts, and asserts the contrary of what it is.
+
+
+
+**[p. 64]**
+
+Instead of showing how "matters of general concern" exist for themselves "subjectively, and therefore actually as such", and that they have also the form of matters of general concern, Hegel only shows that formlessness is their subjectivity, and a form without content must be formless. The form which matters of general concern gain in any state which is not the state of matters of general concern can only be a deformity, a self-deceiving, self- contradictory form, an illusory form which will reveal itself as this illusion.
+
+Hegel wants the luxury of the estates element only for the sake of logic. The being for themselves of matters of general concern as empirical generality must have a specific presence. Hegel does not look for an adequate actualisation of the "being for themselves of matters of general concern", he is content to find an empirical existent which can be dissolved into this logical category; this is then the estates element, and Hegel himself does not fail to note how pitiful and full of contradictions this existent is. Yet he still reproaches ordinary consciousness for not being content with this logical satisfaction, and for wanting to see logic transformed into true objectivity rather than actuality dissolved into logic by arbitrary abstraction.
+
+I say arbitrary abstraction; for, since the executive authority wills, knows and actualises the matters of general concern, has its source in the nation and is an empirical multiplicity (that it is not a question of totality Hegel himself tells us), why should it not be possible to define the executive as the "being for themselves of matters of general concern"? Or why not the "estates" as their being in themselves, since it is only in the executive that these matters reach the light and gain determinacy and implementation and independence?
+
+The true antithesis, however, is this: "Matters of general concern" have to be represented somewhere in the state as "actual" and therefore "empirical matters of general concern". They must appear somewhere in the crown and robes of the general, which thereby automatically becomes a role, an illusion.
+
+The antithesis in question here is that of the "general" as "form" — in the "form of generality" — and of the "general as content".
+
+In science, for example, an "individual" can accomplish matters of general concern, and it is always individuals who do accomplish them. But these matters become truly general only when they are the affair no longer of the individual but of society. This changes not merely the form but also the content. In this case, however,
+
+
+
+**[p. 65]**
+
+The modern state, in which "matters of general concern" and preoccupation with them are a monopoly, and in which, on the contrary, monopolies are the real matters of general concern, has invented the strange device of appropriating "matters of general concern" as a mere form. (The truth is that only the form is a matter of general concern.) With this it has found the correspond- ing form for its content, which is only seemingly composed of real matters of general concern.
+
+The constitutional state is the state in which the state interest as the actual interest of the nation exists only formally but, at the same time, as a determinate form alongside the actual state. Here the state interest has again acquired actuality formally as the interest of the nation, but it is only this formal actuality which it is to have. It has become a formality, the haut goût of national life, a ceremonial. The estates element is the sanctioned, legal lie of constitu- tional states, the lie that the state is the nation's interest, or that the nation is the interest of the state. This lie reveals itself in its content. It has established itself as the legislative power, precisely because the legislative power has the general for its content, and, being an affair of knowledge rather than of will, is the metaphysical state power, whereas in the form of the executive power, etc., this same lie would inevitably have to dissolve at once, or be transformed into a truth. The metaphysical state power was the most fitting seat for the metaphysical, general illusion of the state.
+
+[^1]: [301.] "A little reflection will show that the guarantee of the common good and public freedom afforded by the estates lies not in their special insight [] but partly indeed in an additional' (!!) "insight contributed by the deputies, principally into the doings of officials at some removes from direct supervision by the higher authorities, and particularly into the more pressing and specialised needs and deficiencies which these deputies have concretely before them; but partly, too, it lies in the effect which the criticism to be expected from the many, and public criticism at that, brings with it in inducing officials in advance to apply the greatest understanding to their tasks and to the projects they have to prepare, and to deal with them only in accordance with the purest motives — a compulsion which is equally effective in the case of the members of the estates themselves."
+
+[^2]: "As for thfe guarantee generally which the estates in particular are supposed to furnish, each of the other institutions of the state shares with them in being a guarantee of the public good and of rational freedom; and amongst these are institutions such as the sovereignty of the monarch, hereditary succession to the throne, the constitution of the courts, etc., which provide this guarantee in far greater measure than do the estates. The distinctive feature of the estates is to be sought, therefore, in the fact that in them the subjective element of general
+
+
+
+
+
+**[p. 66]**
+
+Public, general freedom is allegedly guaranteed in the other state institutions; the estates are its alleged self-guarantee. [But the fact is] that the people attach more importance to the estates, through which they believe themselves to be able to safeguard their own security, than to those institutions which without any action on their part are supposed to be safeguards of their freedom—being affirmations of their freedom without being manifestations of their freedom. The co-ordinate position which Hegel assigns to the estates alongside the other institutions, contradicts the nature of the estates.
+
+Hegel solves the enigma by seeing the "distinctive feature of the estates" in the fact that in them "the specific insight and the specific will characteristic of [] civil society comes into existence relative to the state". It is the reflection of civil society on to the state. As the bureaucrats are representatives of the state to civil society, so the estates are representatives of civil society to the state. It is always a case, therefore, of transactions between two opposing wills.
+
+In the Addition to this paragraph he says:
+
+"The government is not a party facing another party." On the contrary.
+
+In the constitutional state, the voting of taxes is inevitably thought of as a present.
+
+This last point is quite right. In the estates the people begins to participate in the state, and likewise the state enters its subjective consciousness as an other-world. But how can Hegel present this beginning as the full reality?
+
+[^1]: "The attitude of the executive to the estates should not be essentially hostile, and the belief in the inevitability of such a hostile relationship is a sad mistake", is a "sad truth".
+
+[^2]: "The taxes voted by the estates, furthermore, are not to be regarded as a present given to the state; they are voted, rather, for the good of the voters themselves."
+
+[^3]: "The real significance of the estates lies in the fact that through them the state enters the subjective consciousness of the people, and that the people begins to participate in the state."
+
+[^4]: 302. "Considered as a mediating organ, the estates stand between the govern- ment as a whole on the one hand, and the nation on the other, resolved into particular spheres and individuals. Their function requires of them a sens« and a way of thinking appropriate to the stale and government, as well as to the interests of particular groups and individuals. At the same time, their position has the
+
+
+
+
+
+**[p. 67]**
+
+On the one side are placed, always as identical, state and government; on the other, the nation, resolved into particular spheres and individuals. The estates stand between the two as a mediating organ. The estates are the centre where "sense and a way of thinking appropriate to the state and government" are supposed to coincide and be united with "sense and a way of thinking appropriate to particular groups and individuals". The identity of these two opposed senses and ways of thinking, in whose identity the state should properly be rooted, is given a symbolic representation in the estates. The transaction between state and civil society appears as a particular sphere. The estates are the synthesis between state and civil society. But how the estates are to set about uniting in themselves two contradictory ways of thinking is not indicated. The estates are the posited contradiction of the state and civil society within the state. At the same time, they are the demand for the resolution of this contradiction.
+
+"At the same time, their position has the significance of being, together with the organised1 executive, a mediating factor, etc." The estates not only mediate nation and government. They prevent the "monarchical authority" from appearing as an isolated "extreme" and thus as "exclusively the power of the sovereign and arbitrariness"; they likewise prevent the "isolation" of the "par- ticular" interests, etc., and the "appearance of individuals as a multitude or crowd". This mediating function is common to the estates and to the organised executive. In a state where the "position" of the "estates" prevents "individuals from coming to form a multitude or a crowd, characterised by correspondingly non-organic views and intentions and constituting a mere massed force against the organic state", the "organic state" exists outside the "multitude" and the "crowd"; or there the "multitude" and the "crowd" do belong to the organisation of the state, only their "non-organic views and intentions" are not to become "views and intentions against the state"—for with such a definite orientation these views and intentions would become "organic". Similarly, this "massed force" is to remain only "mass", so that understanding
+
+[^1]: a Marx wrote "organic".—Ed.
+
+
+
+
+
+**[p. 68]**
+
+But at the same time the mediation by the estates is intended to prevent the "isolation" of "the particular interests of communities, corporations and individuals". They mediate in this respect (1) by treating with the "state interest", (2) by themselves being the "political isolation" of these particular interests, by being this isolation as a political act, since through them these "isolated interests" attain the rank of the "general".
+
+Finally, the estates are supposed to mediate in relation to the "isolation" of the authority of the monarch as an "extreme" (which "thus would appear as exclusively the power of the sovereign and arbitrariness"). This is correct insofar as the principle of the authority of the monarch (arbitrariness) is limited by the estates or at least is fettered in its operation, and inasmuch as the estates themselves become participants in, and accomplices of, the monarch's authority.
+
+In this way either the power of the monarch actually ceases to be the extreme of the power of the monarch (and, since it is not an organic principle, the power of the monarch exists only as an extreme, as a one-sidedness), and becomes an appearance of power, a symbol; or else it only loses the appearance of being arbitrary and exclusively the power of the sovereign. The estates mediate to
+
+
+
+**[p. 69]**
+
+In the "estates" all the contradictions of the organisations of the modern state coalesce. The estates are the "mediators" in all directions, because in all respects they are "hybrids".
+
+It should be noted that Hegel does not so much expound the content of the activity of the estates, the legislative power, as the position of the estates, their political rank.
+
+It should further be noted that whereas, according to Hegel, the estates stand to begin with "between the government as a whole on the one hand, and the nation on the other, resolved into particular spheres and individuals", their position as expounded above "has the significance of being, together with the organised executive, a mediating factor".
+
+With regard to the first point, the estates are the nation over against the government, but the nation in miniature. This is their posture in opposition.
+
+With regard to the second point, the estates are the government over against the nation, but the government amplified. This is their conservative posture. They are themselves a part of the executive over against the nation, but in such a way as to have at the same time the significance of being the nation over against the executive.
+
+Hegel, above, characterised the "legislative authority as a totali- ty" (para. 300): the estates actually are this totality— the state within the state—but it is precisely in them that it becomes apparent that the state is not the totality, but a dualism. The estates represent the state in a society that is no state. The state is a mere concept.
+
+In the Remark [to para. 302] Hegel says:
+
+(Thus the estates element is (1) the extreme of the nation over against the government; but also (2) the middle term between nation and government; or it is the antithesis within the nation itself. The antithesis of government and nation is mediated by the anfithesis between estates and nation. The estates occupy the position of the nation with regard to the government, but the position of the government with regard to the nation. The real
+
+[^1]: "It is one of the most important insights of logic that a certain element which occupies the position of an extreme when standing within an antithesis, is at the same time a middle term, and thus ceases to be an extreme and is an organic element."
+
+
+
+
+
+**[p. 70]**
+
+"In connection with the matter here being considered it is all the more important to stress this aspect because of the frequently-held, but most dangerous prejudice which regards the estates primarily from the point of view of opposition to the government, as if this were their essential attitude. Looked upon organically, i. e., as part of the totality, the estates element manifests itself only through the function of mediation. Thus the antithesis itself is reduced to an appearance. If this antithesis, when it manifests itself, were not merely something superficial but actually became a substantial antithesis, then the state would be in the throes of destruction. That the conflict is not of this kind is shown, in accordance with the nature of the thing, by the fact that it is not concerned with the essential elements of the state organism but with more specialised and less important things; and the passion nevertheless aroused by these matters becomes faction concerned with merely subjective interests such as higher state appointments."
+
+In the Addition he says:
+
+"The constitution is essentially a system of mediation." 303. "The general estate, or more precisely the estate which devotes itself to government service, is directly defined as having the general as the purpose of its essential activity. In the estates element of the legislature the ciinl estate acquires political significance and effectiveness. Now this civil estate can appear in this sphere neither as a mere undifferentiated mass nor as a multitude resolved into its atoms, but as that which it already is, namely, differentiated into the estate based on the substantial relationship and the estate based on specific needs and the labour satisfying them []. Only thus is the really particular in the state truly linked in this respect with the general."
+
+Here we have the solution of the enigma. "In the estates element of the legislature the civil estate acquires political signi- ficance." Naturally, the civil estate acquires this significance in a way corresponding to what it is, corresponding to its structure within civil society (Hegel has already characterised the general estate as that which devotes itself to the service of the government; the general estate is thus represented within the legislative authori- ty by the executive).
+
+The estates element is the political significance of the civil estate, of the unpolitical estate—a contradiction in terms. Or in the estate described by Hegel, the civil estate (and further the distinction of the civil estate as such) has a political significance. The civil estate belongs to the essence, to the politics of this state. He, therefore, gives it a political significance, i. e., a significance other than its real significance.
+
+
+
+**[p. 71]**
+
+"This runs counter to another current notion, namely, that when the civil estate is elevated to the participation in general affairs in the legislature it ought to appear there in the form of individuals either by their choosing representatives for this function, or even by each individual himself exercising a vote there. This atomistic, abstract view disappears already within the family as well as within civil society, where the individual only makes his appearance as a member of something general. The state, however, is essentially an organisation consisting of components, each of which is itself a group; and no element should appear as a non-organic mass in the state. The many as individuals, which is what we readily take to be meant by 'people', are indeed an assemblage, but only as a multitude—a formless mass whose movement and action, accordingly, could only be elemental, irrational, savage and frightful."
+
+"The notion which resolves the communities already existing in these groupings again into a multitude of individuals at the point where they enter the political realm, i. e., where they take up the standpoint of the highest concrete generality, thereby keeps civil and political life separate and suspends the latter, so to speak, in the air, since its basis would only be the abstract individuality of caprice and opinion, and thus the accidental, and not an absolutely solid and legitimate foundation."
+
+"Although the estates of civil society in general and the estates in the political sense are widely separated in the concepts advanced by so-called theories, language, nevertheless, still preserves their unity, which moreover formerly prevailed in fact."
+
+"The general estate, or more precisely the estate which devotes itself to government service."
+
+Hegel takes it as a presupposition that the general estate is in the "service of the government". He takes it for granted that general intelligence "is both proper to the estates and is constant".
+
+"In the estates element, etc." The "political significance and effectiveness" of the civil estate is a particular significance and effectiveness of the civil estate. The civil estate is not transformed into the political estate; on the contrary, it is as civil estate that it assumes its political effectiveness and significance. It does not have political effectiveness and significance in an unqualified way. Its political effectiveness and significance is the political effectiveness and significance of the civil estate as civil estate. Hence, the civil estate can only enter the political sphere in a way which corresponds to the differentiation of estates in civil society. The differentiation of estates within civil society becomes a political distinction.
+
+Language itself, says Hegel, expresses the identity of the estates of civil society with the estates in the political sense—a "unity" "which moreover formerly prevailed in fact", and which, one must conclude, now no longer prevails.
+
+Hegel finds that "the really particular in the state is truly linked in this respect with the general". In this manner the separation of
+
+
+
+**[p. 72]**
+
+Hegel relies on the following: "There are already existing communities in these groupings" (family and civil society). How can one, just "at the point where they enter the political realm, i.e., where they take up the standpoint of the highest concrete generality", wish "to resolve" them "again into a multitude of individuals"?
+
+It is important to follow this argument closely. The identity Hegel is asserting was at its most complete, as he himself admits, in the Middle Ages. Here the estates of civil society as such and the estates in the political sense were identical. One can express the spirit of the Middle Ages in this way: The estates of civil society and the estates in the political sense were identical, because civil society was political society — because the organic principle of civil society was the principle of the state.
+
+Hegel, however, takes as his starting point the separation of "civil society" and the "political state" as two fixed opposites, two really different spheres. This separation does indeed really exist in the modern state. The identity of the civil and political estates was the expression of the identity of civil and political society. This identity has disappeared. Hegel takes it to have disappeared. "The identity of the civil and political estates", if it expressed the truth, could therefore now only be an expression of the separation of civil and political society. Or rather, only the separation of the civil and political estatesa expresses the true relationship of modern civil and political society.
+
+Secondly: Hegel is dealing here with political estates in a quite different sense from that of the political estates of the Middle Ages whose identity with the estates of civil society is asserted.
+
+Their whole existence was political. Their existence was the existence of the state. Their legislative activity, their voting of taxes for the Empire, was only a particular expression of their general political significance and effectiveness. Their estate was their state. The relation to the Empire was merely a treaty relationship of these various states with nationality; for the political state as something distinct from civil society was nothing else but the representation of nationality. Nationality was the point d'honneur, the xat' s$o^i]V,b political significance of these various corporations, etc., and the taxes, etc., had reference only to nationality. That
+
+[^1]: a In the manuscript: "society".— Ed. Pre-eminently.—Ed.
+
+
+
+
+
+**[p. 73]**
+
+All the contradictions characteristic of Hegel's presentation are to be found together in the exposition of this question.
+
+1) He has presupposed the separation of civil society and the political state (a modern condition), and expounded it as a necessary element of the idea, as absolute rational truth. He has presented the political state in its modern form—in the form of the separation of the various powers. He has given the bureaucracy to the actual, active state for its body, and set the bureaucracy as mind endowed with knowledge above the materialism of civil society. He has counterposed the intrinsically and actually general aspect of the state to the particular interest and the need of civil society. In short, he presents everywhere the conflict between civil society and the state.
+
+2) Civil society as civil estate is counterposed by Hegel to the political state.
+
+3) He characterises the estates element of the legislature as the mere political formalism of civil society. He describes it as a relationship of reflection in which civil society is reflected on to the state, and as one which does not affect the essence of the state. And a
+
+[^1]: 4—4H2
+
+
+
+
+
+**[p. 74]**
+
+1) Hegel does not want to allow civil society to appear in its self-constitution as a legislative element either as a mere, undif- ferentiated mass or as a multitude dissolved into its atoms. He wants no separation of civil and political life.
+
+2) He forgets that what is in question is a relationship of reflection, and makes the civil estates as such political estates, but again only in terms of legislative power, so that their activity is itself proof of the separation.
+
+He makes the estates element the expression of the separation; but at the same time it is supposed to be the representative of an identity which is not there. Hegel is aware of the separation of civil society and the political state, but he wants the unity of the state to be expressed within the state, and this to be accomplished, in fact, by the estates of civil society, in their character as such estates, also forming the estates element of legislative society. (Cf. XIV.*)»
+
+304. "The political-estates element contains at the same time in its own determination the distinctions of estates already present in the earlier spheres. Its initially abstract position, that of the extreme of empirical generality over against the royal or monarchical principle in general, a position which implies only the possibility of harmony and therefore likewise the possibility of hostile confrontation, this abstract position becomes a rational relation (a syllogism, cf. Remark to para. 302) only if its mediation is actually effected. Just as from the monarchical authority the executive already has this attribute (para. 300), so likewise one aspect of the estates must be adapted to the function of existing essentially as the middle element."
+
+[^1]: 305. "One estate of civil society contains the principle which is of itself capable of being established in this political role—namely, the estate whose ethical life is natural, and whose basis is family life and, so far as its livelihood is concerned, landed property. Its specific feature, accordingly, is a will based on itself; it shares this and the natural attribute, which the monarchical element contains, with the latter."
+
+[^2]: 306. "This estate is more particularly fitted for political position and signifi- cance in that its wealth is equally independent of the wealth of the state and of the uncertainty of business, the quest for profit, and any sort of fluctuation in possessions, independent both of the favour of the executive, and of the favour of the crowd. It is e_ven safeguarded against its own caprice by the fact that the members of this estate who are called to fill this role lack the right of other citizens either to dispose freely of their entire property, or to know that it will pass to their children in accordance with the equality of their love for them. Their wealth thus becomes an inalienable heritage, burdened with primogeniture."
+
+[^3]: Addition: "This estate is more independent in its volition. Speaking generally, the landowning estate is divided into an educated section of landowners and the
+
+[^4]: a The asterisk apparently refers not to p. XIV of the manuscript but to p. XXIV since the same sign is repeated there by Marx (see this volume, p. 75).—Ed.
+
+
+
+
+
+**[p. 75]**
+
+307. "Thus the rights of this section of the propertied estate are on the one hand no doubt founded on the natural principle of the family, but this principle is at the same time distorted by hard sacrifice for a political purpose; consequently this estate-is essentially assigned to activity for this purpose, and is therefore also summoned and entitled to this activity by birth, without the fortuitousness of elections. Thus it occupies a stable, essential position between the subjective caprice or contingency of the two poles, and just as it [] carries in itself a likeness of the element of the monarchical authority, so it shares with the other pole needs and rights which are in other respects similar and becomes the pillar both of the throne and of society."
+
+Hegel has achieved the feat of deriving the born peers, the hereditary landed property, etc., etc.— this "pillar both of the throne and of society"—from the absolute idea.
+
+* a It shows Hegel's profundity that he feels the separation of civil from political society as a contradiction. He is wrong, however, to be content with the appearance of this resolution and to pretend it is the substance, whereas the "so-called theories" he despises demand the "separation" of the civil from the political estates—and rightly so, for they voice a consequence of modern society, since there the political-estates element is precisely nothing but the factual expression of the actual relationship of state and civil society, namely, their separation.
+
+Hegel does not call the matter here in question by its well- known name. It is the disputed question of a representative versus estates constitution. The representative constitution is a great advance, since it is the frank, undistorted, consistent expression of the modern condition of the state. It is an unconcealed contradiction.
+
+Before we deal with the substance of the matter let us glance once more at Hegel's presentation.
+
+[^1]: "In the estates element of the legislature the civil estate acquires political significance." [Para. 303.]
+
+[^2]: a See footnote on p. 74.—Ed.
+
+[^3]: 4'
+
+
+
+
+
+**[p. 76]**
+
+Earlier (Remark to para. 301) he said:
+
+"The distinctive feature of the estates is to be sought, therefore, in the fact that in them the specific insight and the specific will characteristic of that sphere which in this presentation has been called civil society—comes into existence relative to the state."
+
+Summarising this definition, we get: "Civil society is the civil estate", or the civil estate is the direct, essential, concrete estate of civil society. It [civil society] acquires "political significance and effectiveness" only in the estates element of the legislature. This is something new, which is added to it, a particular function, for its very nature as civil estate expresses its contrast to political signifi- cance and effectiveness, the forfeiture of its political character, expresses the fact that civil society in and for itself is without political significance or effectiveness. The civil estate is the estate of civil society, or civil society is the civil estate. Hence Hegel also consistently excludes the "general estate" from the "estates ele- ment of the legislature".
+
+"The general estate, or more precisely the estate which devotes itself to government service, is directly defined as having the general as the purpose of its essential activity." [Para. 303.]
+
+Civil society or the civil estate is not so defined. Its essential activity is not defined as having the general as its purpose; or, its essential activity is not a characteristic of the general—does not have a general character. The civil estate is the estate of civil society against the state. The estate of civil society is not a political estate.
+
+In describing civil society as civil estate, Hegel has declared the distinctions of estate in civil society to be non-political distinctions, and civil and political life to be heterogeneous, even opposites. How does he go on?
+
+Civil society (the civil estate) can indeed not appear as a "mere undifferentiated mass" in its activity as legislative estate because the "mere undifferentiated mass" exists only as a "notion", only in the imagination, but not in actuality. Here there are only accidental masses of various sizes (cities, market towns, etc.). These masses or this mass not only appears but is everywhere "a multitude resolved into its atoms" in reality, and as thus atomised it must appear and proceed in its activity as political estate. The civil estate, civil society,
+
+[^1]: "Now this civil estate can appear in this sphere neither as a mere undifferentiated mass nor as a multitude resolved into its atoms, but as that which it already is, namely, differentiated into the estate based on the substantial relationship and the estate based on specific needs and the labour satisfying them (para. 201 ff.). Only thus is the really particular in the state truly linked in this respect with the general." [Para. 303.]
+
+
+
+
+
+**[p. 77]**
+
+The general law here appears in the individual. Civil society and state are separated. Hence the citizen of the state is also separated from the citizen as the member of civil society. He must therefore effect a fundamental division with himself. As an actual citizen he finds himself in a twofold organisation: the bureaucratic organisa- tion, which is an external, formal feature of the distant state, the executive, which does not touch him or his independent reality, and the social organisation, the organisation of civil society. But in the latter he stands as a private person outside the state; this social organisation does not touch the political state as such. The former is a state organisation for which he always provides the material. The second is a civil organisation the material of which is not the state. In the former the state stands as formal antithesis to him, in the second he stands as material antithesis to the state. Hence, in order to behave as an actual citizen of the state, and to attain political significance and effectiveness, he must step out of his civil reality, disregard it, and withdraw from this whole organisation into his individuality; for the sole existence which he finds for his citizenship of the state is his sheer, blank individuality, since the existence of the state as executive is complete without him, and his existence in civil society is complete without the state. He can be a citizen of the state only in contradiction to these sole available communities, only as an individual. His existence as a citizen of the state is an existence outside his communal existences and is therefore purely individual. For the "legislative power" as "power" is only the organisation, the common body, which it is to receive. Civil society, the civil estate, does not exist as state organisation prior to the "legislative authority", and in order to come into existence as such the real organisation of the civil estate, its real civil life, must be posited as non-existent, for the estates element of the legislature has precisely the quality of positing the civil estate, civil society, as non-existent. The separation of civil society and political state necessarily appears as a separation of the political citizen, the citizen of the state, from civil society, from his own, actual,
+
+
+
+**[p. 78]**
+
+If Hegel poses civil society as a whole, as the civil estate, in opposition to the political state, it stands to reason that the differences within the civil estate, the various civil estates, can in reference to the state have only a private significance, not a political significance. For the various civil estates are merely the realisation, the existence, of the principle, of the civil estate as the principle of civil society. But when the principle has to be given up, it stands to reason that the divisions within this principle exist all the less for the political state.
+
+"Only thus," Hegel concludes the paragraph [303], "is the really particular in the state truly linked in this respect with the general."
+
+But Hegel here confuses the state as the whole of the existence of a people with the political state. This particular is not the "particular in" but rather "outside the state", namely, the political state. Not only is it not "the really particular in the state", it is rather the "unreality of the state". Hegel seeks to demonstrate that the estates of civil society are the political estates, and to prove that, he assumes that the estates of civil society are the "particularisation of the political state", i.e., that civil society is political society. The expression "the particular in the state" can have here only the meaning "particularisation of the state". Bad conscience prompts Hegel to choose the vague expression. He himself has not only demonstrated the opposite, he again confirms this himself in the same paragraph when he describes civil society as the "civil estate". The statement that the particular "is linked" with the general is also very cautious. One can link the most heterogeneous things. It is here, however, not a question of a gradual transition but of a transubstantiation and it is useless to refuse to see the chasm to be jumped over, which the jump itself demonstrates.
+
+Hegel says in the Remark [to para. 303]: "This runs counter to another current notion", etc. We have just shown how consistent, how necessary, this current notion is, that it is a "necessary notion at the present stage of development of the
+
+
+
+**[p. 79]**
+
+natioh", and that Hegel's notion, although also quite current in certain circles, is nevertheless an untruth. Returning to the current notion, Hegel says:
+
+"This atomistic, abstract view disappears already within the family", etc., etc. "The state, however, is", etc. This view is indeed abstract, but it is the "abstraction" of the political state as Hegel himself expounds it. It is also atomistic, but it is the atomism of society itself. A "view" cannot be concrete when its subject-matter is abstract. The atomism into which civil society plunges in its political act follows necessarily from the fact that the community, the communal being in which the individual exists, is civil society separated from the state, or that the political state is an abstraction from it.
+
+This atomistic view, although [it] disappears already in the family, and perhaps (??) in civil society as well, returns in the political state precisely because it is an abstraction from the family and from civil society. The reverse is also true. By expressing the strangeness of this phenomenon Hegel has not eliminated the estrangement.
+
+"The notion," we read further, "which resolves the communities already existing in these groupings again into a multitude of individuals at the point where they enter the political realm, i.e., where they take up the standpoint of the highest concrete generality, thereby keeps civil and political life separate and suspends the latter, so to speak, in the air, since its basis would only be the abstract individuality of caprice and opinion, and thus the accidental, and not an absolutely solid and legitimate foundation." [Remark to para. 303.]
+
+That notion does not keep civil and political life separate; it is merely the notion of a really existing separation.
+
+That notion does not suspend political life in the air; it is rather that political life is life in the airy regions—the ethereal regions of civil society.
+
+Now let us consider the estates system and the representative system.
+
+It is an historical advance which has transformed the political estates into social estates, so that, just as the Christians are equal in heaven, but unequal on earth, so the individual members of the nation are equal in the heaven of their political world, but unequal in the earthly existence of society. The real transformation of the political estates into civil estates took place in the absolute monarchy. The bureaucracy maintained the notion of unity against the various states within the state. Nevertheless, the social difference of the estates, even alongside the bureaucracy of the absolute executive power, remained a political difference, political within and alongside the bureaucracy of the absolute executive power.
+
+
+
+**[p. 80]**
+
+The estates of civil society likewise were transformed in the process: civil society was changed by its separation from political society. Estate in the medieval sense continued only within the bureaucracy itself, where civil and political position are directly identical. As against this stands civil society as civil estate. Differ- ence of estate here is no longer a difference of needs and of work as independent bodies. The only general, superficial and formal difference still remaining here is that of town and country. Within society itself, however, the difference was developed in mobile and not fixed circles, of which free choice is the principle. Money and education are the main criteria. However, this has to be demon- strated not here but in the critique of Hegel's presentation of civil society. Enough. The estate of civil society has for its principle neither need, that is, a natural element, nor politics. It consists of separate masses which form fleetingly and whose very formation is fortuitous and does not amount to an organisation.
+
+Only one thing is characteristic, namely, that lack of property and the estate of direct labour, of concrete labour, form not so much an estate of civil society as the ground upon which its circles rest and move. The estate proper, in which political and civil position coincide, is confined to the members of the executive authority. The present-day estate of society already shows its difference from the earlier estate of civil society in that it does not hold the individual as it formerly did as something communal, as a community, but that it is partly accident, partly the work and so on of the individual which does, or does not, keep him in his estate, an estate which is itself only an external quality of the individual, being neither inherent in his labour nor standing to him in fixed relationships as an objective community organised according to rigid laws. It stands, rather, in no sort of real relation to his material actions, to his real standing". The physician does not form a special estate within civil society. One merchant belongs to a different estate from another, to a different social position. For just as civil society is separated from political society, so civil society has within itself become divided into estate and social position, however many relations may occur between them. The principle of the civil
+
+[^1]: a The German word Stand—in this passage mostly rendered as "estate"—can also mean position, situation, rank, profession, standing, etc.—Ed.
+
+
+
+
+
+**[p. 81]**
+
+The estates constitution, where it is not a tradition of the Middle Ages, is the attempt to some extent in the political sphere itself to thrust the human being back into the narrowness of his individual sphere, to turn his particularity into his material consciousness, and because in the political sphere the differences of estate exist, to turn them again into social differences.
+
+The real human being is the private individual of the present-day state constitution.
+
+In general, the estate has the significance that difference and separation constitute the very existence of_ the individual. His way of life, activity, etc., instead of turning hiirrtnto a member, a function of society, make of him an exception to society, are his privilege. That this difference is not merely individual but is established as a community, estate or corporation, not only does not cancel its exclusive nature but is rather an expression of it. Instead of the individual function being a function of society, it turns, on the contrary, the individual function into a society for itself.
+
+Not only is the estate based on the separation of society as the prevailing law; it separates the human being from his general essence, it turns him into an animal that is directly identical with its function. The Middle Ages are the animal history of human society, its zoology.
+
+The modern era, civilisation, makes the opposite mistake. It separates the objective essence of the human being from him as merely something external, material. It does not accept the content of the human being as his true reality.
+
+We pass on to
+
+[^1]: This will be further considered in the section on "civil society".9
+
+[^2]: 304. "The political-estates element contains at the same time in its own significance3 the distinctions of estates already present in the earlier spheres."
+
+[^3]: a In Hegel: Bestimmung, i.e., "determination", not Bedeutung, "signifi- cance". But on pp. 74 and 96, where Marx quotes the same passage, it is given as in Hegel.—Ed.
+
+
+
+
+
+**[p. 82]**
+
+When the structure of civil society was still political and the political state was civil society, this separation, this doubling of the significance of the estates, was not present. They did not signify one thing in civil society and something else in the political world. They acquired no significance in the political world but signified themselves. The dualism of civil society and the political state, which the estates constitution seeks to resolve by a harking-back, appears in that constitution itself in such a way that the difference of estate (the differentiation within civil society) acquires a different significance in the political and the civil sphere. Here we are seemingly confronted by something identical, the same subject, but with essentially different attributes; hence it is really a twofold subject; and this illusory identity is artificially preserved by that reflection which at one time ascribes a character to the civil estate distinctions as such which is yet to accrue to them from the political sphere, and conversely, at another time ascribes to the distinctions of estate in the political sphere a character which does not arise from the political sphere but from the subject of the civil sphere. (This identity is illusory if only for the reason that although the human being, the real subject, does remain himself, whatever forms his essence takes, and does not lose his identity, here however the human being is not the subject but is identified with a predicate, the estate; and at the same time it is maintained that both in this particular determination and in some other determination, the human being, as this particular, exclusively limited entity, is something other than this limited entity.) In order to represent the one limited subject, the particular estate (the distinctions of estate) as the essential subject of both predicates, or in order to prove the identity of both predicates, they are both mystified and presented in an illusory, vague, twofold form.
+
+The same subject is here taken in different significances, the significance however is not that determined by the subject itself, but an allegorical, substituted definition is given. The same signifi-
+
+
+
+**[p. 83]**
+
+One can best rid oneself of this illusion by taking the signifi- cance as what it is, namely, as the essential quality, by making it as such the subject, and then considering whether the subject allegedly belonging to it is its real predicate, whether it represents its essence and true realisation.
+
+"Its initially abstract position" (that of the political-estates element), "that of the extreme of empirical generality over against the royal or monarchical principle in general, a position which implies only the possibility of harmony and therefore likewise the possibility of hostile confrontation, this abstract position becomes a rational relation (a syllogism, cf. Remark to para. 302) only if its mediation is actually effected."
+
+We have already seen that the estates together with the executive authority form the middle term between the monarchi- cal principle and the people, between the will of the state as one empirical will and as many empirical wills, between empirical singularity and empirical generality. Since Hegel defined the will of civil society as empirical generality, he had to define the will of the monarch as empirical singularity, but he does not express the antithesis in all its sharpness.
+
+Hegel continues:
+
+The true opposites, however, are the monarch and civil society. And we have already seen that the estates element has with regard to the people the same significance which the executive has with
+
+[^1]: "Just as from the monarchical authority the executive already has this attribute (para. 300), so likewise one aspect of the estates must be adapted to the function of existing essentially as the middle element."
+
+[^2]: a Pre-eminently.—Ed.
+
+
+
+
+
+**[p. 84]**
+
+
+
+[^1]: a Pre-eminently.—Ed.
+
+
+
+
+
+**[p. 85]**
+
+First, it now appears that here neither the "extreme of empirical generality", nor the "royal or monarchical principle", the extreme of empirical singularity, confront each other. For the estates are delegated by civil society, as the executive is delegated by the monarch. As in the delegated executive authority the monarchical principle ceases to be the extreme of empirical singularity, and in it, really, gives up the "unfounded" will and condescends to the "finiteness" of knowledge and accountability and thinking, so in the estates element civil society no longer appears as empirical generality, but rather as a very definite whole which has the same "sense and a way of thinking appropriate to the state and government, as well as to the interests of particular groups and individuals" (para. 302). In its miniature edition, the estate edition, civil society has ceased to be "empirical generality". It is rather reduced to a committee, to a very limited number, and if in the executive the monarch has given himself empirical generality, then civil society has given itself in the estates empirical singularity or particularity. Both have become particularities.
+
+The only opposition which is still possible here seems to be that between the two representatives of the two wills of the state, between the two emanations, between the executive element and the estates element of the legislature; and it therefore seems to be an opposition within the legislature itself. The "joint" mediation seems also well suited to get them into each other's hair. In the executive element of the legislature the empirical, inaccessible singularity of the monarch becomes earthly in a number of restricted, tangible, accountable personalities, and in the estates element civil society has become heavenly in a number of political men. Both sides have lost their impalpable quality, the monarchical authority [has lost] the inaccessible, purely empirical unit; civil society, the inaccessible, vague empirical all; the one [has lost] its inflexibility, the other its fluidity. Thus only in the estates element on the one hand and in the executive element of the legislature on the other, which together were supposed to mediate between civil society and the
+
+
+
+**[p. 86]**
+
+This "mediation", therefore, has indeed a very great need, as Hegel rightly shows, for "its mediation to be actually effected". It is itself rather the existence of contradiction than of mediation.
+
+Hegel seems to have no good reason for asserting that this mediation is effected by the estates element. He says:
+
+"Just as from the monarchical authority the executive already has this attribute (para. 300), so likewise one aspect of the estates must be adapted to the function of existing essentially as the middle element." [Para. 304.]
+
+But we have already seen that Hegel here arbitrarily and inconsistently places monarch and estates in polar opposition. As the executive has this attribute from the monarch, so the estates element has this attribute from civil society. The estates not only stand jointly with the executive between the monarch and civil society; they also stand between the executive in general and the people (para. 302). They do more with regard to civil society than the executive does with regard to monarchical authority, since the latter itself stands in opposition to the people. It has therefore filled the measure of mediation. Why pack still more on the backs of these asses? Why must the estates element everywhere serve as the asses' bridge, even between itself and its opponent? Why is it everywhere so self-sacrificing? Is it expected to hack off one of its hands so as to be unable to hold off with both of them its opponent, the executive element of the legislature?
+
+In addition, Hegel first made the estates arise from the corporations, the distinctions of estate, etc, so that they should not De "mere empirical generality", and now, in reverse, he turns them into "mere empirical generality" in order to make distinctions of estate arise from them! As the monarch mediates himself with civil society through the executive power as its Christ, so society mediates itself with the monarch through the estates as its priests.
+
+It now appears rather to have to be the role of the extremes, the monarchical authority (empirical singularity) and civil society (empirical generality), to come as mediators between "their mediators" the more so as it is "one of the most important insights of logic that a certain element which occupies the position of an extreme when standing within an antithesis, is at the same time a middle term, and thus ceases to be an extreme and is an organic element". (Remark to para. 302.) Civil society seems not to be able to take on this role since in the "legislature" it has no seat as itself, as an extreme. The monarchical principle, the other extreme,
+
+
+
+**[p. 87]**
+
+In the legislature, the monarch had therefore to constitute the middle term between the executive and the estates element; but the executive is the middle term between him and the estates element, and the estates element is the middle term between him and civil society. How is he to mediate between what he needs for his middle term in order not to be a one-sided extreme? Here all the absurdity of these extremes which in turn play the role now of the extreme, now of the middle term, becomes obvious. They are Janus-faced, show themselves now from the front, now from the back and have different characters front and back. That which originally was defined as the middle term between two extremes now appears itself as an extreme, and one of the two extremes which through it was mediated with the other, now appears again as the middle term (because it is regarded in its distinction from the other extreme) between its extreme and its middle term. It is a mutual complimentation. As if a man were to step between two fighting men and then again one of the fighting men were to step between the mediator and the fighting man. It is the story of the man and his wife who fought, and the doctor who wanted to step between them as mediator, when in turn the wife had to mediate between the doctor and her husband, and the husband between his wife and the doctor. It is like the lion in A Midsummer Night's Dream, who shouts: "I am lion and I am not lion, I am Snug the
+
+
+
+**[p. 88]**
+
+joiner." So here every extreme is now the lion of opposition, now Snug the mediator. When one of the extremes calls "I am the middle term now!" the other two must not touch it, but only hit in the direction of the other which is now the extreme. One can see, it is a society which at heart is spoiling for a fight, but is too afraid of bruises to engage in a real fight, and the two who want to fight arrange things so that the third, who steps in between, is to get the hiding; but now one of the other two acts again as the third, and so from being so cautious they don't come to any decision. This system of mediation also comes about so that the same man who wants to beat up his opponent must protect him on all sides from the thrashing of other opponents, and so in this double occupation never comes to carry out his business. It is strange that Hegel, who reduces the absurdity of mediation to its abstract, logical, and therefore unadulterated, unique expression, describes it at the same time as the speculative mystery of logic, as the rational relationship, as the syllogism of reason. Real extremes cannot be mediated precisely because they are real extremes. Nor do they require mediation, for they are opposed in essence. They have nothing in common, they do not need each other, they do not supplement each other. The one does not have in its own bosom the longing for, the need for, the anticipation of the other. (But when Hegel treats generality and singularity, the abstract elements of the syllogism, as actual opposites, this precisely is the basic dualism of his logic. The further development of this point belongs to the criticism of Hegelian logic.)
+
+To this the saying "Les extrêmes se touchent" seems to be opposed. North pole and south pole attract each other, female and male sexes also attract each other, and man is born only through the unifying of their polar differences.
+
+On the other hand: every extreme is its other extreme. Abstract spiritualism is abstract materialism; abstract materialism is the abstract spiritualism of matter.
+
+Concerning the first: north pole and south pole are both pole; their essence is identical; similarly, female and male sex are both one species, one essence, human essence. North and south are opposed aspects of one essence—the differentiation of one essence at the height of its development. They are differentiated essence. They are what they are only as a distinct attribute, and as this distinct attribute of the essence. True actual extremes would be pole and non-pole, human and non-human species. The difference in one case [i.e., between north and south poles, women and men] is a difference of existence; in the other [between pole and non-pole,
+
+
+
+**[p. 89]**
+
+human and non-human] a difference of essences—between two essences. Concerning the second: the chief feature here is that a concept (a form of existence, etc.) is taken abstractly, is considered to have significance not as something independent but as an abstrac- tion of something else and only as this abstraction; thus spirit, for example, is regarded as merely the abstraction of matter. Then it is self-evident that precisely because this form is to constitute its content, this concept is rather the abstract contrary, the object, from which it is abstracted, in its abstraction, which constitutes the real essence, in this case abstract materialism. If the difference within the existence of one essence had not been confused on the one hand with the hypostatised abstraction (not, of course, an abstraction from something else, but really from itself), and on the other with the actual opposition of mutually exclusive essences, a threefold error would have been prevented: (1) that, since only the extreme is said to be true, every abstraction and one-sidedness thinks itself true, whereby a principle appears only as an abstraction of something else, instead of as a totality in itself; (2) that the sharply-marked character of actual opposites, their development into extremes, which is nothing else but their self-cognition and also their eagerness to bring the fight to a decision, is thought of as something possibly to be prevented or something harmful; (3) that their mediation is attempted. For however much both extremes come on to the scene in their existence as actual and as extremes, it lies only in the essence of one of them to be an extreme, while for the other this has not the significance of true actuality. The one overreaches the other. They do not occupy the same position: Christianity, for example, or religion in general, and philosophy are extremes. But in truth religion does not form a true opposite to philosophy. For philosophy comprehends religion in its illusory actuality. For philosophy, religion is therefore dissolved into itself, insofar as it wants to be something actual. There is no actual dualism of essence. More of this later."
+
+It may be asked, how does Hegel arrive at all at the need for a new mediation by the estates element? Or does Hegel share with [others]b "the frequently-held, but most dangerous prejudice which regards the estates primarily from the point of view of opposition to the government, as if this were their essential attitude"? (Remark to para. 302.)
+
+The position is simply this: On the one hand we have seen that
+
+[^1]: a See this volume, p. 92 et seq.—Ed.
+
+[^2]: A word is missing: presumably anderen.—Ed.
+
+
+
+
+
+**[p. 90]**
+
+On the other hand: The legislature is a totality. We find there the delegation of the monarchical principle, the "executive power"; (2) the delegation of civil society, the "estates" element; but in addition it also contains (3) the one extreme as such, the monarchical principle, while the other extreme, civil society, is not there as such. It is only thereby that the "estates" element becomes the extreme confronting the "monarchical" principle which really civil society should be. As we have seen, civil society becomes organised as political existence only as the "estates" element. The "estates" element is its political existence, its tran- substantiation into the political state. Only the "legislature" is therefore, as we have seen, the political state proper in its totality. Here there are, therefore, (1) the monarchical principle; (2) the executive; (3) civil society. The "estates" element is "the civil society of the political state", of the "legislature". The opposite pole to the monarch, which should be formed by civil society, is therefore formed by the "estates" element. (Since civil society is the unreality of political existence, the political existence of civil society is its own dissolution, its separation from itself.) For the same reason it [the estates element] also forms an opposite to the executive.
+
+Hegel therefore also describes the "estates" element again as the "extreme of empirical generality", which really is civil society itself. (Hegel therefore made the political-estates element arise from the corporations and the distinct estates to no good purpose. This would only be meaningful if the distinct estates as such were legislative estates, hence if the distinctions of civil society, the civil character, were in reality the political character. Then we would have not a legislative power of the whole state, but the legislative power of the different estates and corporations and classes over the state as a whole. The estates of civil society would not acquire a political determination, but on the contrary they would determine the political state. They would make their particularity the deter- mining power of the whole. They would be the power of the particular over the general. We would have not one legisla- tive power but several legislative powers which would negotiate with each other and with the executive. But Hegel has in mind the modern significance of the estates element as being the actualisa- tion of state citizenship, of the citizen. He wants the "intrinsically and explicitly general", the political state, not to be determined by civil society, but, on the contrary, to determine the latter. Hence
+
+
+
+**[p. 91]**
+
+Vulgar criticism falls into an opposite, dogmatic error. Thus it criticises the constitution, for example. It draws attention to the antagonism of the powers, etc. It finds contradictions everywhere. This is still dogmatic criticism which fights with its subject-matter in the same way in which formerly the dogma of the Holy Trinity, say, was demolished by the contradiction of one and three. True criticism, by contrast, shows the inner genesis of the Holy Trinity in the human brain. It describes the act of its birth. So the truly philosophical criticism of the present state constitution not only shows up contradictions as existing; it explains them, it com- prehends their genesis, their necessity. It considers them in their specific significance. But comprehending does not consist, as Hegel imagines, in recognising the features of the logical concept everywhere, but in grasping the specific logic of the specific subject.)
+
+Hegel expresses this in such a way that the attitude of the political-estates element to the monarchical element "implies only
+
+[^1]: a In the manuscript: gesetzt, which means either posited or sedate, staid.—Ed.
+
+
+
+
+
+**[p. 92]**
+
+The possibility of confrontation is implied wherever different wills meet together. Hegel himself says that the "possibility of harmony" is the "possibility of confrontation". Hence he must now form an element which is the "impossibility of confrontation" and the "actuality of harmony". For him such an element would be the freedom of deciding and of thinking vis-à-vis the monarchical will and the executive. It would therefore no longer be part of the "estates-political" element. It would rather be an element of the monarchical will and the executive and would stand in the same opposition to the actual estates element as the executive itself.
+
+This requirement is already much toned down in the conclusion of the paragraph:
+
+"Just as from the monarchical authority the executive already has this attribute (para. 300), so likewise one aspect of the estates must be adapted to the function of existing essentially as the middle element." The element which is delegated by the estates must have the reverse attribute to that which the executive has from the monarchs, since monarchical and estates elements are opposed extremes. As the monarch is democratised in the executive, so this "estates" element must be monarchised in its delegation. Hence what Hegel wants is a monarchical element from the estates. As the executive has an estates element with regard to the monarch, so there has to be a monarchical element with regard to the estates.
+
+The "actuality of harmony" and the "impossibility of confronta- tion" is transformed into the following demand: "one aspect of the estates must be adapted to the function of existing essentially as the middle element". Adapted to the function] According to para. 302 the estates have this function anyway. Here it should no longer be "function" but "character".
+
+And what kind of function is that anyway, "to exist essentially as the middle element"? Of being in "essence" "Buridan's ass".
+
+The matter is simply this: The estates are supposed to be "mediation" between monarch and executive on the one hand and the nation on the other, but they are not that, they are rather the organised political opposite of civil society. The "legislature" requires mediation within itself, namely, as has been shown, a mediation on the part of the estates. The presupposed moral harmony of the two wills, of which one is the will of the state as the monarchical will and the other the will of the state as the will of civil society, is not sufficient. Indeed, only the legislature is the organised, total political state, but
+
+
+
+**[p. 93]**
+
+precisely because the legislature is the highest development of the state, it is there that the unconcealed contradiction of the political state with itself becomes evident. Hence the appearance of an actual identity between the monarchical will and the will of the estates must be established. The estates element must be posed as the monarchical will, or the monarchical will as the estates element. The estates element must set itself up as the reality of a will which is not the will of the estates element. The unity which is not present in essence (otherwise it would have to prove itself by its efficacy and not by the mode of being of the estates element), must be present at least as an existent; or else an existence of the legislature (of the estates element) has the attribute of being this unity of the non-united. This component of the estates element, the House of Peers or Upper House, etc., is the highest synthesis of the political state within the organisation here considered. What Hegel wants, the "actuality of harmony", and the "impossibility of hostile confrontation", has indeed not been achieved thereby; we are rather left with the "possibility of harmony". But that is the postulated illusion of the unity of the political state with itself (of the unity of the will of the monarch with the will of the estates, and further the principle of the political state and civil society), of this unity as a material principle; that is to say, it is the illusion that not only two opposed principles are united but that their unity is [their] nature, the basis of [their] existence. This component of the estates element is the romanticism of the political state, the dreams of its substantiality or of its harmony with itself. It is an allegorical entity. It now depends on the actual status quo of the relations between the estates element and the monarchical element whether this illusion is an effective illusion or conscious self-deception. So long as estates and monarchical power are in actual harmony, get on with each other, the illusion of their essential unity is an actual, hence effective, illusion. In the opposite case, where it ought to demon- strate its truth in practice, it becomes deliberate untruth and ridiculous
+
+We have already shown Hegel's inconsistency (1) in com- prehending the political-estates element in its modern abstraction from civil society, etc., after having made it originate in the
+
+[^1]: 305. "One estate of civil society contains the principle which is of itself capable of being established in this political role—namely, the estate whose ethical life is natural, and whose basis is family life and, so far as its livelihood is concerned, landed property. Its specific feature, accordingly, is a will based on itself; it shares this and the natural attribute, which the monarchical element contains, with the latter."
+
+
+
+
+
+**[p. 94]**
+
+corporations; (2) in now again defining it in accordance with the differentiation of estates in civil society, after he has defined the political estates as such as the "extreme of empirical generality".
+
+It would be consistent now to regard the political estates of themselves as a new element and from them now to construe the mediation stipulated in para. 304.
+
+But now we see Hegel again dragging in the differentiation of civil estates and at the same time creating the appearance that the reality and the particular essence of the differentiation of civil estates do not determine the highest political sphere, the legislative power, but on the contrary, that they are reduced to a mere material which the political sphere moulds and shapes according to its own needs which arise from itself.
+
+"One estate of civil society contains the principle which is of itself capable of being established in this political role—namely, the estate whose ethical life is natural." (The peasantry.)
+
+Now in what does this capability in principle, or this capability of the principle of the peasantry consist?
+
+It has as its "basis family life and, so far as its livelihood is concerned, landed property. Its specific feature, accordingly, is a will based on itself; it shares this and the natural attribute, which the monarchical element contains, with the latter."
+
+The "will based on itself" refers to its livelihood, the "landed property"; the "natural attribute" shared with the monarchical element refers to "family life", regarded as the basis.
+
+The livelihood based on "landed property" and a "will based on itself" are two different things. One should rather speak of a "will based on land". But one should rather speak not of a will based on itself, but of a will based on the whole, on a "political way of thinking".
+
+The place of the "way of thinking", of the "possession of political spirit" is taken by the "possession of land".
+
+Where, further, "family life" as a basis is concerned, the "social" ethical life of civil society would seem to stand above this "natural ethical life". Moreover, "family life" is the "natural ethical life" of the other estates, or of the middle-class estate of civil society as much as of the peasantry. But the fact that with the peasantry "family life" is not only the principle of the family but the basis of its social existence altogether, would seem rather to make it unfit for the highest political task, inasmuch as it will apply patriarchal laws to a non-patriarchal sphere and indicate child or lather, master and man, where it is a question of the political state, of citizenship.
+
+As for the natural attribute of the monarchical element, Hegel has deduced not a patriarchal, but a modern constitutional king. His
+
+
+
+**[p. 95]**
+
+If the differentiation of estates as such, which Hegel accepted, had been regarded by him as a political distinction, the peasantry as such would already have been an independent section of the estates element, and if as such it is an element of mediation with the monarchical element, what need is there for the construction of a new mediation? And why separate it from the estates element proper, since the latter gets into the "abstract" relation to the monarchical element only because of this separation from it? But after Hegel has just expounded the political-estates element as a particular element, as a transsubstantiation of the civil estate into state citizenship and has found that for just this reason it needs mediation, how can he now dissolve this organism again into the distinctions of the civil estate, that is, into the civil estate, and from that derive the mediation of the political state with itself?
+
+What an anomaly altogether, that the highest synthesis of the political state should be nothing but the synthesis of landed property and family life!
+
+In one word: As soon as the civil estates as such become political estates that mediation is not required, and as soon as that mediation is required the civil estate is not political, and so is not that mediation either. The peasant is then a part of the political-estates element not as peasant but as citizen, while in the reverse case ([when he is] a citizen as a peasant, or when he is a peasant as a citizen) his citizenship is his being a peasant, he is not a citizen as a peasant but a peasant as a citizen!
+
+This is here therefore an inconsistency of Hegel within his own way of looking at things, and such an inconsistency is accommoda- tion. In the modern sense, in the sense expounded by Hegel, the political-estates element is the separation of civil society from its civil estate and its distinctions, assumed as accomplished. How can Hegel turn the civil estate into a solution of the antinomies of the legislature within itself? Hegel wants the medieval-estates system, but in the modern sense of the legislature, and he wants the modern legislature, but in the body of the medieval-estates system! This is the worst kind of syncretism.
+
+At the beginning of para. 304 he says:
+
+
+
+**[p. 96]**
+
+"The political-estates element contains at the same time in its own determina- tion the distinctions of estates already present in the earlier spheres."
+
+But in its own definition the political-estates element contains these distinctions only by cancelling them, annulling them within itself, abstracting from them.
+
+If the peasant estate, or, as we shall see later on, the peasant estate raised to a higher power, the landed aristocracy, is as such turned, in the manner described above, into the mediation of the total political state, of the legislative power in itself, then that is indeed the mediation of the political-estates element with the monarchical power in the sense that it is the dissolution of the political-estates element as an actual political element. Not the peasant estate, but the estate, the civil estate, the analysis (reduction) of the political-estates element to the civil estate is here the restored unity of the political state with itself. (Not the peasantry as such is here the mediation but its separation from the political-estates element in its quality as civil estate: the fact is that its civil estate gives it a particular position in the political-estates element, and therefore the other section of the political-estates element likewise acquires the position of a particular civil estate, and thus ceases to represent the state citizenship of civil society.) Here the political state is now no longer present as two opposed wills, but on the one hand there is the political state (executive and monarch) and on the other civil society as distinct from the political state. (The different estates.) With that the political state is, of course, annulled as a totality.
+
+The next sense of the duplication of the political-estates element in itself as a mediation with the monarchical authority is, generally speaking, that the inner division of this element, its own opposition within itself, is its restored unity with the monarchical authority. The basic dualism between the monarchical and the estates ele- ments of the legislative power is neutralised by the dualism of the estates element in itself. With Hegel, however, this neutralisation is effected by the political-estates element separating itself from its political element.
+
+As regards landed property as livelihood, which is supposed to correspond to the sovereignty of the will, the sovereignty of the monarch, and family life as the basis of the peasantry, which is supposed to correspond to the natural attribute of monarchical authority, we shall return to this later.3 Here in para. 305 the "principle" of the peasantry is expounded "which is of itself capable of being established in this political role".
+
+[^1]: a See this volume, pp. 98-104.—Ed.
+
+
+
+
+
+**[p. 97]**
+
+In para. 306 this "establishing" of "political position and significance" is effected. It comes down to this: "wealth" "becomes an inalienable heritage, burdened with primogeniture". It is thus "primogeniture" which is supposed to establish the peasantry politically.
+
+"The justification for primogeniture," says the Addition, "is that the state must be able to count on a certain way of thinking not as a mere possibility, but as something necessary. Now this way of thinking is not, of course, tied to wealth, but the relatively necessary connection is that a man of independent means is not restricted by external circumstances and can thus come forward and act for the state without hindrance."
+
+First proposition. The state is not content with "a certain way of thinking as a mere possibility", it must count on it as something "necessary".
+
+Second proposition. "The way of thinking is not tied to wealth", i. e., the mentality of wealth is a "mere possibility".
+
+Third proposition. But there is a "relatively necessary connection", namely, "that a man of independent means, etc., can act for the state", i.e., wealth provides the "possibility" of a political way of thinking, but it is just the "possibility" which does not suffice according to the first proposition.
+
+Moreover, Hegel has not shown that landed property is the only sort of "independent means".
+
+The establishment of its capacity" for independence is what fits the peasantry "for political position and significance". Or, "the inde- pendence of wealth" is its "political position and significance".
+
+This independence is further expounded as follows:
+
+Its "wealth"* is "independent of the wealth of the state". The wealth of the state here evidently means the government exchequer. In this respect "the general estate" stands "by contrast" "as essentially dependent on the state". So we read in the Preface [to Hegel's Philosophy of Law], p. 13:
+
+Hence, philosophy is also "essentially" dependent on the exche- quer.
+
+The wealth [of this estate] is independent "of the uncertainty of business, the quest for profit, and any sort of fluctuation in
+
+[^1]: Moreover, philosophy with us is not, as it was with the Greeks for instance, practised as a private art", "but has an existence in the open, in contact with the public, and especially, or even solely, in the service of the state".
+
+[^2]: a Here and in the following paragraph the German word Vermögen is used, which can mean ability, capacity, or wealth, fortune, etc.—Ed.
+
+
+
+
+
+**[p. 98]**
+
+possessions". In this respect the "business estate" stands over against it as the estate "dependent on and orientated towards need".
+
+This wealth is thus "independent both of the favour of the executive, and of the favour of the crowd".
+
+Finally, it is even secured against its own caprice by the fact that the members of this estate called to fulfil this role "lack the right of other citizens either to dispose freely of their entire property, or to know that it will pass to their children in accordance with the equality of their love for them" [para. 306].
+
+Here the antitheses have assumed an entirely new and very material form such as we could scarcely have expected in the heaven of the political state.
+
+As expounded by Hegel, the antithesis is, expressed in all its sharpness, the antithesis of private property and wealth.
+
+Landed property is private property xax' sÇopiv,a i* *s private property proper. Its precisely private nature is evident (1) as "independence of the wealth of the state", of the "favour of the executive", of the property which exists as "general property of the political state", a particular wealth alongside others according to the construction of the political state; (2) as "independence of the needs" of society or of "social wealth", of the "favour of the crowd". (It is likewise significant that the share in the wealth of the state is conceived of as a "favour of the executive" and the share in social wealth as a "favour of the crowd".) The wealth of the "general estate" and of the "business estate" is not private property proper because it is there directly, here indirectly, conditioned by the connection with the general wealth or with property as social property—is a participation in it, and therefore indeed in both cases mediated by "favour", i.e., by the "accident of the will". Over against this stands landed property as sovereign private property, which has not yet the form of wealth, i. e., of property established by the social will
+
+The political constitution at its highest point is therefore the constitution of private property. The supreme political conviction is the conviction of private property. Primogeniture is merely the external appearance of the inner nature of landed property. The fact that it is inalienable cuts off its social nerves and ensures its isolation from civil society. The fact that it does not pass to their children in accordance with the "equality of their love for them" frees it, makes it independent even of the smaller society, the natural
+
+[^1]: a Par excellence.—Ed.
+
+
+
+In para. 305 Hegel declared the estate of landed property capable of being established in the "political role" because it has "family life" as its "basis". But he himself has declared "love" to be the basis, the principle, the spirit of family life. Hence in the estate which is based on family life, the basis of family life, love as the actual, and therefore effective and determining principle, is lacking. It is spiritless family life, the illusion of family life. In its highest development the principle of private property contradicts the principle of the family. In contrast with the estate whose ethical life is natural, the estate of family life, it is only in civil society that family life becomes the life of the family, the life of love. The former is rather the barbarism of private property against family life.
+
+Such, then, is the alleged sovereign magnificence of private property, of landed property, on which so much sentimentality has been spent and so many multicoloured crocodile tears have been shed in recent times.
+
+It does not help Hegel to say that primogeniture is only a demand of politics and must be understood in its political position and significance. It does not help him to say: "The security and stability of the [landowning] estate can be further enhanced by the institution of primogeniture, though this institution is desirable only from a political point of view, since it involves a sacrifice for the political purpose of enabling the first-born son to live independently" [Addition to para. 306]. It is a certain decency, a decorum of thought which induces Hegel to put it this way. He wants to justify and construe primogeniture not in and for itself, but only in reference to something else; not as something determined by itself, but as determined by something else, not as end but as means to an end. In truth, primogeniture is a consequence of perfect landed proper- ty, it is fossilised private property, private property (quand même) at the peak of its independence and intensity of its development, and that which Hegel represents as the purpose, the determining factor and prime cause of primogeniture, is rather its effect, its consequence, the power of abstract private property over the political state; whereas Hegel represents primogeniture as the power of the political state over private property. He makes the cause the effect and the effect the cause, the determining the determined and the determined the determining.
+
+But what is the content of the political establishment, of the political purpose—what is the purpose of this purpose? What is its substance? Primogeniture, the superlative of private property, sovereign
+
+
+
+**[p. 100]**
+
+private property. What power does the political state exercise over private property in primogeniture? This, that it isolates private property from family and society, that it turns it into something abstractly independent. What then is the power of the political state over private property? The power of private property itself, its essence brought into existence. What remains for the political state in contrast with this essence? The illusion that the state determines, when it is being determined. It does, indeed, break the will of the family and society, but only so as to give existence to the will of private property without family and society and to acknowledge this existence as the supreme existence of the political state, as the supreme existence of ethical life.
+
+Let us examine how the various elements conduct themselves here, in the legislature, the total state, the state come to actualisa- tion and consequence, to consciousness, the actual political state with the ideal, the logical character and form of these elements, as they ought to be.
+
+(Primogeniture is not, as Hegel says, "a fetter laid upon the freedom of civil right", it is rather the "freedom of civil right which has freed itself of all social and ethical ties".) ("The supreme political construction is here the construction of abstract private property.")
+
+Before we make this comparison we must take a closer look at one statement in the paragraph, namely, that which says that through primogeniture the wealth of the peasantry, landed prop- erty, private property, is secured even "against caprice on their own part by the fact that the members of this estate who are called to fill this role lack the right of other citizens to dispose freely of their entire property".
+
+We have already emphasised that by the "inalienability" of landed property the social nerves of private property are cut. Private property (landed property) is secured against the caprice of the owner himself by the fact that the sphere of his caprice has turned from being a generally human caprice into the specific caprice of private property; that private property has become the subject in volition; that will is merely now the predicate of private property. Private property is no longer a distinct object of free choice; instead, free choice is the distinct predicate of private property. But let us compare what Hegel himself says about the sphere of civil law:
+
+[^1]: 65. "I can alienate my property, for it is mine only insofar as I put my will into it [], provided always that the thing in question is a thing external by nature."
+
+[^2]: 66. "Therefore those possessions, or rather those material attributes, which
+
+
+
+
+
+**[p. 101]**
+
+constitute my innermost person and the general nature of my self- consciousness—such as my personality generally, my general freedom of will, my morality and my religion—are inalienable, jiist as the right to them is imprescrip- tible."
+
+With primogeniture, therefore, landed property, perfect private property, becomes an inalienable possession, hence a material attribute, which constitutes the "innermost person, the general nature of the self-consciousness" of the estate of owners of entailed estates, its "personality generally, its general freedom of will, its morality and its religion". Hence it is also consistent with this that where private property, landed property, is inalienable, the "general freedom of will" (which includes the freedom to dispose of something external, such as landed property) and the morality (which includes love as the real spirit manifesting itself likewise as the true law of the family) are, by contrast, alienable. The "inalienability" of private property is one with the "alienability" of the general freedom of will and morality. Here property no longer exists "insofar as I put my will into it", but my will exists "insofar as it lies in property". My will here does not possess, it is possessed. That is just what is romantically titillating about the power of primogeniture, that private property, hence private caprice in its most abstract form, the wholly narrow-minded, unethical, crude will, appears here as the highest synthesis of the political state, as the supreme alienation of caprice, as the hardest, most self-sacrificing stiuggle with human weakness; for the humanisation of private property here appears as human weakness. Primogeniture is private property become a religion to itself, lost in itself, elated by its own independence and power. As the estate entailed in primogeniture is exempt from direct alienation, so it is also exempt from contract. Hegel represents the transition from property to contract as follows:
+
+(For entailment by primogeniture it is laid down in public law that property is owned not in a common will but only "by means of a thing and my subjective will".) While Hegel here in civil law understands the alienability and dependence of private property on a common will as its true idealism, in constitutional law, on the
+
+[^1]: 71. "Existence as determinate being is essentially being for something else; [] one aspect of property is that it is an existent as an external thing, that is, it exists for other external things, and in the context of this necessity and contingency. But it is also an existent as an embodiment of will, and from this point of view the other for which it exists can only be the will of another person. This relation of will to will is the specific and true soil in which freedom exists. This mediation, to have property no longer only by means of a thing and my subjective will, but also by means of another will and, therewith, to hold it in a common will, constitutes the sphere of contract."
+
+
+
+
+
+**[p. 102]**
+
+contrary, the imaginary splendour of independent property is praised in contrast with the "uncertainty of business, the quest for profit, any sort of fluctuation in possessions, the dependence on the wealth of the state". What kind of state is this that cannot even tolerate the idealism of civil law? What kind of philosophy of law is that where the independence of private property has a different significance in civil law and in constitutional law?
+
+Over against the crass stupidity of independent private property the uncertainty of business is elegiac, the quest for profit bombas- tic (dramatic), the fluctuations in possessions a serious fatality (tragic), dependence on the wealth of the state ethical. In brief, in all these qualities the beat of the human heart, that is, the depen- dence of man on man, sounds right through property. No matter how this dependence may be constituted in and for itself, it is human over against the slave, who thinks himself free because the sphere which restricts him is not society but the soil. The freedom of this will is its lack of any other content but that of private property.
+
+To define monstrosities like primogeniture as a determination of private property by the political state is quite unavoidable when one interprets an old world-view in terms of a new one, when one gives to a thing, as to private property here, a double meaning, one in the court of abstract law, an opposite one in the heaven of the political state.
+
+We now come to the comparison suggested above. In para. 257 we read:
+
+In para. 268 we read:
+
+The actuality of the ethical idea here appears as the religion of private property. (Because in primogeniture private property re- gards itself in a religious manner, it has come about that in our
+
+[^1]: "The state is the actuality of the ethical idea—the ethical spirit as the manifest, substantial will, clear to itself In custom the state has its immediate existence, and in the self-consciousness of the individual its mediated existence; just as the self-consciousness of the individual, by virtue of the individual's conviction, finds substantial freedom in the state as its essence, purpose, and the product of its activity."
+
+[^2]: "Political conviction, patriotism in general, as certainty founded on truth [] and willing which has become habitual, is only the result of the institutions existing in the state, in which rationality is actually present, just as action which is in conformity with these institutions is the practical expression of this conviction. This conviction is in general trust (which may turn into a more or less enlightened insight), the consciousness that my substantial and particular interest is preserved and contained in the interest and purpose of another (here the state) in relation to me as an individual; whereupon this other is directly for me no other, and in this consciousness I am free."
+
+
+
+
+
+**[p. 103]**
+
+modern times religion in general has become a quality inherent in landed property and that all writings on primogeniture are full of religious unction. Religion is the highest form of thought of this brutality.) The "manifest, substantial will, clear to itself", turns into a dark will, broken by the soil, intoxicated with the impenetrability of the element to which it is attached. The "certainty founded on truth", which is the "political conviction", is the certainty which stands on "its own ground" (in the literal sense). The political "willing", which "has become habitual", is no longer "only the result", etc., but an institution which stands outside the state. The political conviction is no longer "trust" but the "confidence, the consciousness that my substantial and particular interest" is "inde- pendent of the interest and purpose of another (here the state) in relation to me as an individual". That is the consciousness of my freedom from the state.
+
+The "maintenance of the general state interest", etc., was (para. 289) the task of the "executive". In it there was concen- trated the "developed intelligence of the mass of a people and its consciousness of what is lawful" (para. 297). It "actually renders the estates superfluous", for "without the estates" they3 "are able to do what is best, as they constantly must do their best when the estates are in session" (Remark to para. 301). The "general estate, or more precisely the estate which devotes itself to government service, is directly defined as having the general as the purpose of its essential activity" [para. 303].
+
+And how does the general estate, the executive, appear now? "As essentially dependent on the state", as the "wealth, depending on the favour of the executive". The same transformation has taken place with civil society, which earlier achieved its ethical character in the corporation. It is a wealth dependent on "the uncertainty of business", etc., on "the favour of the crowd".
+
+What then is the allegedly specific quality of the owners of entailed estates? And in what can the ethical quality of inalienable wealth consist at all? In incorruptibility. Incorruptibility appears as the supreme political virtue, an abstract virtue. Moreover, in the state constructed by Hegel incorruptibility is something so singular that it must be constructed as a special political power; thus one becomes conscious of it precisely because incorruptibility is not the spirit of the political state, not the rule but the exception; and it is constructed as such an exception. One corrupts the owners of entailed estates through their independent property in order to
+
+[^1]: a The top bureaucrats (see this volume p. 63).—Ed.
+
+
+
+
+
+**[p. 104]**
+
+That estates entailed in primogeniture are hereditary estates goes without saying. More of this later.2 That they go to the first-born son is purely historical, as Hegel observes in the Addition [to para. 306].
+
+How far the rights of this propertied estate are based on the natural principle of the family is not demonstrated by Hegel, unless he means thereby that landed property exists as hereditary property. Thus no right of this estate in the political sense is demonstrated herein, but only the right by birth of the owners of entailed estates to their land. "But this", the natural principle of the family, is "at the same time distorted by hard sacrifice for a political purpose". We have indeed seen how "the natural principle of the family is distorted" here, but also that this is "no hard sacrifice for a political purpose", but merely the realised abstraction of private property. Rather, through this distortion of the natural principle of the
+
+[^1]: 307. "Thus the rights of this section of the propertied estate are on the one hand no doubt founded on the natural principle of the family, but this principle is at the same time distorted by hard sacrifice for a political purpose; consequently this estate is essentially assigned to activity for this purpose, and is therefore also summoned and entitled to this activity by birth, without the fortuitousness of elections."
+
+[^2]: a See this volume, p. 106 et seq.—Ed.
+
+
+
+
+
+**[p. 105]**
+
+family the political purpose is equally distorted, "consequently (?) this estate is essentially assigned to activity for this purpose"—by private property being made independent?—"and is therefore also summoned and entitled to this activity by birth, without the fortuitousness of elections".
+
+Here therefore participation in the legislature is an innate human right. Here we have born legislators, the born mediation of the political state with itself. There has been much sneering at innate human rights, especially by the owners of entailed estates. Is it not even stranger that the right to the supreme dignity of the legislative authority is entrusted to a particular race of men? Nothing is more ridiculous than the fact that the appointment by "birth" of legislators, representatives of the citizens, should be opposed by Hegel to their appointment by "the fortuitousness of elections". As if election, the conscious product of civil confidence, did not stand in a very different, necessary, connection with the political purpose than the physical accident of birth. Hegel descends everywhere from his political spiritualism into the crassest material- ism. At the summits of the political state it is everywhere birth which makes certain individuals the incarnations of the supreme offices of state. The supreme state activities coincide with the individual by birth, much as the position of the animal, its character, its way of life, etc., are directly innate in it. In its supreme functions the state acquires the reality of an animal. Nature avenges itself on Hegel for the contempt he has shown it. If matter is no longer to be anything for itself against the human will, so the human will here no longer retains anything for itself but matter.
+
+The false identity, the fragmentary, patchy identity of nature and spirit, body and soul, appears as incarnation. Since birth gives to the human being only his individual existence, positing him in the first place only as a natural individual, whereas political attributes such as legislative power, etc., are social products, progeny of society, and not offspring of the natural individual, it is precisely the direct identity, the unmediated coincidence of the birth of the individual with the individual as individualisation of a particular social position, function, etc., which is the astonishing thing, the miracle. In this system nature directly produces kings, directly creates peers, etc., just as it makes eyes and noses. It is astonishing to see as a direct product of the physical species what is only a product of the self-conscious species. I am a human being by birth without the consent of society; a particular oflspring becomes peer or king only by general consent. Only consent makes the birth of
+
+[^1]: 5—482
+
+
+
+
+
+**[p. 106]**
+
+Concerning the entailment of estates in primogeniture two elements need stressing:
+
+1) That which is enduring is the ancestral estate, the landed property. It is the lasting element in the relationship, the substance. The master of the entailed estate, the owner, is really a mere accident. The different generations represent anthropomorphised landed property. Landed property, as it were, continually inherits the first-born of the House as the attribute fettered to it. Every first-born in the series of landed proprietors is the inheritance, the property of the inalienable estate, the predestined substance of its will and its activity. The subject is the thing and the predicate the human being. The will becomes the property of the pro- perty.
+
+2) The political quality of the owner of the entailed estate is the political quality of his ancestral estate, a political quality inherent in this estate. Hence the political quality also appears here as the property of landed property, as a quality which directly belongs to the purely physical earth (nature).
+
+Concerning the first, it follows that the owner of an entailed estate is the serf of landed property, and nothing but the practical consequence of the theoretical relationship in which he himself stands to landed property becomes evident in the serfs who are subordinated to him. The depth of Germanic subjectivity appears everywhere as the crudeness of a spiritless objectivity.
+
+Here one must explain the relation (1) between private property and inheritance, (2) between private property, inheritance, and through that the privilege of certain families to take part in political sovereignty, (3) the real historical relationship or the Germanic relationship.
+
+We have seen that the right of primogeniture is the abstraction
+
+
+
+**[p. 107]**
+
+of "independent private property". A second consequence follows from this. Independence, self-reliance in the political state, the construction of which we have been following up to now, means private property which at its summit appears as inalienable landed property. Political independence therefore does not flow ex proprio sinu of the political state; it is not a gift of the political state to its members; it is not the spirit animating it; but rather the members of the political state receive their independence from a factor which is not the essential factor of the political state, but from an essential factor of abstract civil law, from abstract private property. Political independence is not the substance of the political state, it is incidental to private property. The political state and the legislative authority in it, as we have seen, is the unveiled mystery of the true value and essence of the elements of the state. The significance which private property has in the political state is its essential, its true, significance; the significance which differences of estate have in the political state is the essential significance of differences of estate. Similarly the essence of monarchical [power] and the executive manifests itself in the "legislative authority". It is here, in the sphere of the political state, that the individual elements of the state are related to themselves as the essence of the species, as the "species-being"; because the political state is the sphere of their general aspect, their religious sphere. The political state is the mirror of truth for the various elements of the concrete state.
+
+Thus, when "independent private property" has in the political state, in the legislature, the significance of political independence, then it is the political independence of the state. "Independent private property" or "real private property" is then not only the "pillar of the constitution" but the "constitution itself. And surely the pillar of the constitution is the constitution of constitutions, the primary, real constitution?
+
+When constructing the hereditary monarch, Hegel, himself surprised as it were at "the immanent development of a science, the derivation of its entire content from the elementary concept" (Remark to para. 279), made this observation:
+
+That is to say, in the political state it becomes apparent that the "abstract personality" is the supreme political personality, the political
+
+[^1]: "Thus it is the basic element of personality, abstract at first in the sphere of immediate law, which has evolved through its various forms of subjectivity, and here, in the sphere of absolute law, in the state, in the completely concrete objectivity of the will, it is the personality of the state, the state's certainty of itself."
+
+
+
+
+
+**[p. 108]**
+
+That the state is a hereditary monarch, an abstract personality, means nothing but that the personality of the state is abstract, or that it is the state of the abstract personality; just as the Romans expounded the royal prerogative purely within the norms of civil law, or civil law as the supreme norm of constitutional law.
+
+The Romans are the rationalists, the Germans the mystics of sovereign private property.
+
+Hegel describes civil law as the right of abstract personality or as abstract right. And, in truth, it must be expounded as the abstraction of right and thus as the illusory right of abstract personality, just as the morality expounded by Hegel is the illusory being of abstract subjectivity. Hegel expounds civil law and morality as such abstrac- tions; from this he does not deduce that the state and the ethical life based on them can be nothing but the society (the social life) of these illusions, but on the contrary, he concludes that they are subordinate elements of this ethical life. But what is civil law other than the law, and what is morality other than the morality of these subjects of the state? Or rather, the person of civil law and the subject of morality are the person and the subject of the state. Hegel has been often attacked for his exposition of morality. He has done no more than expound the morality of the modern state and of modern civil law. People have wanted to separate morality more from the state, to emancipate it more. What have they proved thereby? That the separation of the present-day state from morality is moral, that morality is apolitical and the state is immoral. Rather, it is a great merit of Hegel to have assigned to modern morality its proper position, although in one respect this is an unconscious merit (namely, in that Hegel passes off the state which is based on such a morality for the actual idea of ethical life).
+
+In the constitution where primogeniture is a guarantee, private property is the guarantee of the political constitution. In primogeni- ture this appears in such a way that a particular kind of private property serves as this guarantee. Primogeniture is merely a particular manifestation of the general relationship of private property and political state. Primogeniture is the political meaning of private property, private property in its political significance, i.e., in its general significance. The constitution is here therefore the constitution of private property.
+
+
+
+**[p. 109]**
+
+Where we find primogeniture in classical form, in the Germanic nations, we find also the constitution of private property. Private property is the general category, the general political bond. Even the general functions appear as the private property now of a corporation, now of an estate.
+
+The different subdivisions of trade and industry are the private property of different corporations. Court dignities, jurisdiction, etc., are the private property of particular estates. The various provinces are the private property of individual princes, etc. Service to the country, etc., is the private property of the ruler. The spirit is the private property of the clergy. My dutiful activity is the private property of another, as my rights are again a particular private property. Sovereignty, here nationality, is the private property of the emperor.
+
+It has often been said that in the Middle Ages every form of right, of freedom, of social existence, appears as privilege, as an exception to the rule. In this context the empirical fact that all these privileges appeared in the form of private property could not be overlooked. What is the general cause of this coincidence? Private property is the specific mode of existence of privilege, of rights as exceptions.
+
+Where, as in France, the monarchs attacked the independence of private property, they infringed the property of the corporations before that of individuals. But by attacking the private property of the corporations, they attacked private property as corporation, as a social bond.
+
+In feudal rule it is directly apparent that the monarchical power is the power of private property, and in the monarchical power the mystery of the general power, the power of all state circles, is set down.
+
+(What is powerful in the state finds its expression in the monarch as the representative of political power. The constitutional monarch therefore expresses the idea of the constitutional state in its sharpest abstraction. He is on the one hand the idea of the state, the sanctified majesty of the state, and precisely as this person. At the same time he is mere imagination, as person and as monarch he has neither real power nor real activity. Here the separation of political and real, of formal and material, of general and individu- al person, of human being and social person, is expressed in its supreme contradiction.)
+
+In private property Roman intellect and German feeling are combined. At this point it will be instructive to make a comparison between these two extreme developments of private property. This
+
+
+
+**[p. 110]**
+
+will help us to solve the political problem discussed above. Ad. pag. XIl.a
+
+It is really the Romans who first developed the law of private property, abstract right, civil law, the right of the abstract person. Roman civil law is civil law in its classical form. But nowhere do we find among the Romans that the law of private property is mystified, as is the case with the Germans. It nowhere becomes the law of the state either.
+
+The right of private property is the jus utendi et abutendi,h the right to do what one likes with the object. The main interest of the Romans is to set forth relations and to determine which of them prove to be abstract relations of private property. The true basis of private property, possession, is a fact, an inexplicable fact, not a right. Only through the juridical attributes which society gives to factual possession does it acquire the quality of legal possession, of private property.
+
+Concerning the connection between political constitution and private property amongst the Romans the following would appear to have obtained:
+
+1) The human being (as slave), as amongst the peoples of antiquity generally, is object of private property.
+
+That is nothing specific. 2) The conquered lands are treated as private property; the jus utendi et abutendi is applied to them.
+
+3) In their own history there appears the struggle between the poor and the rich (patricians and plebeians), etc.
+
+For the rest, private property as a whole, as in general with the classical nations of antiquity, asserts itself as public property; either, as in good times, as expenditure by the republic, or as luxurious and general benefits (baths, etc.) for the masses.
+
+The manner in which slavery is explained is through military law, the law of occupation: they are slaves precisely because their political existence has been destroyed.
+
+We mainly emphasise two circumstances which differ from those obtaining among the Germans.
+
+1) The imperial power was not the power of private property but the sovereignty of the empirical will as such, which was far from regarding private property as a bond between itself and its subjects, but on the contrary, dealt with private property as with all other social goods. The imperial power was therefore also heritable only
+
+[^1]: " See this volume, p. 38.—Ed. b Right of use and of disposal.—Ed.
+
+
+
+
+
+**[p. 111]**
+
+as a matter of fact. The highest development of the law of private property, of civil law, belongs to the imperial period, it is true; but it is a consequence of political disintegration rather than political disintegration having been a consequence of private property. Moreover, when civil law becomes fully developed in Rome, constitutional law is abolished or in its process of dissolution; whereas in Germany the opposite obtained.
+
+2) State dignities are never hereditary in Rome, i.e., private property is not the dominant political category.
+
+3) In contrast with German primogeniture, etc., in Rome arbitrary testamentary disposition seems to be the outcome of private property. This last contrast contains the whole difference between the Roman and German developments of private property.
+
+(In primogeniture the fact that private property constitutes the relation to political functions appears in such a way that political existence is something inherent in, an adjunct of, direct private property, landed property. At the highest summits therefore the state appears as private property, whereas here private property should appear as state property. Hegel makes citizenship, political existence and political conviction attributes of private property, instead of making private property an attribute of citizenship.)
+
+We find here a new antithesis within civil society and the estates—a mobile, and hence also an immobile part (that of landed property). This antithesis has also been presented as the antithesis of space and time, etc., of conservative and progressive. On this point see the previous paragraph. Moreover, with the corpora- tions, etc., Hegel has turned the mobile part of society also into a static one.
+
+The second antithesis is that the first section of the estates element which has just been expounded, the owners of entailed estates, are legislators in their own right; that the power to legislate is an attribute of their empirical persons; that they are not delegates but
+
+[^1]: 308. "The second section of the estates element comprises the mobile part of civil society which can enter it only through delegates, superficially because of the large number of its members, but essentially because of the nature of their vocation and pursuits. Since these representatives are delegated by civil society it is plain that the latter acts as that which it is—hence not as atomistically dispersed into individuals and assembled only for a moment, for a single and transient act, without continuing cohesion, but rather as articulated in its already instituted associations, communities and corporations which thus acquire political cohesion. The existence of the estates and their assembly finds a constitutional and fitting guarantee in their entitlement to such representation under the summons of the monarch, as in the entitlement of the first estate (para. 307) to appear in the assembly."
+
+
+
+
+
+**[p. 112]**
+
+themselves; whereas with the second estate election and delegation takes place.
+
+Hegel gives two reasons why this mobile part of civil society can enter the political state, the legislature, only through representatives. The first, their large numbers, he himself describes as superficial and so saves us a reply on this point.
+
+The essential reason, however, he says, is the "nature of their vocation and pursuits". "Political activity" and "pursuits" are something alien to "the nature of their vocation and pursuits".
+
+Hegel now returns to his old song, to these estates as "delegates of civil society". This must, he claims, "act as that which it is". It must rather act as what it is not, for it is unpolitical society, and it is here called upon to perform a political act as an'act essential to it, arising out of itself. In so doing, it is "atomistically dispersed into individuals" "and assembled only for a moment, for a single and transient act, without continuing cohesion". Firstly, its political act is a single and transient one and in its realisation can therefore appear only as such. It is a sensational act, an ecstasy of political society, and must also appear as such. Secondly: Far from object- ing, Hegel has even construed it as necessary that, materially, civil society separates itself from its civil reality (appearing only as a second society delegated by itself), and that it puts forward what it is not as itself; how can he now wish formally to reject this?
+
+Hegel thinks that since society delegates by its corporations, etc., "its already instituted associations", etc., "thus acquire political cohesion". But they acquire either a significance which is not their significance, or else their connection as such is political and does not just "acquire" a political complexion as set forth above, it being rather the case that "politics" acquires its cohesion from it [from the cohesion of civil society]. By designating only this part of the estates element as "delegated", Hegel has unwittingly described the essence of the two chambers (where they actually stand to each other in the relation which he describes). House of Representatives and House of Peers (or whatever else they are called) are here not different manifestations of the same principle but belong to two essentially different principles and social conditions. The House of Representatives is here the political constitution of civil society in the modern sense, the House of Peers in the estates sense. House of Peers and House of Representatives confront one another here as the estate and as the political representation of civil society. The one is the existing estate principle of civil society, the other is the realisation of its abstract political being. Hence it goes without saying that the latter cannot exist again as the representation of
+
+
+
+**[p. 113]**
+
+estates, corporations, etc., for it simply does not represent the estate aspect but the political aspect of civil society. Thus it is self-evident that in the Upper House only the estate part of civil society has seats, only "sovereign landed property", the hereditary landed aristocracy, for it is not one estate among others; rather the estate principle of civil society as an actual, social, that is, political, principle continues to exist only in it. It is the estate. Civil society thus has the representative of its medieval aspect in the estate House, that of its political (modern) aspect in the House of Representatives. Progress compared with the Middle Ages here consists only in the fact that the estate politics has been reduced to a special political existence alongside civic politics. The empirical political phenomenon which Hegel has in mind (England) has there- fore a very different meaning from that which he imputes to it.
+
+In this respect also the French constitution is an advance.10 It has, it is true, reduced the House of Peers to a mere nullity, but within the principle of the constitutional monarchy, as Hegel alleged, this House by its nature can only be a nullity, the fiction of harmony between monarch and civil society, or the legislature or the political state with itself as a separate, and hence again contradictory, existence.
+
+The French have allowed the life membership of the Peers to stand so as to express their independence of the choice both of government and people. But they have abolished the medieval expression of this—hereditariness. Their advance consists in the fact that they no longer make the House of Peers originate in actual civil society either, but have created it in abstraction from the latter. They cause their election to proceed from the existing political state, the monarch, without tying him to any other civil quality. In this constitution the peerage is actually an estate in civil society which is purely political, created from the point of view of the abstraction of the political state; but it appears more as political embellishment than as an actual estate endowed with particular rights. The House of Peers under the Restoration was a reminiscence of the past The House of Peers of the July revolution is a real creation of the constitutional monarchy.
+
+Since in modern times the idea of the state could not appear except in the abstraction of the "merely political state" or the abstraction of civil society from itself, from its actual condition, it is a merit of the French to have defined, produced this abstract actuality, and in so doing to have produced the political principle itself. The abstraction for which they are blamed is therefore not an abstraction but the true consequence and product of the
+
+
+
+**[p. 114]**
+
+rediscovered political conviction, rediscovered it is true in an an- tithesis, but in a necessary antithesis. Hence it is here the merit of the French to have instituted the House of Peers as a peculiar product of the political state, or, in general, to have made the political principle in its peculiarity the determinative and effective factor.
+
+Hegel remarks further that with the representation he has construed, "the existence of the estates and their assembly finds a constitutional and fitting guarantee" in the "entitlement of the corporations, etc., to such representation". The guarantee of the existence of the assembly of the estates, its true, primitive existence, thus becomes the privilege of the corporations, etc. At this point Hegel has completely sunk back to the medieval standpoint and has entirely abandoned his "abstraction of the political state as the sphere of the state as state, the intrinsically and actually general".
+
+In the modern sense the existence of the assembly of the estates is the political existence of civil society, the guarantee of its political being. To cast doubt on its existence is therefore to doubt the existence of the state. Just as previously "political conviction", the essence of the legislature, finds its guarantee according to Hegel in "independent private property", so its existence finds a guarantee in the "privileges of the corporations".
+
+But one of the estates elements is rather the political privilege of civil society, or its privilege to be political. This element therefore cannot anywhere be the privilege of a particular, civil mode of the existence of civil society; still less can it find its guarantee in it, since on the contrary it is supposed to be the general guarantee.
+
+Thus Hegel everywhere sinks to that level where the "political state" is not described as the highest actuality of social being, existing in and for itself, but where a precarious reality is granted to it, one which is dependent on something else; and where the political state is not depicted as the true being of the other sphere, but rather as something which finds in the other sphere its true being. Everywhere it requires the guarantee of spheres which lie outside it. It is not realised power. It is supported impotence, it is not power over these supports but the power of the support. The support is the paramount power.
+
+What kind of august aspect is this whose existence requires a guarantee from outside itself, while it is itself supposed to be the general existence of this guarantee, and thus its actual guarantee? In general, in expounding the legislature Hegel everywhere falls back from the philosophical standpoint to that other standpoint where the matter is not dealt with in its own terms.
+
+If the existence of the estates requires a guarantee, then they
+
+
+
+**[p. 115]**
+
+are not an actual but only a fictitious mode of existence of the state. In constitutional states the guarantee for the existence of the estates is the law. Their existence is therefore a legal existence dependent on the general nature of the state and not on the power or impotence of individual corporations or associations; they exist, rather, as the actuality of the association of the state. (It is precisely here that the corporations, etc., the particular circles of civil society, are to acquire their general existence, and Hegel now again anticipates this general existence as privilege, as the existence of these particular circles.)
+
+Political right as the right of corporations, etc., wholly con- tradicts political right as political right, i.e., as the law of the state—the law of the citizens; for it is supposed to be not the law of a given mode of existence as a particular mode of existence, not the law representing this particular mode of existence.
+
+Before we pass on to the category of election as the political act whereby civil society sets itself apart as a political body, let us add a few further points from the Remark to this paragraph.
+
+"The idea that all should individually participate in deliberating and deciding on the general affairs of the state on the ground that they are all members of the state and that its affairs are the affairs of all, in which they are entitled to be involved with their knowledge and volition, this idea seeks to introduce the democratic element without any rational form into the state organism which is a state organism solely by virtue of such a form. This idea comes so readily to mind because it does not go beyond the abstract definition of being a member of the state, and superficial thinking clings to abstractions." [Para. 308.]
+
+Firstly, Hegel calls "being a member of the state" an "abstract definition", although according to the idea, the view of his own expounding, it itself is the highest, most concrete social definition of the legal person, the member of the state. Not to go beyond the "definition of being a member of the state", and to regard the individual from this angle, would therefore not seem to be merely "superficial thinking which clings to abstractions". But that the "definition of being a member of the state" is an "abstract" definition is not the fault of that thinking but of Hegel's exposition and of the actual modern conditions which presuppose the separation of real life from the life of the state and make belonging to a state an "abstract definition" of the real member of the state.
+
+According to Hegel the direct participation of all in deliberating and deciding on the general affairs of the state includes "the democratic element without any rational form into the state organism which is a state organism solely by virtue of such a form", i. e., the democratic element can be embodied only as a formal element in a
+
+
+
+**[p. 116]**
+
+State organism which is merely the formalism of the state. The democratic element must rather be the actual element which gives to itself its rational form in the state organism as a whole. But if on the other hand it enters the organism or formalism of the state as a "particular" element, then what is meant by the "rational form" of its being is a drill, an accommodation, a form in which the democratic element does not display the specific features of its nature; or what is meant is that it only enters as a formal principle.
+
+We have already indicated once that Hegel only expounds a state formalism. The actual material principle is for him the idea, the abstract mental form of the state as a subject, the absolute idea which contains no passive, no material element. By contrast to the abstraction of this idea the characteristics of the actual, empirical state formalism appear as content and hence the real content appears as formless, inorganic matter (in this case the actual person, the actual society, etc.).
+
+Hegel put the essence of the estates element in the concept that in this element the "empirical generality" becomes the subject of the intrinsically and actually general. What then should this mean but that the affairs of the state "are the affairs of all, in which they are entitled to be involved with their knowledge and volition", and is it not just the estates which should be this, their realised right? And is it then surprising that the all now also want the "reality" of this, their right?
+
+In a really rational state one might reply: "All should not individually participate in deliberating and deciding on the general affairs of the state", for the "individuals" participate in deliberat- ing and deciding on the general affairs as "all", i.e., within the society and as members of society. Not all individually, but the individuals as all.
+
+Hegel poses this dilemma for himself: Either civil society (the many, the crowd) participates in deliberating and deciding on the general affairs of the state through delegates, or all do this [as] individuals. This is no contrast of essence, as Hegel later seeks to represent it, but of existence, and indeed of existence at the most superficial level, of numbers; and hence the reason which Hegel himself has called "superficial"—the large number of members—re- mains the best reason that can be advanced against the direct participation of all. The question whether civil society should
+
+[^1]: "That all should individually participate in deliberating and deciding on the general affairs of the state."
+
+
+
+
+
+**[p. 117]**
+
+participate in the legislative power either by entering it through delegates or by "all individually" sharing directly, is itself a question within the abstraction of the political state or within the abstract- political state; it is an ofestract-political question.
+
+In both cases, as Hegel has himself shown, it is the political meaning of "empirical generality".
+
+In its essential form the contrast is: the individuals all do it, or the individuals do it as a few, as not-all. In both cases the universality remains only as an external multiplicity or totality of the individuals. The universality is no essential, spiritual, actual quality of the individual. It is not something through which he would lose the attribute of abstract individuality; rather the universality is only the full count of individuality. One individuality, many individualities, all individualities. One, many or all—none of these descriptions alters the essence of the subject, individuality.
+
+"All" are to participate "individually" in "deliberating and deciding on the general affairs of the state"; that means then: All shall not thus participate as all but as "individuals".
+
+The question appears to stand in contradiction to itself in two ways.
+
+The general affairs of the state are state affairs, the state as actual affair. Deliberating and deciding means giving effect to the state as an actual affair. Hence it appears to be self-evident that all members of the state have a relation to the state as their actual affair. Already the concept members of the state implies that they are members of the state, a part of it, that it takes them as part of it. But if they are a part of the state, then, of course, their social being is already their real participation in it. They are not only part of the state, but the state is their portion. To be a conscious part of something means consciously to acquire a part of it, to take a conscious interest in it. Without this consciousness the member of the state would be an animal.
+
+When one says: "the general affairs of the state", the impression is given that the "general affairs" and the "state" are two different things. But the state is the "general affair", and thus in fact the "general affairs".
+
+To participate in the general affairs of the state and to participate in the state is therefore one and the same thing. It is then a tautology that a member of the state, a part of the state, participates in the state and that this participation can only appear as deliberating or deciding or in some similar form, and hence that every member of the state participates in deliberating and deciding on the general affairs of the state (if these functions are under-
+
+
+
+**[p. 118]**
+
+stood as functions of the real participation in the state). Therefore, if one is speaking of real members of the state, one cannot speak of this participation as something which ought to be. Otherwise one would instead be speaking of subjects who ought to be and want to be, but are not really members of the state.
+
+On the other hand: if one is speaking of definite affairs, of a particular act of the state, it is again self-evident that all do not perform that act individually. Otherwise the individual would be the true society and would make society superfluous. The individu- al would have to do everything at once; whereas society both lets him act for others and others for him.
+
+The question whether all should individually "participate in deliberating and deciding on the general affairs of the state" is a question which arises from the separation of the political state and civil society.
+
+As we have seen: The state exists only as the political state. The totality of the political state is the legislature. To take part in the legislature is therefore to take part in the political state, is to demonstrate and put into effect one's being as a member of the political state, as a member of the state. Hence that all wish individually to share in the legislature is nothing but the wish of all to be actual (active) members of the state, or to give themselves a political being, or to demonstrate and give effect to their being as a political being. We have further seen that the estates element is civil society as legislative power, its political being. Hence, that civil society should penetrate the legislative power in the mass, if possible in its entirety, that actual civil society wishes to substitute itself for the fictitious civil society of the legislative power, this is merely the striving of civil society to give itself political being or to make political being its actual being. The striving of civil society to turn itself into political society, or to turn political society into actual society, appears as the striving for as general as possible a participation in the legislative power.
+
+Numbers here are not without significance. If the increase of the estates element is already a physical and intellectual increase of one of the hostile forces—and we have seen that the different elements of the legislative power oppose each other as hostile forces—on the other hand, the question as to whether all shall individually be members of the legislative power or whether they shall enter it through deputies puts in question the representative principle within the representative principle, within the basic conception of the political state which finds its existence in the constitutional monarchy.
+
+
+
+**[p. 119]**
+
+(1) It is a notion belonging to the abstraction of the political state that the legislature is the totality of the political state. Because this single act is the only political act of civil society, all should, and wish to, share in it at once. (2) All as individuals. In the estates element the legislative activity is not regarded as a social function, as a function of sociality, but rather as the act through which the individuals first enter into actual and conscious social function, i. e., into a political function. The legislative power here is no outcome, no function of society, but only its formation. The forming of the legislative power requires that all members of civil society regard themselves as individuals; they actually face [each other] as individ- uals. The attribute "being members of the state" is an "abstract definition", an attribute which is not realised in their actual life.
+
+Either: Separation of political state and civil society takes place, in which case all cannot individually share in the legislative power. The political state is a phenomenon separated from civil society. On the one hand, civil society would abandon itself if all were legislators; on the other, the political state, which confronts civil society, can bear it only in a form appropriate to the scale of the political state. Or it is precisely the participation of civil society in the political state through delegates that is the expression of their separation and of their merely dualistic unity.
+
+Or, conversely: Civil society is actual political society. In this case, it is nonsense to raise a demand which has arisen only from the notion of the political state as a phenomenon separated from civil society, which has arisen only from the theological notion of the political state. In this situation the significance of the legislative power as a representative power completely disappears. The legisla- tive power is representation here in the sense in which every function is representative—in the sense in which, e.g., the shoemaker, insofar as he satisfies a social need, is my representa- tive, in which every particular social activity as a species-activity merely represents the species, i. e., an attribute of my own nature, and in which every person is the representative of every other. He is here representative not because of something else which he represents but because of what he is and does.
+
+"Legislative" power is striven for not because of its content but because of its formal political significance. Properly speaking executive power, e. g., rather than legislative power, the metaphysical state function, must be the goal of popular desire. The legislative function is the will not in its practical but in its theoretical energy. Here the will is not to have sway instead of the law: rather, the actual law has to be discovered and formulated.
+
+
+
+**[p. 120]**
+
+This twofold nature of the legislature as the actual legislative function and as the representative, abstract-political function gives rise to a peculiarity which comes to the fore especially in France, the land of political culture.
+
+(In the executive power we always have two things, the actual conduct of affairs and the political considerations behind it, as a second actual consciousness which in its total structure is the bureaucracy.)
+
+The proper content of the legislative power (insofar as the existing particular interests do not come into any considerable conflict with the object of the investigation) is treated very much as separate, as a secondary matter. A question only arouses particular attention when it becomes political, i. e., either when it can be linked with a ministerial problem, and hence one involving the authority of the legislature over the executive, or as soon as it is in general a question of rights connected with the political formalism. Why is this so? Because the legislative power is at the same time the representation of the political being of civil society; because in general the political essence of a question consists in its relation to the various powers of the political state; because the legislative power represents political consciousness and because this can prove to be political only in conflict with the executive. This essential demand that every social need, law, etc., must be understood as political, that is, as determined by the state as a whole in its social sense, takes on a new turn in the state characterised by political abstraction, by being given—besides its actual content—a formal twist against another power (content). That is no abstraction of the French but rather a necessary consequence, since the actual state exists only as the political state formalism considered above. The opposition within the representative authority is the XCXT' SSO^TQV a political mode of being of the representative author- ity. Within this representative constitution, however, the question under consideration takes on a form different from that in which Hegel considered it. The question here is not whether civil society shall exercise the legislative power through representatives or by all individually; the question is rather one of the extension and greatest possible generalisation of election, both of the right to vote and the right to oe elected. This is the real point of dispute concerning political reform, in France as in England.
+
+One is not looking at election philosophically, i. e., in its specific character, if one takes it at once in relation to the monarchical or
+
+[^1]: a Pre-eminently.—Ed.
+
+
+
+
+
+**[p. 121]**
+
+executive power. The election is the actual relation of actual civil society to the civil society of the legislature, to the representative element. Or, the election is the immediate, direct relation of civil society to the political state—a relation that is not merely representative but actually exists. It is therefore self-evident that elections are the chief political interest of actual civil society. Civil society has really raised itself to abstraction from itself, to political being as its true, general, essential mode of being only in elections unlimited both in respect of the franchise and the right to be elected. But the completion of this abstraction is at the same time the transcendence of the abstraction. In actually positing its political existence as its true existence, civil society has simultaneously posited its civil existence, in distinction from its political existence, as inessential; and the fall of one side of the division carries with it the fall of the other side, \ its opposite. Electoral reform within the abstract political state is therefore the demand for its dissolution, but also for the dissolution of civil society.
+
+Later we shall encounter the question of electoral reform in a different form, namely, from the point of view of interests.11
+
+Likewise, we shall later discuss the other conflicts which arise from the twofold character of the legislative power (being at one time the delegate, mandatory of civil society, at another time on the contrary its political mode of being and a distinctive mode of being within the political state formalism3).
+
+For the present we return to the Remark to our paragraph. [Para. 308.]
+
+Everything which needs saying about this has already been said above.
+
+Everything that Hegel says is correct, with the reservations (1) that he treats particular estate and character as identical; (2) that this
+
+[^1]: "Rational consideration, the consciousness of the idea, is concrete and to that extent coincides with genuine practical sense, which itself is nothing but rational sense, the sense of the idea." "The concrete state is the whole, articulated into its particular circles; the member of the state is a member of one of these estates; and he can be taken into account in the state only in this objective character."
+
+[^2]: "His" (the member of the state's) "general character as such contains the twofold aspect of being a private person and also, as a thinking being, a person who is conscious of and wills the general. This consciousness and willing, however, is not empty but complete and truly alive only when it is filled with particularity, namely, the particularity of particular estate and character; or, the individual is a species, but has his immanent general actuality in the next species."
+
+[^3]: a See this volume, pp. 122-23.—£d.
+
+
+
+
+
+**[p. 122]**
+
+character, the subspecies, the next species, should be posited actually, not only in itself but for itself, as subspecies of the general species, as its particularisation. But Hegel is content that in the state, which he demonstrates to be the self-conscious mode of being of ethical spirit, this ethical spirit should only as such, in the sense of the general idea, be the determining factor. He does not allow society to become the actually determining factor, because that requires an actual subject, and he has only an abstract one—an imaginary one.
+
+309. "Since delegates are elected for the purpose of deliberating and deciding on matters of general concern, this means both that, on the strength of trust, individuals are chosen who understand these matters better than the electorate, and also that these persons do not champion the particular interests of a community or corporation against the general interest, but primarily assert the latter. Hence they are not in the position of commissioned or instruction-bearing mandatories—the less so since their assembly is meant to be a living body in which all members deliberate in common and reciprocally instruct and convince each other."
+
+The delegates are (1) not to be "commissioned or instruction- bearing mandatories" because they must "not champion the parti- cular interests of a community or corporation against the general interest, but primarily assert the latter". Hegel has first construed the delegates as delegates of corporations, etc., so as thereupon to bring in again the other political aspect that they are not bound to champion the particular interests of the corporations, etc. He thereby cancels his own characterisation, for in their essential character as representatives he completely separates them from their corporation existence. He thereby also separates the corporation from itself as its actual content, for it is not supposed to elect from its own standpoint but from the standpoint of the state: i. e., it is supposed to elect in its non-being as corporation. In the concrete definition he thus recognises what he reversed in the formal definition—civil society's own abstraction from itself in its political act; and its political mode of being is nothing but this abstraction. The reason Hegel gives is that they are elected precisely for the purpose of dealing with "matters of general concern"; but corporations do not exist as matters of general concern.
+
+(2) "Election of delegates" is supposed to "mean" "that, on the strength of trust, individuals are chosen who understand these matters better than the electorate"; from which once again it is supposed to follow that the deputies do not stand in the position of "mandatories".
+
+Only by a sophism can Hegel demonstrate that they understand these matters "better" and do not "simply" understand them. This could be concluded only if the electorate had the choice either to deliberate and decide on matters of general concern themselves or to
+
+
+
+**[p. 123]**
+
+elect certain individuals to fulfil this function; i. e., only if election, representation, were not essentially part of the nature of the legislative power of civil society, which constitutes precisely its distinctive character in the state construed by Hegel, as we have just shown.
+
+This is a very characteristic example of how Hegel half deliberately turns away from the intrinsic character of the thing he is dealing with, and imputes to that thing in its restricted form a significance the very reverse of this restrictedness.
+
+Hegel gives the real reason last. The deputies of civil society form an "assembly" and only this assembly is the actual political mode of being of civil society and the exercise of its will. The separation of the political state from civil society appears as the separation of the deputies from their mandators. Society delegates only elements from itself to its political mode of being.
+
+The contradiction appears in two ways:
+
+1) Formally. The delegates of civil society form a society which is not linked with those who commission them by the form of the "instruction", the mandate. Formally they are commissioned, but once they are actually commissioned they are no longer mandatories. They are supposed to be delegates, and they are not.
+
+2) Materially. With reference to interests. We shall come to this later.'* Here the reverse takes place. They are commissioned as representatives of general concerns, but they actually represent particular concerns.
+
+It is significant that Hegel here describes trust as the substance of delegation, as the fundamental relation between electors and delegates. Trust is a personal relation. In the Addition [to para. 309] he goes on to say:
+
+First the Upper House, the House of independent private property, was constructed for the monarch and the executive as a guarantee against
+
+[^1]: "Representation is founded on trust, and trusting someone else is different from my voting as a particular person. Majority voting is also contrary to the principle that I as a particular person should be present when any decisions are made which are to be binding on me. I have trust in a person if I consider his discernment to be such as to enable him to treat my concern as his concern, to the best of his knowledge and conscience."
+
+[^2]: 310. "The guarantee of the qualities and of the attitude [in delegates] corresponding to this purpose—since the right of independent wealth has already been asserted in the first section of the estates—is to be seen in the second section, the section drawn from the mobile and changeable element in civil society, particularly in the attitude, the skill and the knowledge of the institutions and interests of the state and of civil society gained in the actual conduct of affairs in administrative or political office and tested in action, and also in the administrative and political sense formed and tested in such experience."
+
+
+
+
+
+**[p. 124]**
+
+the attitude of the Lower House as the political mode of existence of the empirical generality, and now Hegel again demands a new guarantee, which is to guarantee the attitude, etc., of the Lower House itself.
+
+First trust, the guarantee of the electors, was the guarantee of the delegates. Now, this trust itself requires a further guarantee of its soundness.
+
+Hegel seems to be rather inclined to turn the Lower House into a chamber of civil service pensioners. He demands not only "political sense", but also "administrative", bureaucratic, sense.
+
+What he demands here really is that the legislature should be the actual governing power. He expresses this by demanding bureaucracy twice, once as representing the monarch and again as the representa- tive of the people.
+
+Even if in constitutional states civil servants are allowed to be deputies, this occurs only because in general there is abstraction from social rank, from civil quality, and the abstraction of citizenship prevails.
+
+Hegel forgets here that he made the representation originate in the corporations and that these are directly opposed by the executive. He goes so far in this forgetfulness—this forgetfulness in its turn is forgotten in the very next paragraph—that he carries it to the point of creating an essential distinction between delegates of the corpora- tions and delegates of the estates.
+
+In the Remark to this paragraph we read:
+
+Here the thoughtless inconsistency and the "administrative" sense of Hegel become truly repulsive. At the end of the Addition to the preceding paragraph [para. 309] he says:
+
+This guarantee for the electors has secretly been developed into a guarantee against the electors, against their "self-confidence". In the estates element the "empirical generality" was to attain to "the element of subjective formal freedom". In it, "public conscious- ness as the empirical generality of the opinions and thoughts of the many" was to come into existence (para. 301).
+
+[^1]: "Subjective opinion of oneself easily finds superfluous, or perhaps even offensive, the demand for such guarantees if it is made with regard to what is called the people. The state, however, is characterised by objectivity, not by a subjective opinion and its self-confidence; it can recognise in individuals only their objectively recognisable and tested qualities, and it must be all the more careful on this point in connection with this [the second] section of the estates since this section is rooted in interests and occupations directed towards the particular, i.e., in the sphere where chance, changeability, and caprice enjoy their right of free play."
+
+[^2]: "The electors require a guarantee that the delegate will further and secure this" (i. e., the task described above).
+
+
+
+^V*^ ^~*W^ V**** ^r^-f ****** $*£^~
+
+[^1]: A page from Marx's manuscript of the Contribution to the Critique of Hegel's
+
+[^2]: Philosophy of Law
+
+
+
+
+
+
+
+**[p. 127]**
+
+Now these "opinions and thoughts" are first to pass a government test to prove that they are "its" [the government's] opinions and thoughts. For Hegel here stupidly speaks of the state as a finished thing, although he is only now about to complete the construction of the state with the estates element. He speaks of the state as a concrete subject which "does not take into account subjective opinion and its self-confidence", and for which individuals must demonstrate their "recognisable" and "tested" qualities. All that is missing is for Hegel to demand that the estates should pass an examination set by their worshipful government. Hegel here descends almost to servility. We see him infected through and through with the miserable arrogance of the Prussian civil service which in its bureaucratic stupidity grandly looks down on the "self-confidence" of the "people's own subjective opinion". For Hegel the "state" is everywhere here identical with the "govern- ment".
+
+In an actual state "mere trust", "subjective opinion", can indeed not suffice. But in the state constructed by Hegel, the political attitude of civil society is mere opinion, precisely because the political being of civil society is an abstraction from its actual being; precisely because the state as a whole is not the objectification of the political attitude. If Hegel wished to be consistent, he would on the contrary have to make every effort to construe the estates element in accordance with its essential character (para. 301) as the being for themselves of matters of general concern in the thoughts, etc., of the many, that is, to construe it quite independently of the other presuppositions of the political state.
+
+Just as Hegel earlier described the view which presumes bad will in the government, etc., as the view of the vulgar crowd, so it is equally and still more characteristic of the vulgar crowd to presume bad will in the people. Hegel, then, must not find it either "superfluous" or "offensive" in the theoreticians, whom he despises, if they demand guarantees "with regard to what is called" the state, the soi-disant state, the government, if they demand guarantees that the attitude of the bureaucracy is the attitude of the state.
+
+[^1]: 311. "Delegation, since it issues from civil society, means furthermore that the delegates are conversant with the special needs, difficulties and particular interests of civil society and share them. Since in accordance with the nature of civil society delegation is initiated by its various corporations (para. 308), and since the simplicity of this mode of appointment is not impeded by abstractions and atomistic notions, it is thus directly satisfactory from this point of view and elections are either something altogether superfluous or reduced to a minor play of opinion and caprice."
+
+
+
+
+
+**[p. 128]**
+
+Firstly, Hegel links delegation in its character as "legislative power" (paras. 309, 310) to delegation as "issuing from civil society", i.e., to its representative nature, by a simple "further- more". The huge contradictions which are implied in this "fur- thermore" are expressed equally thoughtlessly by him.
+
+According to paragraph 309 the delegates are not to "champion the particular interests of a community or corporation against the general interest, but primarily assert the latter".
+
+According to paragraph 311 they come from the corporations, represent these particular interests and needs and do not allow themselves to be impeded by "abstractions"—as if the "general interest" were not just such an abstraction, and an abstraction precisely from the interests of their corporations, etc.
+
+In paragraph 310 it is stipulated that the delegates shall have acquired and tested an "administrative and political sense" through "the actual conduct of affairs, etc.". In paragraph 311 they are required to have a corporation and civil sense.
+
+In the Addition to paragraph 309 we read that "representation is founded on trust". According to paragraph 311 "elec- tions"—this realisation of trust, this giving effect to it and making it apparent—are "either something altogether superfluous or reduced to a minor play of opinion and caprice".
+
+That on which representation is founded, its essence, is thus for representation "either something altogether superfluous", etc. In one breath Hegel thus utters the flat contradictions: Representa- tion is founded on trust, on the reliance of one person on another, and it is not founded on that trust. This is merely an empty game. Not the particular interest but the person and his citizenship, the general interest, is the object of representation. On the other hand, the particular interest is the substance of representation, the spirit of this interest is the spirit of the representative.
+
+In the Remark to the paragraph which we are now considering, these contradictions are developed even more glaringly. At one time representation is the representation of the person; at another time, of a particular interest, a particular matter.
+
+[^1]: "It is obviously of advantage that amongst the delegates there should be individuals who can speak for each particular main branch of society—e. g., for trade, manufacture, etc.—who know that branch thoroughly, and themselves belong to it. With the notion of free, unrestricted elections this important consideration is left to chance only. Each of these branches, however, has the same right to be represented as the others. If the delegates are regarded as representa- tives, this has an organically rational meaning only when they are representatives not of individuals, of a conglomerate, but are representatives of one of the essential spheres of society, of its major interests. In this case representation no longer means
+
+
+
+
+
+**[p. 129]**
+
+that one takes the place of another, the point is rather that the interest itself is actually present in the representative, just as the representative is there for the sake of his own objective element.
+
+"It may further be remarked that election by the many individuals necessarily brings with it indifference towards voting, especially in large states, since one vote has an insignificant effect where there are so many, and those who are entitled to vote, however much this right is brought to their notice as something valuable, simply do not turn up to vote. The result of this institution is thus the very opposite of that which it was meant to produce and election falls under the control of a few, of a party, and thus of some particular, chance interest, which is precisely what was to have been neutralised." [Para. 311.]
+
+The two paragraphs 312 and 313 have been dealt with in what has gone before, and do not deserve any special discussion. We therefore simply quote them at this point:
+
+312. "Each of the two sections contained in the estates element (paras. 305, 308) makes a particular contribution to the work of deliberation; and since, moreover, one of them has the specific function of mediation in this sphere, and of mediating in fact between existing entities, it follows that this itself, likewise, has a distinct and separate existence. The assembly of the estates will thus be divided into two homes."
+
+Good Lord!
+
+313. "This division of the assembly, by providing more than one decision-making body, gives greater assurance of mature decisions, and eliminates both the fortuity of a passing mood and the accidental character which can belong to decision by a numerical majority. But above all, with this the estates element is less liable to confront the government in direct opposition; or in the event of the mediating element finding itself on the side of the second estate, the opinion of this estate will carry all the greater weight, since it will then seem more unbiassed, and its opposition will appear to be neutralised."2
+
+[^1]: a The manuscript ends at this point. The next sheet, which has no number, contains only the following words:
+
+[^2]: Contents
+
+[^3]: Concerning Hegel's Transition and Interpretation.—Ed.
+
+
+
+[A Passage from THE KREUZNACH NOTEBOOKS OF 1843]13
+
+Note. Under Louis XVIII, the constitution [by] grace of the king (Charter imposed by the king); under Louis Philippe, the king [by] grace of the constitution (imposed kingship).14 In general we can note that the conversion of the subject into the predicate, and of the predicate into the subject, the exchange of that which determines for that which is determined, is always the most immediate revolution. Not only on the revolutionary side. The king makes the law (old monarchy), the law makes the king (new monarchy). Likewise in regard to the constitution. The reac- tionaries as well. Primogeniture is the law of the state. The state demands the law of primogeniture. Owing to the fact, therefore, that Hegel makes the elements of the state idea the subject, and the old forms of existence of the state the predicate, whereas in historical reality the reverse is the case, the state idea being instead the predicate of those forms of existence, he expresses only the general character of the period, its political teleology. It is the same thing as with his philosophical-religious pantheism. By means of it all forms of unreason become forms of reason. But essentially here in religion reason is made the determining factor, while in the state the idea of the state is made the determining factor. This metaphysics is the metaphysical expression of reaction, of the old world as the truth of the new world outlook.
+
+[^1]: Written in July-August 1843 Printed according to the manu- First published in: script
+
+
+
+[DRAFT PROGRAMME OF THE DEUTSCH-FRANZÖSISCHE JAHRBÜCHER]15
+
+The articles of our annals will be written by Germans or Frenchmen, and will deal with
+
+1) Men and systems which have acquired a useful or dangerous influence, and political questions of the day, whether they concern constitutions, political economy, or public institutions and morals.
+
+2) We shall provide a review of newspapers and journals which in some way will be a castigation and correction of the servility and baseness shown by some, and which will help to call attention to the worthy efforts on behalf of humanity and freedom shown by others.
+
+3) We shall include a review of the literature and publications of the old regime of Germany which is decaying and destroying itself, and finally a review of the books of the two nations which mark the commencement and continuance of the new era that we are entering.
+
+[^1]: Written in August-September 1843 Printed according to the manu- Published for the first time script Translated from the French
+
+
+
+LETTER TO THE EDITOR OF THE DÉMOCRATIE PACIFIQUE1
+
+No. 28 of the Bien public contains the following lines:
+
+"The Kölnische Zeitung publishes a letter from Leipzig in which it is stated that a journal in French and German is due to appear shortly in Paris under the editorship of Dr. Ruge, to which M. de Lamartine and M. de Lamennais are said to have promised their collaboration.
+
+"It is not true that M. de Lamartine has undertaken to write in any journal and, in particular, in the one in question, with M. de Lamennais.
+
+"M. de Lamartine, who is wholly absorbed in his parliamentary work, is reserving for the Histoire des Girondins the little leisure that politics leaves him."
+
+It is true that M. de Lamartine has not undertaken to write for the journal in question with M. de Lamennais, but we affirm that he has let us hope for his collaboration in the journal that we are proposing to found.
+
+In addressing ourselves separately to these two famous person- ages, we have been prompted by the belief that for a work such as that of an intellectual alliance between France and Germany one should seek the support of all eminent representatives of progress in France.
+
+Furthermore, we declare that the letter from Leipzig published by the Kölnische Zeitung, which gave rise to the article in the Bien public, did not emanate from us or from any of our friends.
+
+Arnold Ruge, former editor of the Deutsche Jahrbücher
+
+Charles Marx, former editor of the Rheinische Zeitung Paris, December 10, 1843
+
+[^1]: First published in the Démocratie Printed according to the news- pacifique, December 11, 1843 paper Translated from the French Published in English for the first time
+
+
+
+LETTERS FROM THE DEUTSCH-FRANZÖSISCHE JAHRBÜCHER1*
+
+M. to R.a
+
+On the canal-boat going to D., March 1843
+
+I am now travelling in Holland. As far as I can judge from the Dutch and French newspapers, Germany is sunk deep in the mire and will sink still deeper. I assure you, even if one has no feeling of national pride at all, nevertheless one has a feeling of national shame, even in Holland. The most insignificant Dutchman is still a citizen compared with the greatest German. And the verdict of the foreigners on the Prussian Government! A horrifying unanimity prevails; no one is any longer deceived about the Prussian system and its simple nature. After all, therefore, the new school has been of some use. The mantle of liberalism has been discarded and the most disgusting despotism in all its nakedness is disclosed to the eyes of the whole world.
+
+That, too, is a revelation, although one of the opposite kind. It is a truth which, at least, teaches us to recognise the emptiness of our patriotism and the abnormity of our state system, and makes us hide our faces in shame. You look at me with a smile and ask: What is gained by that? No revolution is made out of shame. I reply: Shame is already revolution of a kind; shame is actually the victory of the French Revolution over the German patriotism that defeated it in 1813. Shame is a kind of anger which is turned inward. And if a whole nation really experienced a sense of shame, it would be like a lion, crouching ready to spring. I admit that in Germany even shame is not yet felt; on the contrary, these miserable people are still patriots. But what system is capable of knocking the patriotism out of them if not this ridiculous system
+
+[^1]: a Marx to Ruge.—Ed.
+
+
+
+
+
+**[p. 134]**
+
+M. to R.b
+
+Cologne, May 1843
+
+Your letter, my dear friend, is a fine elegy, a funeral song20 that takes one's breath away; but there is absolutely nothing political about it. No people wholly despairs, and even if for a long time it goes on hoping merely out of stupidity, yet one day, after many years, it will suddenly become wise and fulfil all its pious wishes.
+
+Nevertheless, you have infected me, your theme is still not exhausted, I want to add the finale, and when everything is at an end, give me your hand, so that we may begin again from the beginning. Let the dead bury their dead and mourn them. On the other hand, it is enviable to be the first to enter the new life alive; that is to be our lot.
+
+It is true that the old world belongs to the philistine. But one should not treat the latter as a bugbear from which to recoil in fear. On the contrary, we ought to keep an eye on him. It is worth while to study this lord of the world.
+
+He is lord of the world, of course, only because he fills it with his society as maggots do a corpse. Therefore the society of these lords needs no more than a number of slaves, and the owners of these slaves do not need to be free. Although, as being owners of land and people, they are called lords, in the sense of being pre-eminent, for all that they are no less philistines than their servants.
+
+As for human beings, that would imply thinking beings, free men, republicans. The philistines do not want to be either of these. What then remains for them to be and to desire?
+
+What they want is to live and reproduce themselves (and no one, says Goethe, achieves anything more), and that the animal
+
+[^1]: 3 Frederick William IV.—Ed. b Marx to Ruge.—Ed.
+
+
+
+DEUTSCH-FRANZÖSISCHE
+
+JAHRBUCHER
+
+herausgegeben
+
+Arnold Rüge un) Bari Ülarr.
+
+lste and 2te Lieferang.
+
+PARIS,
+
+484«
+
+[^1]: Cover of the Deutsch-Französisch« Jahrbücher
+
+
+
+
+
+
+
+**[p. 137]**
+
+The self-confidence of the human being, freedom, has first of all to be aroused again in the hearts of these people. Only this feeling, which vanished from the world with the Greeks, and under Christianity disappeared into the blue mist of the heavens, can again transform society into a community of human beings united for their highest aims, into a democratic state.
+
+On the other hand, people who do not feel that they are human beings become the property of their masters like a breed of slaves or horses. The aim of this whole society are the hereditary masters. This world belongs to them. They accept it as it is and as it feels itself to be. They accept themselves as they are, and place their feet firmly on the necks of these political animals who know of no other function than to be "obedient, devoted and attentive" to their masters.
+
+The philistine world is a political world of animals, and if we have to recognise its existence, nothing remains for us but simply to agree to this status quo. Centuries of barbarism engendered and shaped it, and now it confronts us as a consistent system, the principle of which is the dehumanised world. Hence the most complete philistine world, our Germany, was bound, of course, to remain far behind the French revolution, which once more restored man; and a German Aristotle who wanted to derive his politics from our conditions would write at the top of it: "Man is a social animal that is however completely unpolitical",3 but he could not explain the state more correctly than has already been done by Herr Zöpfl, the author of Constitutionellen Staatsrechts in Deutsch- land}' According to him, the state is a "union of families" which, we continue, belongs by heredity and property to a most eminent family called the dynasty. The more prolific the families, the happier, it is said, are the people, the greater is the state, and the more powerful the dynasty, for which reason, too, in Prussia, an ordinary despotic state, a prize of 50 imperial talers is awarded for a seventh son.
+
+The Germans are such circumspect realists that all their desires and their loftiest thoughts do not go beyond a bare existence. And this reality—nothing more—is taken into account by those who
+
+[^1]: a In contradistinction to the Greek Aristotle who in his Politics called man a political animal (Zoon politicon).—Ed.
+
+[^2]: b This is a reference to Zöpfl, Grundsätze des Allgemeinen und Constitutionen- Monarchistischen Staatsrechts—Ed.
+
+[^3]: 6—482
+
+
+
+
+
+**[p. 138]**
+
+The monarchical principle in general is the despised, the despicable, the dehumanised man; and Montesquieu was quite wrong to allege that it is honour.b He gets out of the difficulty by distinguishing between monarchy, despotism and tyranny. But those are names for one and the same concept, and at most they denote differences in customs though the principle remains the same. Where the monarchical principle has a majority behind it, human beings constitute the minority; where the monarchical principle arouses no doubts, there human beings do not exist at all. Why should someone like the King of Prussia,' to whom it has never been demonstrated that his role is problematical, not be guided exclusively by his whims? And when he acts in that way, what is the result? Contradictory intentions? Well, then nothing will come of it. Impotent trends? They are still the sole political reality. Ridiculous and embarrassing situations? There is only one situation which is ridiculous and only one which is embarrassing, and that is abdication from the throne. So long as whim retains its place, it is in the right. It can be as unstable, senseless and contemptible as it chooses, it is still good enough for ruling a
+
+[^1]: " "Just look at these toads!"—Ed- b Ch. L. Montesquieu, De l'esprit des lois.—Ed. c Frederick William IV.—Ed.
+
+
+
+
+
+**[p. 139]**
+
+people that has never known any other law but the arbitrary power of its kings. I do not say that a brainless system and loss of respect within the state and outside it will be without conse- quences, I do not undertake to insure the ship of fools, but I assert: the King of Prussia will remain the man of his time so long as the topsy-turvy world is the real world.
+
+As you know, I have given much thought to this man. Already at the time when he still had only the Berliner politische Wochenblatt as his organ, I recognised his value and his role. Already when the oath of allegiance was taken in Königsberg, he justified my supposition that the question would now become a purely personal one.21 He declared that his heart and his turn of mind would be the future fundamental law of the realm of Prussia, of his state, and in point of fact, in Prussia the king is the system. He is the sole political person. In one way or another, his personality determines the system. What he does or is allowed to do, what he thinks or what is attributed to him, is what in Prussia the state thinks or does. Therefore the present king has really performed a service by stating this so unambiguously.
+
+But the mistake which people made for a time was to attach importance to the desires and thoughts that would be expressed by the king. This could not alter the matter in the slightest: the philistine is the material of the monarchy, and the monarch always remains only the king of the philistines; he cannot turn either himself or his subjects into free, real human beings while both sides remain what they are.
+
+The King of Prussia has tried to alter the system by means of a theory which in this form his father3 really did not have. The fate of this attempt is well known. It was a complete failure. This was to be expected. Once one has arrived at the political world of animals, reaction can go no farther, and there can be no other advance than the abandonment of the basis of this world and the transition to the human world of democracy.
+
+The old king had no extravagant desires, he was a philistine and made no claim to intellect. He knew that the state of servants and his possession of it required only a prosaic, tranquil existence. The young king was more alert and brighter and had a much higher opinion of the omnipotence of the monarch, who is only limited by his heart and mind. The old ossified state of servants and slaves disgusted him. He wanted to enliven it and imbue it wholly and entirely with his own desires, sentiments and thoughts; and in his
+
+[^1]: a Frederick William III.—£d.
+
+[^2]: 6*
+
+
+
+
+
+**[p. 140]**
+
+state he could demand this, if only it could be brought about. Hence his liberal speeches and the outpourings of his heart. Not dead laws, but the full, vigorous heart of the king should rule all his subjects. He wanted to set all hearts and minds into motion for the benefit of his own heart's desires and long-cherished plans. A movement did result; but the other hearts did not beat like that of the king, and those over whom he ruled could not open their mouths without speaking about the abolition of the old domina- tion. The idealists, who have the audacity to want to turn men into human beings, spoke out, and while the king wove fantasies in the old German manner, they considered they had the right to philosophise in the new German manner. Of course, this was shocking in Prussia. For a moment the old order of things seemed to have been turned upside-down; indeed things began to be transformed into human beings, there even appeared renowned persons, although the mention of names is not permitted in the Diets. But the servants of the old despotism soon put an end to this un-German activity. It was not difficult to bring about a marked conflict between the desires of the king, who is enthusing about a great past full of priests, knights and feudal serfs, and the intentions of the idealists, who want only the consequences of the French Revolution and therefore, in the final count, always a republic and an organisation of free human beings instead of the system of dead objects. When this conflict had become sufficiently sharp and unpleasant and the hot-tempered king was sufficiently aroused, his servants, who previously had so easily guided the course of affairs, approached him and asserted that he was not acting wisely in inducing his subjects to make useless speeches, and that his servants would not be able to rule this race of vociferous people. In addition, the sovereign of all the posterior-Russians was alarmed by the movement in the minds of the anterior-Russiansa
+
+and demanded the restoration of the old tranquil state of affairs. And so the result was a new edition of the old proscription of all the desires and thoughts of people in regard to human rights and duties, that is to say, a return to the old ossified state of servants, in which the slave serves in silence, and the owner of the land and people rules, as silently as possible, simply through a class of well-bred, submissively obedient servants. It is not possible for either of them to say what he wants: the slave cannot say that he wants to become a human being, nor can the ruler say that he has
+
+[^1]: a Marx ironically calls the Prussians (in Latin Borussen) Vorderrussen (anterior- Russians), and Nicholas I the sovereign of all the Hinterrussen (posterior- Russians).—Ed.
+
+
+
+
+
+**[p. 141]**
+
+no use for human beings in his country. To be silent, therefore, is the only way out. Muta pecora, prona et ventri oboedientia?
+
+That is the unsuccessful attempt to abolish the philistine state on its own basis; the result has been to make it evident to the whole world that for despotism brutality is a necessity and humanity an impossibility. A brutal relationship can only be maintained by means of brutality. And now I have finished with our common task, that of taking a close look at the philistine and his state. You will not say that I have had too high an opinion of the present time; and if, nevertheless, I do not despair of it, that is only because it is precisely the desperate situation which fills me with hope. I am not speaking of the incapacity of the masters and of the indifference of the servants and subjects who let everything happen just as God pleases—although both together would already suffice to bring about a catastrophe. I simply draw your attention to the fact that the enemies of philistinism, in short, all people who think and who suffer, have reached an understanding, for which previously the means were altogether lacking, and that even the passive system of reproduction of the subjects of the old type daily enlists recruits to serve the new type of humanity. The system of industry and trade, of ownership and exploitation of people, however, leads even far more rapidly than the increase in population to a rupture within present-day society, a rupture which the old system is not able to heal, because it does not heal and create at all, but only exists and consumes. But the existence of suffering human beings, who think, and thinking human beings, who are oppressed, must inevitably become unpalatable and indigestible to the animal world of philistinism which passively and thoughtlessly consumes.
+
+For our part, we must expose the old world to the full light of day and shape the new one in a positive way. The longer the time that events allow to thinking humanity for taking stock of its position, and to suffering mankind for mobilising its forces, the more perfect on entering the world will be the product that the present time bears in its womb.
+
+Kreuznach, September 1843 I am glad that you have made up your mind and, ceasing to look back at the past, are turning your thoughts ahead to a new
+
+[^1]: M. to R.b
+
+[^2]: a The herd is dumb, prostrate and obedient to its stomach.—Ed. b Marx to Ruge.—Ed.
+
+
+
+
+
+**[p. 142]**
+
+enterprise.22 And so—to Paris, to the old university of philosophy—absit omen!"—and the new capital of the new world! What is necessary comes to pass. I have no doubt, therefore, that it will be possible to overcome all obstacles, the gravity of which I do not fail to recognise.
+
+But whether the enterprise comes into being or not, in any case I shall be in Paris by the end of this month,23 since the atmosphere here makes one a serf, and in Germany I see no scope at all for free activity.
+
+In Germany, everything is forcibly suppressed; a real anarchy of the mind, the reign of stupidity itself, prevails there, and Zurich obeys orders from Berlin. It therefore becomes increasingly obvious that a new rallying point must be sought for truly thinking and independent minds. I am convinced that our plan would answer a real need, and after all it must be possible for real needs to be fulfilled in reality. Hence I have no doubt about the enterprise, if it is undertaken seriously.
+
+The internal difficulties seem to be almost greater than the external obstacles. For although no doubt exists on the question of "Whence", all the greater confusion prevails on the question of "Whither". Not only has a state of general anarchy set in among the reformers, but everyone will have to admit to himself that he has no exact idea what the future ought to be. On the other hand, it is precisely the advantage of the new trend that we do not dogmatically anticipate the world, but only want to find the new world through criticism of the old one. Hitherto philosophers have had the solution of all riddles lying in their writing-desks, and the stupid, exoteric world had only to open its mouth for the roast pigeons of absolute knowledge to fly into it. Now philosophy has become mundane, and the most striking proof of this is that philosophical consciousness itself has been drawn into the torment of the struggle, not only externally but also internally. But, if constructing the future and settling everything for all times are not our affair, it is all the more clear what we have to accomplish at present: I am referring to ruthless criticism of all that exists, ruthless both in the sense of not being afraid of the results it arrives at and in the sense of being just as little afraid of conflict with the powers that be.
+
+Therefore I am not in favour of raising any dogmatic banner. On the contrary, we must try to help the dogmatists to clarify their propositions for themselves. Thus, communism, in particular, is a
+
+[^1]: a May it not be an ill omen!—Ed.
+
+
+
+
+
+**[p. 143]**
+
+dogmatic abstraction; in which connection, however, I am not thinking of some imaginary and possible communism, but actually existing communism as taught by Cabet, Dézamy, Weitling, etc. This communism is itself only a special expression of the humanis- tic principle, an expression which is still infected by its an- tithesis—the private system. Hence the abolition of private prop- erty and communism are by no means identical, and it is not accidental but inevitable that communism has seen other socialist doctrines—such as those of Fourier, Proudhon, etc.—arising to confront it because it is itself only a special, one-sided realisation of the socialist principle.
+
+And the whole socialist principle in its turn is only one aspect that concerns the reality of the true human being. But we have to pay just as much attention to the other aspect, to the theoretical existence of man, and therefore to make religion, science, etc., the object of our criticism. In addition, we want to influence our contemporaries, particularly our German contemporaries. The question arises: how are we to set about it? There are two kinds of facts which are undeniable. In the first place religion, and next to it, politics, are the subjects which form the main interest of Germany today. We must take these, in whatever form they exist, as our point of departure, and not confront them with some ready-made system such as, for example, the Voyage en Icarie.'
+
+Reason has always existed, but not always in a reasonable form. The critic can therefore start out from any form of theoretical and practical consciousness and from the forms peculiar to existing reality develop the true reality as its obligation and its final goal. As far as real life is concerned, it is precisely the political state—in all its modern forms—which, even where it is not yet consciously imbued with socialist demands, contains the demands of reason. And the political state does not stop there. Everywhere it assumes that reason has been realised. But precisely because of that it everywhere becomes involved in the contradiction between its ideal function and its real prerequisites.
+
+From this conflict of the political state with itself, therefore, it is possible everywhere to develop the social truth. Just as religion is a register of the theoretical struggles of mankind, so the political state is a register of the practical struggles of mankind. Thus, the political state expresses, within the limits of its form sub specie rei publicae,b all social struggles, needs and truths. Therefore, to take
+
+[^1]: " Etienne Cabet, Voyage en Icarie. Roman philosophique et social.—Ed. b Asa particular kind of state.—Ed.
+
+
+
+
+
+**[p. 144]**
+
+Hence, nothing prevents us from making criticism of politics, participation in politics, and therefore real struggles, the starting point of our criticism, and from identifying our criticism with them. In that case we do not confront the world in a doctrinaire way with a new principle: Here is the truth, kneel down before it! We develop new principles for the world out of the world's own principles. We do not say to the world: Cease your struggles, they are foolish; we will give you the true slogan of struggle. We merely show the world what it is really fighting for, and conscious- ness is something that it has to acquire, even if it does not want to.
+
+The reform of consciousness consists only in making the world aware of its own consciousness, in awakening it out of its dream about itself, in explaining to it the meaning of its own actions. Our whole object can only be—as is also the case in Feuerbach's criticism of religion—to give religious and philosophical questions the form corresponding to man who has become conscious of himself.
+
+Hence, our motto must be: reform of consciousness not through dogmas, but by analysing the mystical consciousness that is unintelligible to itself, whether it manifests itself in a religious or a political form. It will then become evident that the world has long dreamed of possessing something of which it has only to be conscious in order to possess it in reality. It will become evident that it is not a question of drawing a great mental dividing line between past and future, but of realising the thoughts of the past. Lastly, it will become evident that mankind is not beginning a new work, but is consiously carrying into effect its old work.
+
+[^1]: a Level of principles.—Ed.
+
+
+
+
+
+**[p. 145]**
+
+In short, therefore, we can formulate the trend of our journal as being: self-clarification (critical philosophy) to be gained by the present time of its struggles and desires. This is a work for the world and for us. It can be only the work of united forces. It is a matter of a confession, and nothing more. In order to secure remission of its sins, mankind has only to declare them for what they actually are.
+
+Written in March, May and Printed according to the journal September 1843
+
+First published in the Deutsch-Französisch« Jahrbücher, 1844
+
+ON THE JEWISH QUESTION24
+
+1. BRUNO BAUER, DIE JUDENFRAGE, BRAUNSCHWEIG, 1843 2. BRUNO BAUER, "DIE FÄHIGKEIT DER HEUTIGEN JUDEN UND CHRISTEN, FREI ZU WERDEN". EINUNDZWANZIG BOGEN
+
+AUS DER SCHWEIZ, PUBLISHED BY GEORG HERWEGH. ZÜRICH AND WINTF.RTHUR, 1843, pp. 56-71
+
+I
+
+Bruno Bauer, Die Judenfrage, Braunschweig, 1843
+
+The German Jews desire emancipation. What kind of emancipa- tion do they desire? Civic, political emancipation.
+
+Bruno Bauer replies to them: No one in Germany is politically emancipated. We ourselves are not free. How are we to free you? You Jews are egoists if you demand a special emancipation for yourselves as Jews. As Germans, you ought to work for the political emancipation of Germany, and as human beings, for the emancipa- tion of mankind, and you should feel the particular kind of your oppression and your shame not as an exception to the rule, but on the contrary as a confirmation of the rule.
+
+Or do the Jews demand the same status as Christian subjects of the state"? In that case they recognise that the Christian state is justified and they recognise too the regime of general oppression. Why should they disapprove of their special yoke if they approve of the general yoke? Why should the German be interested in the liberation of the Jew, if the Jew is not interested in the liberation of the German?
+
+The Christian state knows only privileges. In this state the Jew has the privilege of being a Jew. As a Jew, he has rights which the Christians do not have. Why should he want rights which he does not have, but which the Christians enjoy?
+
+In wanting to be emancipated from the Christian state, the Jew is demanding that the Christian state should give up its religious prejudice. Does he, the Jew, give up his religious prejudice? Has he then the right to demand that someone else should renounce his religion?
+
+
+
+**[p. 147]**
+
+The Christian state can behave towards the Jew only in the way characteristic of the Christian state, that is, by granting privileges, by permitting the separation of the Jew from the other subjects, but making him feel the pressure of all the other separate spheres of society, and feel it all the more intensely because he is in. religious opposition to the dominant religion. But the Jew, too, can behave towards the state only in a Jewish way, that is, by treating it as something alien to him, by counterposing his imaginary nationality to the real nationality, by counterposing his illusory law to the real law, by deeming himself justified in separating himself from mankind, by abstaining on principle from taking part in the historical movement, by putting his trust in a future which has nothing in common with the future of mankind in general, and by seeing himself as a member of the Jewish people, and the Jewish people as the chosen people.
+
+On what grounds then do you Jews want emancipation? On account of your religion? It is the mortal enemy of the state religion. As citizens? In Germany there are no citizens. As human beings? But you are no more human beings than those to whom you appeal.
+
+Bauer has posed the question of Jewish emancipation in a new form, after giving a critical analysis of the previous formulations and solutions of the question. What, he asks, is the nature of the Jew who is to be emancipated and of the Christian state that is to emancipate him? He replies by a critique of the Jewish religion, he analyses the religious opposition between Judaism and Christianity, he elucidates the essence of the Christian state—and he does all this audaciously, trenchantly, wittily, and with profundity, in a style of writing that is as precise as it is pithy and vigorous.
+
+How then does Bauer solve the Jewish question? What is the result? The formulation of a question is its solution. The critique of the Jewish question is the answer to the Jewish question. The summary, therefore, is as follows:
+
+We must emancipate ourselves before we can emancipate others. The most rigid form of the opposition between the Jew and the Christian is the religious opposition. How is an opposition re- solved? By making it impossible. How is religious opposition made impossible? By abolishing religion. As soon as Jew and Christian
+
+
+
+**[p. 148]**
+
+"Very well," it is said, and the Jew himself says it, "the Jew is to become emancipated not as a Jew, not because he is a Jew, not because he possesses such an excellent, universally human principle of morality; on the contrary, the Jew will retreat behind the citizen and be a citizen, although he is a Jew and is to remain a Jew. That is to say, he is and remains a Jew, although he is a citizen and lives in universally human conditions: his Jewish and restricted nature triumphs always in the end over his human and political obligations. The prejudice remains in spite of being outstripped by general principles. But if it remains, then, on the contrary, it outstrips everything else." "Only sophistically, only apparently, would the Jew be able to remain .a Jew in the life of the state. Hence, if he wanted to remain a Jew, the mere appearance would become the essential and would triumph; that is to say, his life in the state would be only a semblance or only a temporary exception to the essential and the rule." ("Die Fähigkeit der heutigen Juden und Christen, frei zu werden". Einundzwanzig Bogen, p. 57.)
+
+Let us hear, on the other hand, how Bauer presents the task of the state.
+
+When, therefore, would the Jewish question be solved for France?
+
+[^1]: "France," he says, "has recently shown us" (Proceedings of the Chamber of Deputies, December 26, 1840) "in connection with the Jewish question—just as it has continually done in all other political questions—the spectacle of a life which is free, but which revokes its freedom by law, hence declaring it to be an appearance, and on the other hand contradicting its free laws by its action." (Die Judenfrage, p. 64.)
+
+[^2]: "In France, universal freedom is not yet the law, the Jewish question too has not yet been solved, because legal freedom—the fact that all citizens are equal—is restricted in actual life, which is still dominated and divided by religious privileges, and this lack of freedom in actual life reacts on law and compels the latter to sanction the division of the citizens, who as such are free, into oppressed and oppressors." (P. 65.)
+
+
+
+
+
+**[p. 149]**
+
+"The Jew, for example, would have ceased to be a Jew if he did not allow himself to be prevented by his laws from fulfilling his duty to the state and his fellow citizens, that is, for example, if on the Sabbath he attended the Chamber of Deputies and took part in the official proceedings. Every religious privilege, and therefore also the monopoly of a privileged church, would have been abolished altogether, and if some or many persons, or even the overwhelming majority, still believed themselves bound to fulfil religious duties, this fulfilment ought to be left to them as a pwefy private matter," (P. 65.) "There is no longer any religion when there is no longer any privileged religion. Take from religion its exclusive power and it will no longer exist." (P. 66.) "Just as M. Martin du Nord saw the proposal to omit mention of Sunday in the law as a motion to declare that Christianity has ceased to exist, with equal reason (and this reason is very well founded) the declaration that the law of the Sabbath is no longer binding on the Jew would be a proclamation abolishing Judaism." (P. 71.)
+
+Bauer therefore demands, on the one hand, that the Jew should renounce Judaism, and that mankind in general should renounce religion, in order to achieve civic emancipation. On the other hand, he quite consistently regards the political abolition of religion as the abolition of religion as such. The state which presupposes religion is not yet a true, real state.
+
+"Of course, the religious notion affords security to the state. But to what state? To what kind of state}" (P. 97.)
+
+At this point the one-sided formulation of the Jewish question becomes evident.
+
+It was by no means sufficient to investigate: Who is to emanci- pate? Who is to be emancipated? Criticism had to investigate a third point. It had to inquire: What kind of emancipation is in question? What conditions follow from the very nature of the emancipation that is demanded? Only the criticism of political emancipation itself would have been the conclusive criticism of the Jewish question and its real merging in the "general question of the time".
+
+Because Bauer does not raise the question to this level, he becomes entangled in contradictions. He puts forward conditions which are not based on the nature of political emancipation itself. He raises questions which are not part of his problem, and he solves problems which leave his question unanswered. When Bauer says of the opponents of Jewish emancipation: "Their error was only that they assumed the Christian state to be the only true one and did not subject it to the same criticism that they applied to Judaism" (op. cit., p. 3), we find that his error lies in the fact that he subjects to criticism only the "Christian state", not the "state as such", that he does not investigate the relation of political emancipation to human emancipation and therefore puts forward conditions which can be explained only by uncritical confusion of
+
+
+
+**[p. 150]**
+
+The Jewish question acquires a different form depending on the state in which the Jew lives. In Germany, where there is no political state, no state as such, the Jewish question is a purely theological one. The Jew finds himself in religious opposition to the state, which recognises Christianity as its basis. This state is a theologian ex professo. Criticism here is criticism of theology, a double-edged criticism, criticism of Christian theology and of Jewish theology. Hence, we continue to operate in the sphere of theology, however much we may operate critically within it.
+
+In France, a constitutional state, the Jewish question is a question of constitutionalism, the question of the incompleteness of political emancipation. Since the semblance of a state religion is retained here, although in a meaningless and self-contradictory formula, that of a religion of the majority, the relation of the Jew to the state retains the semblance of a religious, theological opposition.
+
+Only in the North American states—at least in some of them—does the Jewish question lose its theological significance and become a really secular question. Only where the political state exists in its completely developed form can the relation of the Jew, and of the religious man in general, to the political state, and therefore the relation of religion to the state, show itself in its specific character, in its purity. The criticism of this relation ceases to be theological criticism as soon as the state ceases to adopt a theological attitude towards religion, as soon as it behaves towards religion as a state, i.e., politically. Criticism then becomes criticism of the political state. At this point, where the question ceases to be theological, Bauer's criticism ceases to be critical.
+
+[^1]: "Il n'existe aux Etats-Unis ni religion de l'Etat, ni religion déclarée celle de la majorité ni prééminence d'un culte sur un autre. L'Etat est étranger à tous les cultes."3 (Marie ou l'esclavage aux Etats-Unis, etc., par G. de Beaumont, [t. II,] Paris, 1835, p. 214.) Indeed, there are some North American states where "la constitution n'impose pas Us croyances religieuses et la pratique d'un culte comme condition des privilèges politiques".b
+
+[^2]: "In the United States there is neither a state religion nor a religion declared to be that of the majority, nor the predominance of one cult over another. The state stands aloof from all cults."—Ed.
+
+[^3]: "The constitution does not impose any religious belief or religious practice as a condition of political rights."—Ed.
+
+
+
+(op. cit., p. 225.) Nevertheless, "on ne croit pas aux Etats-Unis qu'un homme sans religion puisse être un honnête homme", (op. cit., p. 224.)
+
+Nevertheless, North America is pre-eminently the country of religiosity, as Beaumont, Tocqueville and the Englishman Hamil- ton unanimously assure us. The North American states, however, serve us only as an example. The question is: What is the relation of complete political emancipation to religion? If we find that even in the country of complete political emancipation, religion not only exists, but displays a fresh and vigorous vitality, that is proof that the existence of religion is not in contradiction to the perfection of the state. Since, however, the existence of religion is the existence of a defect, the source of this defect can only be sought in the nature of the state itself. We no longer regard religion as the cause, but only as the manifestation of secular narrowness. Therefore we explain the religious limitations of the free citizens by their secular limitations. We do not assert that they must overcome their religious narrowness in order to get rid of their secular restric- tions, we assert that they will overcome their religious narrowness once they get rid of their secular restrictions. We do not turn secular questions into theological questions. We turn theological questions into secular ones. History has long enough been merged in superstition, we now merge superstition in history. The ques- tion of the relation of political emancipation to religion becomes for us the question of the relation of political emancipation to human emancipation. We criticise the religious weakness of the political state by criticising the political • state in its secular form, apart from its weaknesses as regards religion. The contradiction between the state and a particular religion, for instance Judaism, is given by us a human form as the contradiction between the state and particular secular elements; the contradiction between the state and religion in general as the contradiction between the state and its presuppositions in general.
+
+The political emancipation of the Jew, the Christian, and in general of religious man is the emancipation of the state from Judaism, from Christianity, from religion in general. In its own form, in the manner characteristic of its nature, the state as a state emancipates itself from religion by emancipating itself from the
+
+[^1]: * "In the United States people do not believe that a man without religion could be an honest man."—Ed.
+
+[^2]: b A. de Tocqueville, De la Démocratie en Amérique; Thomas Hamilton, Men and Manners in North America, Edinburgh, 1833, 2 vols. Marx quotes from the German translation Die Menschen und die Sitten in den Vereinigten Staaten von Nordamerika.—Ed.
+
+
+
+
+
+**[p. 152]**
+
+state religion, that is to say, by the state as a state not professing any religion, but, on the contrary, asserting itself as a state. The political emancipation from religion is not a religious emancipation that has been carried through to completion and is free from contradiction, because political emancipation is not a form of human emancipation which has been carried through to comple- tion and is free from contradiction.
+
+The limits of political emancipation are evident at once from the fact that the state can free itself from a restriction without man being really free from this restriction, that the state can be a free state* without man being a free man. Bauer himself tacitly admits this when he lays down the following condition for political emancipation:
+
+"Every religious privilege, and therefore also the monopoly of a privileged church, would have been abolished altogether, and if some or many persons, or even the overwhelming majority, still believed themselves bound to fulfil religious duties, this fulfilment ought to be left to them as a purely private matter." [Bruno Bauer, Die Judenfrage, p. 65.]
+
+It is possible, therefore, for the state to have emancipated itself from religion even if the overwhelming majority is still religious. And the overwhelming majority does not cease to be religious through being religious in private.
+
+But the attitude of the state, and of the republic* in particular, to religion is after all only the attitude to religion of the men who compose the state. It follows from this that man frees himself through the medium of the state, that he frees himself politically from a limitation when, in contradiction with himself, he raises himself above this limitation in an abstract, limited, and partial way. It follows further that, by freeing himself politically, man frees himself in a roundabout way, through an intermediary, although an essential intermediary. It follows, finally, that man, even if he proclaims himself an atheist through the medium of the state, that is, if he proclaims the state to be atheist, still remains in the grip of religion, precisely because he acknowledges himself only by a roundabout route, only through an intermediary. Religion is precisely the recognition of man in a roundabout way, through an intermediary. The state is the intermediary between man and man's freedom. Just as Christ is the intermediary to whom man transfers the burden of all his divinity, all his religious constraint, so the state is the intermediary to whom man transfers all his non-divinity and all his human unconstraint.
+
+[^1]: a A pun on the word Freistaat, i. e., republic, for if it is taken literally, it means "free state".
+
+
+
+
+
+**[p. 153]**
+
+The political elevation of man above religion shares all the defects and all the advantages of political elevation in general. The state as a state annuls, for instance, private property, man declares by political means that private property is abolished as soon as the property qualification for the right to elect or be elected is abolished, as has occurred in many states of North America. Hamilton quite correctly interprets this fact from a political point of view as meaning: "the masses have won a victory over the property owners and financial wealth".* Is not private property abolished in idea if the non-property owner has become the legislator for the property owner? The property qualification for the suffrage is the last political form of giving recognition to private property.
+
+Nevertheless the political annulment of private property not only fails to abolish private property but even presupposes it. The state abolishes, in its own way, distinctions of birth, social rank, education, occupation, when it declares that birth, social rank, education occupation, are non-political distinctions, when it proclaims, without regard to these distinctions, that every member of the nation is an equal participant in national sovereignty, when it treats all elements of the real life of the nation from the standpoint of the state. Nevertheless, the state allows private property, education, occupa- tion, to act in their way, i. e., as private property, as education, as occupation, and to exert the influence of their special nature. Far from abolishing these real distinctions, the state only exists on the presupposition of their existence; it feels itself to be a political state and asserts its universality only in opposition to these elements of its being. Hegel therefore defines the relation of the political state to religion quite correctly when he says:
+
+Of course! Only in this way, above the particular elements, does the state constitute itself as universality.
+
+The perfect political state is, by its nature, man's species-life, as opposed to his material life. All the preconditions of this egoistic life continue to exist in civil society outside the sphere of the state, but
+
+[^1]: "In order [] that the state should come into existence as the self-knowing, moral reality of the mind, its distinction from the form of authority and faith is essential. But this distinction emerges only insofar as the ecclesiastical aspect arrives at a separation within itself. It is only in this way that the state, above the particular churches, has achieved and brought into existence universality of thought, which is the principle of its form" (Hegel's Rechtsphilosophie, 1st edition, p. 346).
+
+[^2]: a Thomas Hamilton, Die Menschen und die Sitten in den Vereinigten Staaten von Nordamerica, Bd. 1, S. 146.—Ed.
+
+[^3]: b Hegel, Grundlinien der Philosophie des Rechts. In this quotation words empha- sised by Marx are set in bold italics, words emphasised by both Marx and Hegel in italics.—Ed.
+
+
+
+
+
+**[p. 154]**
+
+as qualities of civil society. Where the political state has attained its true development, man—not only in thought, in consciousness, but in reality, in life—leads a twofold life, a heavenly and an earthly life: life in the political community, in which he considers himself a communal being, and life in civil society, in which he acts as a private individual, regards other men as a means, degrades himself into a means, and becomes the plaything of alien powers. The relation of the political state to civil society is just as spiritual as the relation of heaven to earth. The political state stands in the same opposition to civil society, and it prevails over the latter in the same way as religion prevails over the narrowness of the secular world, i.e., by likewise having always to acknowledge it, to restore it, and allow itself to be dominated by it. In his most immediate reality, in civil society, man is a secular being. Here, where he regards himself as a real individual, and is so regarded by others, he is a fictitious phenomenon. In the state, on the other hand, where man is regarded as a species-being, he is the imaginary member of an illusory sovereignty, is deprived of his real individual life and endowed with an unreal universality.
+
+Man, as the adherent of a particular religion, finds himself in conflict with his citizenship and with other men as members of the community. This conflict reduces itself to the secular division between the political state and civil society. For man as a bourgeois," "life in the state" is "only a semblance or a temporary exception to the essential and the rule".b Of course, the bourgeois, like the Jew, remains only sophistically in the sphere of political life, just as the citoyen only sophistically remains a Jew or a bourgeois. But this sophistry is not personal. It is the sophistry of the political state itself. The difference between the religious man and the citizen is the difference between the merchant and the citizen, between the day-labourer and the citizen, between the landowner and the citizen, between the living individual and the citizen. The contradic- tion in which the religious man finds himself with the political man is the same contradiction in which the bourgeois finds himself with the citoyen, and the member of civil society with his political lion's skin.
+
+This secular conflict, to which the Jewish question ultimately reduces itself, the relation between the political state and its preconditions, whether these are material elements, such as private property, etc., or spiritual elements, such as culture or religion,
+
+[^1]: a Here meaning a member of civil society.—Ed.
+
+[^2]: Bruno Bauer, "Die Fähigkeit der heutigen Juden und Christen, frei zu werden", p. 57 (see also this volume, p. 148).—Ed.
+
+
+
+
+
+**[p. 155]**
+
+the conflict between the general interest and private interest, the schism between the political state and civil society—these secular antitheses Bauer allows to persist, whereas he conducts a polemic against their religious expression.
+
+"It is precisely the basis of civil society, the need that ensures the continuance of this society and guarantees its necessity, which exposes its existence to continual dangers, maintains in it an element of uncertainty, and produces that continually changing mixture of poverty and riches, of distress and prosperity, and brings about change in general." (P. 8.)
+
+Compare the whole section: "Civil Society" (pp. 8-9), which has been drawn up along the basic lines of Hegel's philosophy of law. Civil society, in its opposition to the political state, is recognised as necessary, because the political state is recognised as necessary.
+
+Political emancipation is, of course, a big step forward. True, it is not the final form of human emancipation in general, but it is the final form of human emancipation within the hitherto existing world order. It goes without saying that we are speaking here of real, practical emancipation.
+
+Man ^emancipates himself politically from religion by banishing it from the sphere of public law to that of private law. Religion is no longer the spirit of the state, in which man behaves—although in a limited way, in a particular form, and in a particular sphere—as a species-being, in community with other men. Religion has become the spirit of civil society, of the sphere of egoism, of bellum omnium contra omnes. It is no longer the essence of community, but the essence of difference. It has become the expression of man's separation from his community, from himself and from other men — as it was originally. It is only the abstract avowal of specific perversity, private whimsy, and arbitrariness. The endless fragmen- tation of religion in North America, for example, gives it even externally the form of a purely individual affair. It has been thrust among the multitude of private interests and ejected from the community as such. But one should be under no illusion about the limits of political emancipation. The division of the human being into a public man and a private man, the displacement of religion from the state into civil society, this is not a stage of political emancipation but its completion; this emancipation therefore neither abolishes the real religiousness of man, nor strives to do so.
+
+The decomposition of man into Jew and citizen, Protestant and citizen, religious man and citizen, is neither a deception directed against citizenhood, nor is it a circumvention of political emancipa- tion, it is political emancipation itself, the political method of emancipating oneself from religion. Of course, in periods when
+
+
+
+**[p. 156]**
+
+Indeed, the perfect Christian state is not the so-called Christian state, which acknowledges Christianity as its basis, as the state religion, and therefore adopts an exclusive attitude towards other religions. On the contrary, the perfect Christian state is the atheistic state, the democratic state, the state which relegates religion to a place among the other elements of civil society. The state which is still theological, which still officially professes Christianity as its creed, which still does not dare to proclaim itself as a state, has, in its reality as a state, not yet succeeded in expressing the human basis—of which Christianity is the high-flown expres- sion—in a secular, human form. The so-called Christian state is simply nothing more than a non-state, since it is not Christianity as a religion, but only the human background of the Christian religion, which can find its expression in actual human creations.
+
+The so-called Christian state is the Christian negation of the state, but by no means the political realisation of Christianity. The state which still professes Christianity in the form of religion, does not yet profess it in the form appropriate to the state, for it still has a religious attitude towards religion, that is to say, it is not the true implementation of the human basis of religion, because it still relies on the unreal, imaginary form of this human core. The so-called Christian state is the imperfect state, and the Christian religion is regarded by it as the supplementation and sanctification of its imperfection. For the Christian state, therefore, religion necessarily becomes a means; hence it is a hypocritical state. It makes a great difference whether the complete state, because of the defect inherent in the general nature of the state, counts religion among its presuppositions, or whether the incomplete state, because
+
+
+
+**[p. 157]**
+
+In order to make this contradiction clearer, let us consider Bauer's projection of the Christian state, a projection based on his observation of the Christian-German state.
+
+"Recently," says Bauer, "in order to prove the impossibility or non-existence of a Christian state, reference has frequently been made to those sayings in the Gospel with which the [present-day] state not only does not comply, but cannot possibly comply, if it does not want to dissolve itself completely [as a state]." "But the matter cannot be disposed of so easily. What do these Gospel sayings demand? Supernatural renunciation of self, submission to the authority of revelation, a turning-away from the state, the abolition of secular conditions. Well, the Christian state demands and accomplishes all that. It has assimilated the spirit of the Gospel, and if it does not reproduce this spirit in the same terms as the Gospel, that occurs only because it expresses this spirit in political forms, i.e., in forms which, it is true, are taken from the political system in this world, but which in the religious rebirth that they have to undergo become degraded to a mere semblance. This is a turning-away from the state while making use of political forms for its realisation." (P. 55.)
+
+Bauer then explains that the people of a Christian state is only a non-people, no longer having a will of its own, but whose true existence lies in the leader to whom it is subjected, although this leader by his origin and nature is alien to it, i.e., given by God and imposed on the people without any co-operation on its part. Bauer declares that the laws of such a people are not its own creation, but are actual revelations, that its supreme chief needs privileged intermediaries with the people in the strict sense, with the masses, and that the masses themselves are divided into a multitude of particular groupings which are formed and deter- mined by chance, which are differentiated by their interests, their particular passions and prejudices, and obtain permission, as a privilege, to isolate themselves from one another, etc. (P. 56.)
+
+However, Bauer himself says:
+
+[^1]: "Politics, if it is to be nothing but religion, ought not to be politics, just as the cleaning of saucepans, if it is to be accepted as a religious matter, ought not to be regarded as a matter of domestic economy." (P. 108.)
+
+
+
+
+
+**[p. 158]**
+
+The separation of the "spirit of the Gospel" from the "letter of the Gospel" is an irreligious act. A state which makes the Gospel speak in the language of politics, that is, in another language than that of the Holy Ghost, commits sacrilege, if not in human eyes, then in the eyes of its own religion. The state which acknowledges Christianity as its supreme criterion and the Bible as its Charter, must be confronted with the words of Holy Scripture, for every word of Scripture is holy. This state, as well as the human rubbish on which it is based, is caught in a painful contradiction that is insoluble from the standpoint of religious consciousness when it is referred to those sayings of the Gospel with which it "not only does not comply, but cannot possibly comply, if it does not want to dissolve itself completely as a state". And why does it not want to dissolve itself completely? The state itself cannot give an answer either to itself or to others. In its own consciousness the official Christian state is an imperative, the realisation of which is unattain- able, the state can assert the reality of its existence only by lying to itself, and therefore always remains in its own eyes an object of doubt, an unreliable, problematic object. Criticism is therefore fully justified in forcing the state that relies on the Bible into a mental derangement in which it no longer knows whether it is an illusion or a reality, and in which the infamy of its secular aims, for which religion serves as a cloak, comes into insoluble conflict with the sincerity of its religious consciousness, for which religion appears as the aim of the world. This state can only save itself from its inner torment if it becomes the police agent of the Catholic Church. In relation to the church, which declares the secular power to be its servant, the state is powerless, the secular power which claims to be the rule of the religious spirit is powerless.
+
+It is indeed estrangement which matters in the so-called Christian state, but not man. The only man who counts, the king, is a being specifically different from other men, and is moreover a religious being, directly linked with heaven, with God. The relationships which prevail here are still relationships dependent on faith. The religious spirit, therefore, is still not really secularised.
+
+But, furthermore, the religious spirit cannot be really secular- ised, for what is it in itself but the non-secular form of a stage in the development of the human mind? The religious spirit can only be secularised insofar as the stage of development of the human
+
+
+
+**[p. 159]**
+
+mind of which it is the religious expression makes its appearance and becomes constituted in its secular form. This takes place in the democratic state. Not Christianity, but the human basis of Christiani- ty is the basis of this state. Religion remains the ideal, non-secular consciousness of its members, because religion is the ideal form of the stage of human development achieved in this state.
+
+The members of the political state are religious owing to the dualism between individual life and species-life, between the life of civil society and political life. They are religious because men treat the political life of the state, an area beyond their real individuali- ty, as if it were their true life. They are religious insofar as religion here is the spirit of civil society, expressing the separation and remoteness of man from man. Political democracy is Christian since in it man, not merely one man but every man, ranks as sovereign, as the highest being, but it is man in his uncivilised, unsocial form, man in his fortuitous existence, man just as he is, man as he has been corrupted by the whole organisation of our society, who has lost himself, been alienated, and handed over to the rule of inhuman conditions and elements — in short, man who is not yet a real species-being. That which is a creation of fantasy, a dream, a postulate of Christianity, i.e., the sovereignty of man—but man as an alien being different from the real man—becomes in democracy tangible reality, present existence, and secular principle.
+
+In the perfect democracy, the religious and theological con- sciousness itself is in its own eyes the more religious and the more theological because it is apparently without, political significance, without worldly aims, the concern of a disposition that shuns the world, the expression of intellectual narrow-mindedness, the pro- duct of arbitrariness and fantasy, and because it is a life that is really of the other world. Christianity attains here the practical expression of its universal-religious significance in that the most diverse world outlooks are grouped alongside one another in the form of Christianity and still more because it does not require other people to profess Christianity, but only religion in general, any kind of religion (cf. Beaumont's work quoted above). The religious consciousness revels in the wealth of religious contra- dictions and religious diversity.
+
+We have thus shown that political emancipation from religion leaves religion in existence, although not a privileged religion. The contradiction in which the adherent of a particular religion finds himself involved in relation to his citizenship is only one aspect of the universal secular contradiction between the political state and civil
+
+
+
+**[p. 160]**
+
+society. The consummation of the Christian state is the state which acknowledges itself as a state and disregards the religion of its members. The emancipation of the state from religion is not the emancipation of the real man from religion.
+
+Therefore we do not say to the Jews as Bauer does: You cannot be emancipated politically without emancipating yourselves radical- ly from Judaism. On the contrary, we tell them: Because you can be emancipated politically without renouncing Judaism completely and incontrovertibly, political emancipation itself is not human emancipation. If you Jews want to be emancipated politically without emancipating yourselves humanly, the half-hearted ap- proach and contradiction is not in you alone, it is inherent in the nature and category of political emancipation. If you find yourself within the confines of this category, you share in a general confinement. Just as the state evangelises when, although it is a state, it adopts a Christian attitude towards the Jews, so the Jew acts politically when, although a Jew, he demands civic rights.
+
+But if a man, although a Jew, can be emancipated politically and receive civic rights, can he lay claim to the so-called rights oif man and receive them? Bauer denies it.
+
+"The question is whether the Jew as such, that is, the Jew who himself admits that he is compelled by his true nature to live permanently in separation from other men, is capable of receiving the universal rights of man and of conceding them to others."
+
+According to Bauer, man has to sacrifice the "privilege of faith" to be able to receive the universal rights of man. Let us examine for a moment the so-called rights of man, to be precise, the rights of man in their authentic form, in the form which they have among those who discovered them, the North Americans and the French. These rights of man are in part political rights, rights which can only be exercised in a community with others. Their
+
+[^1]: "For the Christian world, the idea of the rights of man was only discovered in the last century. It is not innate in men; on the contrary, it is gained only in a struggle against the historical traditions in which hitherto man was brought up. Thus the rights of man are not a gift of nature, not a legacy from past history, but the reward of the struggle against the accident of birth and against the privileges which up to now have been handed down by history from generation to generation. These rights are the result of culture, and only one who has earned and deserved them can possess them."
+
+[^2]: "Can the Jew really take possession of them? As long as he is a Jew, the restricted nature which makes him a Jew is bound to triumph over the human nature which should link him as a man with other men, and will separate him from non-Jews. He declares by this separation that the particular nature which makes him a Jew is his true, highest nature, before which human nature has to give way."
+
+[^3]: "Similarly, the Christian as a Christian cannot grant the rights of man." (P. 19, 20.)
+
+
+
+
+
+**[p. 161]**
+
+Included among them is freedom of conscience, the right to practise any religion one chooses. The privilege of faith is expressly recognised either as a right of man or as the consequence of a right of man, that of liberty.
+
+Déclaration des droits de l'homme et du citoyen, 1791, article 10: "Nul ne doit être inquiété pour ses opinions même religieuses."0 "La liberté à tout homme d'exercer le culte religieux auquel il est attaché"d is guaranteed as a right of man in Section I of the Constitution of 1791.
+
+Declaration des droits de l'homme, etc., 1793, includes among the rights of man, Article 7: "Le libre exercice des cultes.'" Indeed, in regard to man's right to express his thoughts and opinions, to hold meetings, and to exercise his religion, it is even stated: "La nécessité d'énoncer ces droits suppose ou la présence ou le souvenir récent du despotisme."f Compare the Constitution of 1795, Section XIV, Article 354."
+
+Constitution de Pensylvanie, article 9, § 3: "Tous les hommes ont reçu de la nature le droit imprescriptible d'adorer le Tout-Puissant selon les inspirations de leur conscience, et nul ne peut légalement être contraint de suivre, instituer ou soutenir contre son gré aucun culte ou ministère religieux. Nulle autorité humaine ne peut, dans aucun cas, intervenir dans les questions de conscience et contrôler les pouvoirs de l'âme."«
+
+[^1]: Constitution de New-Hampshire, article 5 et 6: "Au nombre des droits naturels, quelques-uns sont inaliénables de leur nature, parce que rien n'en peut être 1 équivalent. De ce nombre sont les droits de conscience." (Beaumont, op. cit., [t. 11,1 pp. 213, 214.)
+
+[^2]: 1 Rights of man.—Ed. b Rights of the citizen.—Ed. c Declaration of the Rights of Man and of the Citizen, 1791, Article 10: "No one is to be subjected to annoyance because of his opinions, even religious opinions."—Ed. "The freedom of every man to practise the religion of which he is an adherent."—Ed.
+
+[^3]: e The Declaration of the Rights of Man, etc., 1793, "The free exercise of religion."—Ed.
+
+[^4]: "The necessity of proclaiming these rights presupposes either the existence or the recent memory of despotism."—Ed.
+
+[^5]: 9 Constitution of Pennsylvania, Article 9, § 3: "All men have received from nature the imprescriptible right to worship the Almighty according to the dictates of their conscience, and no one can be legally compelled to follow, establish or support against his will any religion or religious ministry. No human authority can, in any circumstances, intervene in a matter of conscience or control the forces of the soul."—Ed.
+
+[^6]: h Constitution of New Hampshire, Articles 5 and 6: "Among these natural rights some are by nature inalienable since nothing can replace them. The rights of conscience are among them."—Ed.
+
+
+
+
+
+**[p. 162]**
+
+The droits de l'homme, the rights of man, are as such distinct from the droits du citoyen, the rights of the citizen. Who is homme as distinct from citoyen? None other than the member of civil society. Why is the member of civil society called "man", simply man; why are his rights called the rights of man} How is this fact to be explained? From the relationship between the political state and civil society, from the nature of political emancipation.
+
+Above all, we note the fact that the so-called rights of man, the droits de l'homme as distinct from the droits du citoyen, are nothing but the rights of a member of civil society, i. e., the rights of egoistic man, of man separated from other men and from the community. Let us hear what the most radical Constitution, the Constitution of 1793, has to say:
+
+Déclaration des droits de l'homme et du citoyen. Article 2. "Ces droits, etc. (les droits naturels et imprescriptibles) sont: YégaÀité, la liberté, la sûreté, la propriété."1
+
+What constitutes liberty?
+
+Liberty, therefore, is the right to do everything that harms no one else. The limits within which anyone can act without harming someone else are defined by law, just as the boundary between two fields is determined by a boundary post. It is a question of the liberty of man as an isolated monad, withdrawn into himself. Why is the Jew, according to Bauer, incapable of acquiring the rights of man?
+
+But the right of man to liberty is based not on the association of man with man, but on the separation of man from man. It is the
+
+[^1]: Article 6. "La liberté est le pouvoir qui appartient à l'homme de faire tout ce qui ne nuit pas aux droits d'autrui", or, according to the Declaration of the Rights of Man of 1791: "La liberté consiste à pouvoir faire tout ce qui ne nuit pas à autrui."b
+
+[^2]: "As long as he is a Jew, the restricted nature which makes him a Jew is bound to triumph over the human nature which should link him as a man with other men, and will separate him from non-Jews."
+
+[^3]: a Declaration of the Rights of Man and of the Citizen. Article 2. "These rights, etc., (the natural and imprescriptible rights) are: equality, liberty, security, properly."—Ed.
+
+[^4]: b Article 6. "Liberty is the power which man has to do everything that does not harm the rights of others", or "Liberty consists in being able to do everything which does not harm others."—Ed.
+
+
+
+
+
+**[p. 163]**
+
+right of this separation, the right of the restricted individual, withdrawn into himself.
+
+The practical application of man's right to liberty is man's right to private property.
+
+What constitutes man's right to private property?
+
+Article 16 (Constitution de 1793): "Le droit de propriété est celui qui appartient à tout citoyen de jouir et de disposer à son gré de ses biens, de ses revenus, du fruit de son travail et de son industrie."3
+
+The right of man to private property is, therefore, the right to enjoy one's property and to dispose of it at one's discretion (à son gré), without regard to other men, independently of society, the right of self-interest. This individual liberty and its application form the basis of civil society. It makes every man see in other men not the realisation of his own freedom, but the barrier to it. But, above all, it proclaims the right of man
+
+"de jouir et de disposer à son gré de ses biens, de ses revenus, du fruit de son travail et de son industrie".
+
+There remain the other rights of man: égalité and sûreté. Égalité, used here in its non-political sense, is nothing but the equality of the liberté described above, namely: each man is to the same extent regarded as such a self-sufficient monad. The Constitution of 1795 defines the concept of this equality, in accordance with its significance, as follows:
+
+And sûreté?
+
+Security is the highest social concept of civil society, the concept of police, expressing the fact that the whole of society exists only in order to guarantee to each of its members the preservation of his person, his rights, and his property. It is in this sense that Hegel calls civil society "the state of need and reason".0
+
+[^1]: Article 3 (Constitution de 1795): "L'égalité consiste en ce que la loi est la même pour tous, soit qu'elle protège, soit qu'elle punisse."0
+
+[^2]: Article 8 (Constitution de 1793): "La sûreté consiste dans la protection accordée par la société à chacun de ses membres pour la conservation de sa personne, de ses droits et de ses propriétés."
+
+[^3]: * Article 16 (Constitution of 1793): "The right of property is that which every citizen has of enjoying and of disposing at his discretion of his goods and income, of the fruits of his labour and industry."—Ed.
+
+[^4]: "of enjoying and of disposing at his discretion of his goods and income, of the fruits of his labour and industry".—Ed.
+
+[^5]: c Article 3 (Constitution of 1795): "Equality consists in the law being the same for all, whether it protects or punishes."—Ed.
+
+[^6]: d Article 8 (Constitution of 1793): "Security consists in the protection afforded by society to each of its members for the preservation of his person, his rights, and his property."—Ed.
+
+[^7]: é Hegel, Grundlinien der Philosophie des Rechts. Werke. Bd. VIII, S. 242.—Ed.
+
+
+
+
+
+**[p. 164]**
+
+The concept of security does not raise civil society above its egoism. On the contrary, security is the insurance of its egoism.
+
+None of the so-called rights of man, therefore, go beyond egoistic man, beyond man as a member of civil society, that is, an individual withdrawn into himself, into the confines of his private interests and private caprice, and separated from the community. In the rights of man, he is far from being conceived as a species-being; on the contrary, species-life itself, society, appears as a framework external to the individuals, as a restriction of their original independence. The sole bond holding them together is natural necessity, need and private interest, the preservation of their property and their egoistic selves.
+
+It is puzzling enough that a people which is just beginning to liberate itself, to tear down all the barriers between its various sections, and to establish a political community, that such a people solemnly proclaims (Declaration of 1791) the rights of egoistic man separated from his fellow men and from the community, and that indeed it repeats this proclamation at a moment when only the most heroic devotion can save the nation, and is therefore imperatively called for, at a moment when the sacrifice of all the interests of civil society must be the order of the day, and egoism must be punished as a crime. (Declaration of the Rights of Man, etc., of 1793.) This fact becomes still more puzzling when we see that the political emancipators go so far as to reduce citizenship, and the political community, to a mere means for maintaining these so-called rights of man, that therefore the citoyen is declared to be the servant of egoistic homme, that the sphere in which man acts as a communal being is degraded to a level below the sphere in which he acts as a partial being, and that, finally, it is not man as citoyen, but man as bourgeois who is considered to be the essential and true man.
+
+Hence even in moments when its enthusiasm still has the freshness of youth and is intensified to an extreme degree by the force of circumstances, political life declares itself to be a mere means, whose purpose is the life of civil society. It is true that its
+
+[^1]: "Le but de toute association politique est la conservation des droits naturels et imprescriptibles de l'homme." (Déclaration des droits, etc., de 1791, article 2.) "Le gouvernement est institué pour garantir à l'homme la jouissance de ses droits naturels et imprescriptibles." (Déclaration, etc., de 1793, article 1.)
+
+[^2]: a "The aim of all political association is the preservation of the natural and imprescriptible rights of man." (Declaration of the Rights, etc., of 1791, Article 2.) "Government is instituted in order to guarantee man the enjoyment of his natural and imprescriptible rights." (Declaration, etc., of 1793, Article 1.)—Ed.
+
+
+
+
+
+**[p. 165]**
+
+revolutionary practice is in flagrant contradiction with its theory. Whereas, for example, security is declared one of the rights of man, violation of the privacy of correspondence is openly declared to be the order of the day. Whereas the "liberté indéfinie de la presse"3 (Constitution of 1793, Article 122) is guaranteed as a consequence of the right of man to individual liberty, freedom of the press is totally destroyed, because "la liberté de la presse ne doit pas être permise lorsqu'elle compromet la liberté publique".b
+
+(Robespierre jeune, Histoire parlementaire de la Révolution française par Bûchez et Roux, T. 28, p. 159.) That is to say, therefore: The right of man to liberty ceases to be a right as soon as it comes into conflict with political life, whereas in theory political life is only the guarantee of human rights, the rights of the individual, and therefore must be abandoned as soon as it comes into contradic- tion with its aim, with these rights of man. But practice is merely the exception, theory is the rule. But even if one were to regard revolutionary practice as the correct presentation of the relation- ship, there would still remain the puzzle of why the relationship is turned upside-down in the minds of the political emancipators and the aim appears as the means, while the means appears as the aim. This optical illusion of their consciousness would still remain a puzzle, although now a psychological, a theoretical puzzle.
+
+The puzzle is easily solved. Political emancipation is at the same time the dissolution of the old society on which the state alienated from the people, the sovereign power, is based. Political revolution is a revolution of civil society. What was the character of the old society? It can be described in one word—feudalism. The character of the old civil society was directly political, that is to say, the elements of civil life, for example, property, or the family, or the mode of labour, were raised to the level of elements of political life in the form of seigniory, estates, and corporations. In this form they determined the relation of the individual to the state as a whole, i.e., his political relation, that is, his relation of separation and exclusion from the other components of society. For that organisation of national life did not raise property or labour to the level of social elements; on the contrary, it completed their separation from the state as a whole and constituted them as discrete societies within society. Thus, the vital functions and conditions of life of civil society remained nevertheless political, although political in the feudal sense, that is
+
+[^1]: a "Unlimited freedom of the press".—Ed. b "Freedom of the press should not be permitted when it endangers public liberty."—Ed.
+
+
+
+
+
+**[p. 166]**
+
+to say, they secluded the individual from the state as a whole and they converted the particular relation of his corporation to the state as a whole into his general relation to the life of the nation, just as they converted his particular civil activity and situation into his general activity and situation. As a result of this organisation, the unity of the state, and also the consciousness, will and activity of this unity, the general power of the state, are likewise bound to appear as the particular affair of a ruler isolated from the people, and of his servants.
+
+The political revolution which overthrew this sovereign power and raised state affairs to become affairs of the people, which constituted the political state as a matter of general concern, that is, as a real state, necessarily smashed all estates, corporations, guilds, and privileges, since they were all manifestations of the separation of the people from the community. The political revolution thereby abolished the political character of civil society. It broke up civil society into its simple component parts; on the one hand, the individuals; on the other hand, the material and spiritual elements constituting the content of the life and social position of these individuals. It set free the political spirit, which had been, as it were, split up, partitioned and dispersed in the various blind alleys of feudal society. It gathered the dispersed parts of the political spirit, freed it from its intermixture with civil life, and established it as the sphere of the community, the general concern of the nation, ideally independent of those particular elements of civil life. A person's distinct activity and distinct situation in life were reduced to a merely individual significance. They no longer constituted the general relation of the individual to the state as a whole. Public affairs as such, on the other hand, became the general affair of each individual, and the political function became the individual's general function.
+
+But the completion of the idealism of the state was at the same time the completion of the materialism of civil society. Throwing off the political yoke meant at the same time throwing off the bonds which restrained the egoistic spirit of civil society. Political emancipation was at the same time the emancipation of civil society from politics, from having even the semblance of a universal content.
+
+Feudal society was resolved into its basic element—man, but man as he really formed its basis—egoistic man.
+
+This man, the member of civil society, is thus the basis, the precondition, of the political state. He is recognised as such by this state in the rights of man.
+
+
+
+**[p. 167]**
+
+Hence man was not freed from religion, he received religious freedom. He was not freed from property, he received freedom to own property. He was not freed from the egoism of business, he received freedom to engage in business.
+
+The establishment of the political state and the dissolution of civil society into independent individuals—whose relations with one another depend on law, just as the relations of men in the system of estates and guilds depended on privilege—is accomplished by one and the same act. Man as a member of civil society, unpolitical man, inevitably appears, however, as the natura/ man. The droits de l'homme appear as droits naturels, because conscious activity is concentrated on the political act. Egoistic man is the passive result of the dissolved society, a result that is simply found in existence, an object of immediate certainty, therefore a natural object. The political revolution resolves civil life into its component parts, without revolutionising these components themselves or subjecting them to criticism. It regards civil society, the world of needs, labour, private interests, civil law, as the basis of its existence, as a precondition not requiring further substantiation and therefore as its natural basis. Finally, man as a member of civil society is held to be man in the proper sense, homme as distinct from the citoyen, because he is man in his sensuous, individual, immediate existence, whereas political man is only abstract, artificial man, man as an allegorical, juridical person. The real man is recognised only in the shape of the egoistic individual, the true man is recognised only in the shape of the abstract citoyen.
+
+Therefore Rousseau correctly describes the abstract idea of political man as follows:
+
+[^1]: "Celui qui ose entreprendre d'instituer un peuple doit se sentir en état de changer pour ainsi dire la nature humain«, de transformer chaque individu, qui par lui-même est un tout parfait et solitaire, en partie d'un plus grand tout dont cet individu reçoive en quelque sorte sa vie et son être, de substituer une existence partielle et morale à l'existence physique et indépendante. Il faut qu'il ôte à l'homme ses forces propres pour lui en donner qui lui soient étrangères et dont il ne puisse faire usage sans le secours d'autrui."* (Contrat Social, livre II, Londres, 1782, P- 67.)
+
+[^2]: a "Whoever dares undertake to establish a people's institutions must feel him- self capable of changing, as it were, human nature, of trans/orming each individual, who by himself is a complete and solitary whole, into a part of a larger whole, from which, in a sense, the individual receives his life and his being, of substituting a
+
+
+
+
+
+**[p. 168]**
+
+Political emancipation is the reduction of man, on the one hand, to a member of civil society, to an egoistic, independent individual, and, on the other hand, to a citizen, a juridical person.
+
+Only when the real, individual man re-absorbs in himself the abstract citizen, and as an individual human being has become a species-being in his everyday life, in his particular work, and in his particular situation, only when man has recognised and organised his "forces propres"* as social forces, and consequently no longer separates social power from himself in the shape of political power, only then will human emancipation have been accomplished.
+
+II "Die Fähigkeit der heutigen Juden und Christen,
+
+frei zu werden". Von Bruno Bauer (Einundzwanzig Bogen, pp. 56-71).
+
+It is in this form that Bauer deals with the relation between the Jewish and the Christian religions, and also with their relation to criticism. Their relation to criticism, is their relation "to the capacity to become free".
+
+The result arrived at is:
+
+Thus Bauer here transforms the question of Jewish emancipa- tion into a purely religious question. The theological problem as to whether the Jew or the Christian has the better prospect of salvation is repeated here in the enlightened form: which of them is more capable of emancipation. No longer is the question asked: Is it Judaism or Christianity that makes a man free? On the contrary, the question is now: Which makes man freer, the negation of Judaism or the negation of Christianity?
+
+[^1]: "The Christian has to surmount only one stage, namely, that of his religion, in order to give up religion altogether", and therefore to become free. "The Jew, on the other hand, has to break not only with his Jewish nature, but also with the development towards perfecting his religion, a development which has remained alien to him." (P. 71.)
+
+[^2]: "If the Jews want to become free, they should profess belief not in Christianity, but in the dissolution of Christianity, in the dissolution of religion in general, that is to say, in enlightenment, criticism and its consequence, free humanity." (P. 70.)
+
+[^3]: limited and mental existence for the physical and independent existence. He has to take from man his own powers, and give him in exchange alien powers which he cannot employ without the help of other men."—Ed.
+
+[^4]: a Own powers.—Ed.
+
+
+
+
+
+**[p. 169]**
+
+For the Jew, it is still a matter of a profession of faith, but no longer a profession of belief in Christianity, but of belief in Christianity in dissolution.
+
+Bauer demands of the Jews that they should break with the essence of the Christian religion, a demand which, as he says himself, does not arise out of the development of Judaism.
+
+Since Bauer, at the end of his work on the Jewish question, had conceived Judaism only as crude religious criticism of Christianity, and therefore saw in it "merely" a religious significance, it could be foreseen that the emancipation of the Jews, too, would be transformed into a philosophical-theological act.
+
+Bauer considers that the ideal, abstract nature of the Jew, his religion, is his entire nature. Hence he rightly concludes:
+
+"The Jew contributes nothing to mankind if he himself disregards his narrow law", if he invalidates his entire Judaism. (P. 65.)
+
+Accordingly the relation between Jews and Christians becomes the following: the sole interest of the Christian in the emancipa- tion of the Jew is a general human interest, a theoretical interest. Judaism is a fact that offends the religious eye of the Christian. As soon as his eye ceases to be religious, this fact ceases to be offensive. The emancipation of the Jew is in itself not a task for the Christian.
+
+The Jew, on the other hand, in order to emancipate himself, has to carry out not only his own work, but also that of the Christian, i.e., the Kritik der Synoptiker and Das Leben Jesu,* etc.
+
+We are trying to break with the theological formulation of the question. For us, the question of the Jew's capacity for emancipa- tion becomes the question: What particular social element has to be overcome in order to abolish Judaism? For the present-day Jew's capacity for emancipation is the relation of Judaism to the emancipation of the modern world. This relation necessarily results from the special position of Judaism in the contemporary enslaved world.
+
+Let us consider the actual, worldly Jew, not the Sabbath Jew, as Bauer does, but the everyday Jew.
+
+Let us not look for the secret of the Jew in his religion, but let us look for the secret of his religion in the real Jew.
+
+What is the secular basis of Judaism? Practical need, self-interest.
+
+[^1]: "It is up to them to deal with it: they themselves will decide their fate; but history is not to be trifled with." (P. 71.)
+
+[^2]: a A reference to Bruno Bauer, Kritik der evangelischen Geschichte der Synoptiker, and David Friedrich Strauss, Das Leben Jesu.—Ed.
+
+[^3]: 7—482
+
+
+
+
+
+**[p. 170]**
+
+Very well then! Emancipation from huckstering and money, consequently from practical, real Judaism, would be the self- emancipation of our time.
+
+An organisation of society which would abolish the precondi- tions for huckstering, and therefore the possibility of huckstering, would make the Jew impossible. His religious consciousness would be dissipated like a thin haze in the real, vital air of society. On the other hand, if the Jew recognises that this practical nature of his is futile and works to abolish it, he extricates himself from his previous development and works for human emancipation as such and turns against the supreme practical expression of human self-estrangement.
+
+We recognise in Judaism, therefore, a general anti-social element of the present time, an element which through historical develop- ment—to which in this harmful respect the Jews have zealously contributed—has been brought to its present high level, at which it must necessarily begin to disintegrate.
+
+In the final analysis, the emancipation of the Jews is the emancipa- tion of mankind from Judaism?
+
+The Jew has already emancipated himself in a Jewish way.
+
+This is no isolated fact. The Jew has emancipated himself in a Jewish manner, not only because he has acquired financial power, but also because, through him and also apart from him, money has become a world power and the practical Jewish spirit has become the practical spirit of the Christian nations. The Jews have emanci- pated themselves insofar as the Christians have become Jews.
+
+Captain Hamilton, tor example, reports:
+
+[^1]: "The Jew, who in Vienna, for example, is only tolerated, determines the fate of the whole Empire by his financial power. The Jew, who may have no rights in the smallest German state, decides the fate of Europe. While corporations and guilds refuse to admit Jews, or have not yet adopted a favourable attitude towards them, the audacity of industry mocks at the obstinacy of the medieval institutions." (Bruno Bauer, Die Judenfrage, p. 114.)
+
+[^2]: "The devout and politically free inhabitant of New England is a kind of Laocoön who makes not the least effort to escape from the serpents which are crushing him. Mammon is his idol which he adores not only with his lips but with the whole force of his body and mind. In his view the world is no more than a Stock Exchange, and he is convinced that he has no other destiny here below than to become richer
+
+[^3]: a Here and elsewhere in this article Marx evidently uses the words Jude and Judentum also in the figurative sense, i.e., denoting usury, huckstering, trading, etc.—Ed.
+
+
+
+
+
+**[p. 171]**
+
+than his neighbour. Trade has seized upon all his thoughts, and he has no other recreation than to exchange objects. When he travels he carries, so to speak, his goods and his counter on his back and talks only of interest and profit. If he loses sight of his own business for an instant it is only in order to pry into the business of his competitors.""
+
+Indeed, in North America the practical domination of Judaism over the Christian world has achieved as its unambiguous and normal expression that the preaching of the Gospel itself and the Christian ministry have become articles of trade, and the bankrupt trader deals in the Gospel just as the Gospel preacher who has become rich goes in for business deals.
+
+"Tel que vous le voyez à la tête d'une congrégation respectable a commencé par être marchand; son commerce étant tombé, il s'est fait ministre; cet autre a débuté par le sacerdoce, mais dès qu'il a eu quelque somme d'argent à la disposition, il a laissé la chaire pour le négoce. Aux yeux d'un grand nombre, le ministire religieux est une véritable carrière industrielle."b (Beaumont, op. cit., pp. 185, 186.)
+
+According to Bauer, it is
+
+"a fictitious state of affairs when in theory the Jew is deprived of political rights, whereas in practice he has immense power and exerts his political influence en gros, although it is curtailed en détail." {Die Judenfrage, p. 114.)
+
+The contradiction that exists between the practical political power of the Jew and his political rights is the contradiction between politics and the power of money in general. Although theoretically the former is superior to the latter, in actual fact politics has become the serf of financial power.
+
+Judaism has held its own alongside Christianity, not only as religious criticism of Christianity, not only as the embodiment of doubt in the religious derivation of Christianity, but equally be- cause the practical-Jewish spirit, Judaism, has maintained itself and even attained its highest development in Christian society. The Jew, who exists as a distinct member of civil society, is only a particular manifestation of the Judaism of civil society.
+
+Judaism continues to exist not in spite of history, but owing to history.
+
+The Jew is perpetually created by civil society from its own entrails.
+
+What, in itself, was the basis of the Jewish religion? Practical need, egoism.
+
+[^1]: a Hamilton, op. cit., Bd. I, S. 109-10.—Ed. b "The man who you see at :he head of a respectable congregation began as a trader; his business having failed, he became a minister. The other began as a priest but as soon as he had some money at his disposal he left the pulpit to become a trader. In the eyes of nery many people, the religious ministry is a veritable business career."—Ed.
+
+
+
+
+
+**[p. 172]**
+
+Money is the jealous god of Israel, in face of which no other god may exist. Money degrades all the gods of man—and turns them into commodities. Money is the universal self-established value of all things. It has therefore robbed the whole world—both the world of men and nature—of its specific value. Money is the estranged essence of man's work and man's existence, and this alien essence dominates him, and he worships it.
+
+The god of the Jews has become secularised and has become the god of the world. The bill of exchange is the real god of the Jew. His god is only an illusory bill of exchange.
+
+The view of nature attained under the dominion of private property and money is a real contempt for and practical debase- ment of nature; in the Jewish religion nature exists, it is true, but it exists only in imagination.
+
+It is in this sense that Thomas Münzer declares it intolerable
+
+Contempt for theory, art, history, and for man as an end in himself, which is contained in an abstract form in the Jewish religion, is the real, conscious standpoint, the virtue of the man of money. The species-relation itself, the relation between man and woman, etc., becomes an object of trade! The woman is bought and sold.
+
+The chimerical nationality of the Jew is the nationality of the merchant, of the man of money in general.
+
+The groundless3 law of the Jew is only a religious caricature of groundless" morality and right in general, of the purely formal rites with which the world of self-interest surrounds itself.
+
+Here, too, man's supreme relation is the legal one, his relation to laws that are valid for him not because they are laws of his own will and nature, but because they are the dominant laws and because departure from them is avenged.
+
+Jewish Jesuitism, the same practical Jesuitism which Bauer
+
+[^1]: "that all creatures have been turned into property, the fishes in the water, the birds in the air, the plants on the earth; the creatures, too, must become free".28
+
+[^2]: a In German a pun on the term grund- und bodenlos, which can mean "without land" or "without reason".—Ed.
+
+
+
+
+
+**[p. 173]**
+
+discovers in the Talmud, is the relation of the world of self- interest to the laws governing that world, the chief art of which consists in the cunning circumvention of these laws.
+
+Indeed, the movement of this world within its framework of laws is bound to be a continual suspension of law.
+
+Judaism could not develop further as a religion, could not develop further theoretically, because the world outlook of practi- cal need is essentially limited and is completed in a few strokes.
+
+By its very nature, the religion of practical need could find its consummation not in theory, but only in practice, precisely because its truth is practice.
+
+Judaism could not create a new world; it could only draw the new creations and conditions of the world into the sphere of its activity, because practical need, the rationale of which is self- interest, is passive and does not expand at will, but finds itself enlarged as a result of the continuous development of social conditions.
+
+Judaism reaches its highest point with the perfection of civil society, but it is only in the Christian world that civil society attains perfection. Only under the dominance of Christianity, which makes all national, natural, moral, and theoretical conditions extrinsic to man, could civil society separate itself completely from the life of the state, sever all the species-ties of man, put egoism and selfish need in the place of these species-ties, and dissolve the human world into a world of atomistic individuals who are inimically opposed to one another.
+
+Christianity sprang from Judaism. It has merged again in Judaism.
+
+From the outset, the Christian was the theorising Jew, the Jew is therefore the practical Christian, and the practical Christian has become a Jew again.
+
+Christianity had only in semblance overcome real Judaism. It was too noble-minded, too spiritualistic to eliminate the crudity of practical need in any other way than by elevation to the skies.
+
+Christianity is the sublime thought of Judaism, Judaism is the common practical application of Christianity, but this application could only become general after Christianity as a developed religion had completed theoretically the estrangement of man from himself and from nature.
+
+Only then could Judaism achieve universal dominance and make alienated man and alienated nature into alienable, vendible objects subjected to the slavery of egoistic need and to trading.
+
+
+
+**[p. 174]**
+
+Selling is the practical aspect of alienation.* Just as man, as long as he is in the grip of religion, is able to objectify his essential nature only by turning it into something alien, something fantastic, so under the domination of egoistic need he can be active practically, and produce objects in practice, only by putting his products, and his activity, under the domination of an alien being, and bestowing the significance of an alien entity—money—on them.
+
+In its perfected practice, Christian egoism of heavenly bliss is necessarily transformed into the corporal egoism of the Jew, heavenly need is turned into worldly need, subjectivism into self-interest. We explain the tenacity of the Jew not by his religion, but, on the contrary, by the human basis of his religion—practical need, egoism.
+
+Since in civil society the real nature of the Jew has been universally realised and secularised, civil society could not convince the Jew of the unreality of his religious nature, which is indeed only the ideal aspect of practical need. Consequently, not only in the Pentateuch and the Talmud, but in present-day society we find the nature of the modern Jew, and not as an abstract nature but as one that is in the highest degree empirical, not merely as a narrowness of the Jew, but as the Jewish narrowness of society.
+
+Once society has succeeded in abolishing the empirical essence of Judaism—huckstering and its preconditions—the Jew will have become impossible, because his consciousness no longer has an object, because the subjective basis of Judaism, practical need, has been humanised, and because the conflict between man's individu- al-sensuous existence and his species-existence has been abolished.
+
+The social emancipation of the Jew is the emancipation of society from Judaism.
+
+[^1]: Written in the autumn of 1843 Printed according to the journal
+
+[^2]: First published in the Deutsch-französische Jahrbücher, 1844
+
+[^3]: Signed: Karl Marx
+
+[^4]: a In the German original Veräußerung, here rendered as "selling", and Entäusserung, as "alienation".—Ed.
+
+
+
+CONTRIBUTION TO THE CRITIQUE OF HEGEL'S PHILOSOPHY OF LAW
+
+Introduction
+
+For Germany the criticism of religion is in the main complete, and criticism of religion is the premise of all criticism.
+
+The profane existence of error is discredited after its heavenly oratio pro aris et /octs" has been disproved. Man, who looked for a superhuman being in the fantastic reality of heaven and found nothing there but the reflection of himself, will no longer be disposed to find but the semblance of himself, only an inhuman being, where he seeks and must seek his true reality.
+
+The basis of irreligious criticism is: Man makes religion, religion does not make man. Religion is the self-consciousness and self- esteem of man who has either not yet found himself or has already lost himself again. But man is no abstract being encamped outside the world. Man is the world of man, the state, society. This state, this society, produce religion, an inverted world-consciousness, because they are an inverted world. Religion is the general theory of that world, its encyclopaedic compendium, its logic in a popular form, its spiritualistic point d'honneur, its enthusiasm, its moral sanction, its solemn complement, its universal source of consola- tion and justification. It is the fantastic realisation of the human essence because the human essence has no true reality. The struggle against religion is therefore indirectly a fight against the world of which religion is the spiritual aroma.
+
+Religious distress is at the same time the expression of real distress and also the protest against real distress. Religion is the sigh of the oppressed creature, the heart of a heartless world, just as it is the spirit of spiritless conditions. It is the opium of the people.
+
+[^1]: a Speech for the altars and hearths.—Ed.
+
+
+
+
+
+**[p. 176]**
+
+To abolish religion as the illusory happiness of the people is to demand their real happiness. The demand to give up illusions about the existing state of affairs is the demand to give up a state of affairs which needs illusions. The criticism of religion is therefore in embryo the criticism of the vale of tears, the halo of which is religion.
+
+Criticism has torn up the imaginary flowers from the chain not so that man shall wear the unadorned, bleak chain but so that he will shake off the chain and pluck the living flower." The criticism of religion disillusions man to make him think and act and shape his reality like a man who has been disillusioned and has come to reason, so that he will revolve round himself and therefore round his true sun. Religion is only the illusory sun which revolves round man as long as he does not revolve round himself.
+
+The task of history, therefore, once the world beyond the truth has disappeared, is to establish the truth of this world. The immediate task of philosophy, which is at the service of history, once the holy form of human self-estrangement has been unmasked, is to unmask self-estrangement in its unholy forms. Thus the criticism of heaven turns into the criticism of the earth, the criticism of religion into the criticism of law and the criticism of theology into the criticism of politics.
+
+The following exposition80—a contribution to that task—deals immediately not with the original, but with a copy, the German philosophy of state and of law, for no other reason than that it deals with Germany.
+
+If one wanted to proceed from the status quo itself in Germany, even in the only appropriate way, i.e., negatively, the result would still be an anachronism. Even the negation of our political present is a reality already covered with dust in the historical lumber-room of modern nations. If I negate powdered pigtails, I am still left with unpowdered pigtails. If I negate the German state of affairs in 1843, then, according to the French computation of time, I am hardly in the year 1789, and still less in the focus of the present.
+
+Yes, German history flatters itself with a movement which no people in the firmament of history went through before it or will go through after it. For we shared the restorations of the modern nations although we had not shared their revolutions. We under- went a restoration, first because other nations dared to carry out a revolution and second because other nations suffered a counter- revolution, the first time because our rulers were afraid, and the
+
+[^1]: 3 Cf. Karl Marx, "The Philosophical Manifesto of the Historical School of Law" (see this edition, Vol. 1, p. 205).—Ed.
+
+
+
+
+
+**[p. 177]**
+
+second because our rulers were not afraid. We—and our shepherds first and foremost—never found ourselves in the company of freedom except once—on the day of its burial.
+
+A school which legitimates the baseness of today by the baseness of yesterday, a school that declares rebellious every cry of the serf against the knout once that knout is a time-honoured, ancestral, historical one, a school to which history only shows its posterior as the God of Israel did to his servant Mosesa—the historical school of ku)91—would hence have invented German history had it not been an invention of German history. For every pound of flesh cut from the heart of the people the historical school of law—Shylock, but Shylock the bondsman—swears on its bond, its historical bond, its Christian-Germanic bond.
+
+Good-natured enthusiasts, Germanomaniacs by extraction and free-thinkers by reflection, on the contrary, seek our history of freedom beyond our history in the primeval Teutonic forests. But what difference is there between the history of our freedom and the history of the boar's freedom if it can be found only in the forests? Besides, it is common knowledge that the forest echoes back what you shout into it. So let us leave the ancient Teutonic forests in peace!
+
+War on the German conditions! By all means! They are below the level of history, beneath any criticism, but they are still an object of criticism like the criminal who is below the level of humanity but still an object for the executioner. In the struggle against those conditions criticism is no passion of the head, it is the head of passion. It is not a lancet, it is a weapon. Its object is its enemy, which it wants not to refute but to exterminate. For the spirit of those conditions is refuted. In themselves they are not objects worthy of thought, but phenomena which are as despicable as they are despised. Criticism does not need to make things clear to itself as regards this subject-matter, for it has already dealt with it. Criticism appears no longer as an end in itself, but only as a means. Its essential sentiment is indignation, its essential activity is denunci- ation.
+
+It is a case of describing the dull reciprocal pressure of all social spheres on one another, a general,inactive ill humour, a limited- ness which recognises itself as much as it misjudges itself, within the frame of a government system which, living on the preserva- tion of all wretchedness, is itself nothing but wretchedness in office.
+
+What a sight! This infinitely proceeding division of society into
+
+[^1]: a The Holy Bible, Exodus 33:23.—Ed.
+
+
+
+
+
+**[p. 178]**
+
+the most manifold races opposed to one another by petty an- tipathies, uneasy consciences and brutal mediocrity, and which, precisely because of their reciprocal ambiguous and distrustful attitude, are all, without exception although with various for- malities, treated by their rulers as licensed existences. And they must recognise and acknowledge as a concession of heaven the very fact that they are mastered, ruled, possessedl On the other side are the rulers themselves, whose greatness is in inverse proportion to their number!
+
+Criticism dealing with this content is criticism in hand-to-hand combat, and in such a fight the point is not whether the opponent is a noble, equal, interesting opponent, the point is to strike him. The point is not to allow the Germans a minute for self-deception and resignation. The actual pressure must be made more pressing by adding to it consciousness of pressure, the shame must be made more shameful by publicising it. Every sphere of German society must be shown as the partie honteuse' of German society; these petrified relations must be forced to dance by singing their own tune to them! The people must be taught to be terrified at itself in order to give it courage. This will be fulfilling an imperative need of the German nation, and needs of the nations are in themselves the ultimate reason for their satisfaction.
+
+This struggle against the limited content of the German status quo cannot be without interest even for the modern nations, for the German status quo is the open completion of the ancien régime, and the ancien régime is the concealed deficiency of the modern state. The struggle against the German political present is the struggle against the past of the modern nations, and they are still troubled by reminders of that past. It is instructive for them to see the ancien régime, which has been through its tragedy with them, playing its comedy as a German ghost. Tragic indeed was the history of the ancien régime so long as it was the pre-existing power of the world, and freedom, on the other hand, was a personal notion, i.e., as long as this regime believed and had to believe in its own justification. As long as the ancien régime, as an existing world order, struggled against a world that was only coming into being, there was on its side a historical error, not a personal one. That is why its downfall was tragic.
+
+On the other hand, the present German regime, an anachro- nism, a flagrant contradiction of generally recognised axioms, the nothingness of the ancien régime exhibited to the world, only
+
+[^1]: a Shameful part.— Ed.
+
+
+
+
+
+**[p. 179]**
+
+imagines that it believes in itself and demands that the world should imagine the same thing. If it believed in its own essence, would it try to hide that essence under the semblance of an alien essence and seek refuge in hypocrisy and sophism? The modern ancien régime is only the comedian of a world order whose true heroes are dead. History is thorough and goes through many phases when carrying an old form to the grave. The last phase of a world-historical form is its comedy. The gods of Greece, already tragically wounded to death in Aeschylus' Prometheus Bound, had to re-die a comic death in Lucian's Dialogues. Why this course of history? So that humanity should part with its past cheerfully. This cheerful historical destiny is what we vindicate for the political authorities of Germany.
+
+However, once modern politico-social reality itself is subjected to criticism, once criticism rises to truly human problems, it finds itself outside the German status quo or else it would reach out for its object below its object. An example. The relation of industry, of the world of wealth generally, to the political world is one of the major problems of modern times. In what form is this problem beginning to engage the attention of the Germans? In the form of protective duties, of the prohibitive system, of national economy. Germanomania has passed out of man into matter, and thus one morning our cotton barons and iron champions saw themselves turned into patriots. People are therefore beginning in Germany to acknowledge the sovereignty of monopoly within the country by lending it sovereignty abroad. People are thus about to begin in Germany with what people in France and England are about to end. The old corrupt condition against which these countries are rebelling in theory and which they only bear as one bears chains is greeted in Germany as the dawn of a beautiful future which still hardly dares to pass from cunning1 theory to the most ruthless practice. Whereas the problem in France and England is: Political economy or the rule of society over wealth, in Germany it is: National economy or the mastery of private property over nationality. In France and England, then, it is a case of abolishing monopoly that has proceeded to its last consequences; in Germany it is a case of proceeding to the last consequences of monopoly. There it is a case of solution, here as yet a case of collision. This is an adequate example of the German form of modern problems, an example of how our history, like a clumsy recruit, still has to do extra drill in matters that are old and hackneyed in history.
+
+[^1]: a In the German listig, probably an allusion to Friedrich List, who was an advocate of protectionism.—Ed.
+
+
+
+
+
+**[p. 180]**
+
+If therefore the whole German development did not exceed the German political development, a German could at the most participate in the problems of the present to the same extent as a Russian can. But, if the separate individual is not bound by the limitations of the nation, still less is the nation as a whole liberated by the liberation of one individual. The fact that Greece had a Scythiana among its philosophers did not help the Scythians to make a single step towards Greek culture.
+
+Luckily we Germans are not Scythians. As the ancient peoples went through their pre-history in imagi- nation, ,in mythology, so we Germans have gone through our post- history in thought, in philosophy. We are philosophical contem- poraries of the present without being its historical contemporaries. German philosophy is the ideal prolongation of German history. If therefore, instead of the œuvres incomplètes of our real history, we criticise the œuvres posthumes of our ideal history, philosophy, our criticism is among the questions of which the present says: That is the question^ What in advanced nations is a practical break with modern political conditions, is in Germany, where even those conditions do not yet exist, at first a critical break with the philosophical reflection of those conditions.
+
+German philosophy of law and state is the only German history which is al pari with the official modern reality. The German nation must therefore take into account not only its present conditions but also its dream-history, and subject to criticism not only these existing conditions but at the same time their abstract continuation. Its future cannot be limited either to the immediate negation of its real conditions of state and law or to the immediate implementa- tion of its ideal state and legal conditions, for it has the immediate negation of its real conditions in its ideal conditions, and it has almost outlived the immediate implementation of its ideal condi- tions in the contemplation of neighbouring nations. Hence it is with good reason that the practical political party .in Germany32
+
+demands the negation of philosophy. It is wrong, not in its demand, but in stopping at the demand, which it neither seriously imple- ments nor can implement. It believes that it implements that negation by turning its back on philosophy and with averted face muttering a few trite and angry phrases about it. Owing to the limitation of its outlook it does not include philosophy in the circle of German reality or it even fancies it is beneath German practice and the theories that serve it. You demand that real living germs
+
+[^1]: a Anacharsis.—Ed. This sentence is in English in the original.—Ed.
+
+
+
+
+
+**[p. 181]**
+
+be made the starting point but you forget that the real living germ of the German nation has grown so far only inside its cranium. In a word—you cannot supersede philosophy without making it a reality.
+
+The same mistake, but with the factors reversed, was made by the theoretical political party originating from philosophy.53
+
+In the present struggle it saw only the critical struggle of philosophy against the German world; it did not give a thought to the fact that the hitherto prevailing philosophy itself belongs to this world and is its complement, although an ideal one. Critical towards its adver- sary, it was uncritical towards itself when, proceeding from the premises of philosophy, it either stopped at the results given by philosophy or passed off demands and results from somewhere else as immediate demands and results of philosophy, although these, provided they are justified, can be obtained only by the negation of hitherto existing philosophy, of philosophy as such. We reserve ourselves the right to a more detailed description of this party. Its basic deficiency may be reduced to the following: It thought it could make philosophy a reality without superseding it.
+
+The criticism of the German philosophy of state and law, which attained its most consistent, richest and final formulation through Hegel, is both a critical analysis of the modern state and of the reality connected with it, and the resolute negation of the whole German political and legal consciousness as practised hitherto, the most distinguished, most universal expression of which, raised to the level of a science, is the speculative philosophy of law itself. If the speculative philosophy of law, that abstract extravagant thinking on the modern state, the reality of which remains a thing of the beyond, if only beyond the Rhine, was possible only in Germany, inversely the German thought-image of the modern state which disregards real man was possible only because and insofar as the modern state itself disregards real man or satisfies the whole of man only in imagination. In politics the Germans thought what other nations did. Germany was their theoretical consciousness. The abstrac- tion and conceit of its thought always kept in step with the one-sidedness and stumpiness of its reality. If therefore the status quo of German statehood expresses the perfection of the ancien régime, the perfection of the thorn in the flesh of the modern state, the status quo of German political theory expresses the imperfection of the modern state, the defectiveness of its flesh itself.
+
+Even as the resolute opponent of the previous form of German political consciousness the criticism of speculative philosophy of law turns, not towards itself, but towards problems which can only be solved by one means—practice.
+
+
+
+**[p. 182]**
+
+It is asked: can Germany attain a practice à la hauteur des principes, i. e., a revolution which will raise it not only to the official level of the modern nations but to the height of humanity which will be the near future of those nations?
+
+The weapon of criticism cannot, of course, replace criticism by weapons, material force must be overthrown by material force; but theory also becomes a material force as soon as it has gripped the masses. Theory is capable of gripping the masses as soon as it demonstrates ad hominem, and it demonstrates ad hominem as soon as it becomes radical. To be radical is to grasp the root of the matter. But for man the root is man himself. The evident proof of the radicalism of German theory, and hence of its practical energy, is that it proceeds from a resolute positive abolition of religion. The criticism of religion ends with the teaching that man is the highest being for man, hence with the categorical imperative to overthrow all relations in which man is a debased, enslaved, forsaken, despicable being, relations which cannot be better described than by the exclamation of a Frenchman when it was planned to introduce a tax on dogs: Poor dogs! They want to treat you like human beings!
+
+Even historically, theoretical emancipation has specific practical significance for Germany. For Germany's revolutionary past is theoretical, it is the Reformation. As the revolution then began in the brain of the monk, so now it begins in the brain of the philosopher.
+
+Luther, we grant, overcame the bondage of piety by replacing it by the bondage of conviction. He shattered faith in authority because he restored the authority of faith. He turned priests into laymen because he turned laymen into priests. He freed man from outer religiosity because he made religiosity the inner man. He freed the body from chains because he enchained the heart.
+
+But if Protestantism was not the true solution it was at least the true setting of the problem. It was no longer a case of the layman's struggle against the priest outside himself but of his struggle against his own priest inside himself, his priestly nature. And if the Protestant transformation of the German laymen into priests emancipated the lay popes, the princes, with the whole of their priestly clique, the privileged and philistines, the philosophical transformation of priestly Germans into men will emancipate the people. But secularisation will not stop at the pillaging of churches practised mainly by hypocritical Prussia any more than emancipa- tion stops at princes. The Peasant War, the most radical fact of German history, came to grief because of theology. Today, when
+
+
+
+**[p. 183]**
+
+theology itself has come to grief, the most unfree fact of German history, our status quo, will be shattered against philosophy. On the eve of the Reformation official Germany was the most uncondi- tional slave of Rome. On the eve of its revolution it is the unconditional slave of less than Rome, of Prussia and Austria, of country squires and philistines.
+
+A major difficulty, however, seems to stand in the way of a radical German revolution.
+
+For revolutions require a passive element, a material basis. Theory can be realised in a people only insofar as it is the realisation of the needs of that people. But will the enormous discrepancy between the demands of German thought and the answers of German reality be matched by a corresponding discrepancy between civil society and the state and between civil society and itself? Will the theoretical needs be immediate practical needs? It is not enough for thought to strive for realisation, reality must itself strive towards thought.
+
+But Germany did not go through the intermediary stages of political emancipation at the same time as the modern riations. It has not even reached in practice the stages which it has overtaken in theory. How can it do a somersault, not only over its own limitations, but at the same time over the limitations of the modern nations, over limitations which in reality it must feel and strive for as bringing emancipation from its real limitations? Only a revolution of radical needs can be a radical revolution and it seems that for this the preconditions and ground are lacking.
+
+If however Germany has accompanied the development of the modern nations only with the abstract activity of thought without playing an effective role in the real struggle of that development, it has, on the other hand, shared the sufferings of that develop- ment, without sharing in its enjoyment or its partial satisfaction. To abstract activity on the one hand corresponds abstract suffer- ing on the other. That is why Germany will one day find itself on the level of European decadence before ever having been on the level of European emancipation. It will be comparable to a fetish worshipper pining away with the diseases of Christianity.
+
+If we now consider the German governments we find that because of the existing state of affairs, because of Germany's condition, because of the standpoint of German education and finally under the impulse of their own fortunate instinct, they are driven to combine the civilised shortcomings of the modern political world, the advantages of which we do not enjoy, with the barbaric deficiencies of the ancien régime, which we enjoy in full; hence Germany must
+
+
+
+**[p. 184]**
+
+share more and more, if not in the reasonableness, at least in the unreasonableness of those state formations which are beyond the bounds of its status quo. Is there in the world, for example, a country which shares so naively in all the illusions of the constitutional state without sharing in its realities as so-called constitutional Germany? And was it not perforce a German government's idea to combine the tortures of censorship with the tortures of the French September laws which presuppose freedom of the press?34 As you could find the gods of all nations in the Roman Pantheon, so you will find in the Germans' Holy Roman Empire all the sins of all political forms.35 That this eclecticism will reach a height never dreamt of before is guaranteed in particular by the political-aesthetic gourmandising of a German king* who intends to play all the roles of monarchy, whether feudal or bureaucratic, absolute or constitutional, autocratic or democratic, if not in the person of the people, at least in his own person, and if not for the people, at least for himself. Germany, as the deficiency of the political present constituted as a particular world, will not be able to throw down the specific German limitations without throwing down the general limitation of the political present.
+
+It is not the radical revolution, not the general human emancipa- tion which is a Utopian dream for Germany, but rather the partial, the merely political revolution, the revolution which leaves the pillars of the house standing. On what is a partial, a merely political revolution based? On the fact that part of civil society emancipates itself and attains general domination; on the fact that a definite class, proceeding from its particular situation, undertakes the general emancipation of society. This class emancipates the whole of society but only provided the whole of society is in the same situation as this class, e.g., possesses money and education or can acquire them at will.
+
+No class of civil society can play this role without arousing a moment of enthusiasm in itself and in the masses, a moment in which it fraternises and merges with society in general, becomes confused with it and is perceived and acknowledged as its general representative; a moment in which its demands and rights are truly the rights and demands of society itself; a moment in which it is truly the social head and the social heart. Only in the name of the general rights of society can a particular class lay claim to general domination. For the storming of this emancipatory position, and hence for the political exploitation of all spheres of society in the
+
+[^1]: ' Frederick William IV.— Ed.
+
+
+
+
+
+**[p. 185]**
+
+interests of its own sphere, revolutionary energy and intellectual self-confidence alone are not sufficient. For the revolution of a nation and the emancipation of a particular class of civil society to coincide, for one estate to be acknowledged as the estate of the whole society, all the defects of society must conversely be concentrated in another class, a particular estate must be the general stumbling-block, the incorporation of the general limita- tion, a particular social sphere must be looked upon as the notorious crime of the whole of society, so that liberation from that sphere appears as general self-libera tion. For one estate to be par excellence the estate of liberation, another estate must conversely be the obvious estate of oppression. The negative general significance of the French nobility and the French clergy determined the positive general significance of the immediately adjacent and opposed class of the bourgeoisie.
+
+But no particular class in Germany has the consistency, the severity, the courage or the ruthlessness that could mark it out as the negative representative of society. No more has any estate the breadth of soul that identifies itself, even for a moment, with the soul of the nation, the genius that inspires material might to political violence, or that revolutionary audacity which flings at the adversary the defiant words:/ am nothing and I should be everything. The main stem of German morals and honesty, of the classes as well as of individuals, is rather that modest egoism which asserts its limitedness and allows it to be asserted against itself. The relation of the various sections of German society is therefore not dramatic but epic. Each of them begins to be aware of itself and to settle down beside the others with all its particular claims not as soon as it is oppressed, but as soon as the circumstances of the time, without the section's own participation, create a social substratum on which it can in turn exert pressure. Even the moral self- confidence of the German middle class rests only on the consciousness that it is the general representative of the philistine mediocrity of all the other classes. It is therefore not only the German kings who accede to the throne mal à propos; every section of civil society goes through a defeat before it has celebrated victory, develops its own limitations before it has overcome the limitations facing it and asserts its narrow-hearted essence before it has been able to assert its magnanimous essence. Thus the very opportunity of a great role has on every occasion passed away before it is to hand, thus every class, once it begins the struggle against the class above it, is involved in the struggle against the class below it. Hence the princes are struggling against the monarchy, the bureaucrats
+
+
+
+**[p. 186]**
+
+against the nobility, and the bourgeois against them all, while the proletariat is already beginning to struggle against the bourgeoisie. No sooner does the middle class dare to think of emancipation from its own standpoint than the development of the social conditions and the progress of political theory pronounce that standpoint antiquated or at least problematic.
+
+In France it is enough for somebody to be something for him to want to be everything; in Germany one has to be nothing if one is not to forego everything. In France partial emancipation is the basis of universal emancipation; in Germany universal emancipa- tion is the conditio sine qua non of any partial emancipation. In France it is the reality of gradual liberation, in Germany the impossibility of gradual liberation, that must give birth to complete freedom. In France every class is politically idealistic and becomes aware of itself at first not as a particular class but as the representative of social requirements generally. The role of eman- cipator therefore passes in dramatic motion to the various classes of the French nation one after the other until it finally comes to the class which implements social freedom no longer on the basis of certain conditions lying outside man and yet created by human society, but rather organises all conditions of human existence on the presupposition of social freedom. In Germany, on the con- trary, where practical life is as spiritless as spiritual life is unpractical, no class in civil society has any need or capacity for general emancipation until it is forced by its immediate condition, by material necessity, by its very chains.
+
+Where, then, is the positive possibility of a German emancipation? Answer: In the formation of a class with radical chains, a class of civil society which is not a class of civil society, an estate which is the dissolution of all estates, a sphere which has a universal character by its universal suffering and claims no particular right because no particular wrong but wrong generally is perpetrated against it; which can no longer invoke a historical but only a human title; which does not stand in any one-sided antithesis to the consequences but in an all-round antithesis to the premises of the German state; a sphere, finally, which cannot emancipate itself without emancipating itself from all other spheres of society and thereby emancipating all other spheres of society, which, in a word, is the complete loss of man and hence can win itself only through the complete rewinning of man. This dissolution of society as a particular estate is the proletariat.
+
+The proletariat is coming into being in Germany only as a result of the rising industrial development. For it is not the naturally
+
+
+
+**[p. 187]**
+
+arising poor but the artificially impoverished, not the human masses mechanically oppressed by the gravity of society but the masses resulting from the drastic dissolution of society, mainly of the middle estate, that form the proletariat, although it is obvious that gradually the naturally arising poor and the Christian-Germanic serfs also join its ranks.
+
+By proclaiming the dissolution of the hitherto existing world order the proletariat merely states the secret of its own existence, for it is in fact the dissolution of that world order. By demanding the negation of private property, the proletariat merely raises to the rank of a principle of society what society has made the principle of the proletariat, what, without its own co-operation, is already incorporat- ed in it as the negative result of society. In regard to the world which is coming into being the proletarian then finds himself pos- sessing the same right as the German king in regard to the world which has come into being when he calls the people his people as he calls the horse his horse. By declaring the people his private property the king simply states that the property owner is king.
+
+As philosophy finds its material weapons in the proletariat, so the proletariat finds its spiritual weapons in philosophy. And once the lightning of thought has squarely struck this ingenuous soil of the people the emancipation of the Germans into human beings will take place.
+
+Let us sum up the result: The only practically possible liberation of Germany is libera- tion that proceeds from the standpoint of the theory which pro- claims man to be the highest being for man. In Germany emancipation from the Middle Ages is possible only as emancipa- tion from the partial victories over the Middle Ages as well. In Germany no kind of bondage can be broken without breaking every kind of bondage. The thorough Germany cannot make a revolution without making a thoroughgoing revolution. The emancipation of the German is the emancipation of the human being. The head of this emancipation is philosophy, its heart is the proletariat. Philosophy cannot be made a reality without the abolition of the proletariat, the proletariat cannot be abolished without philosophy being made a reality.
+
+When all inner requisites are fulfilled the day of German resurrection will be proclaimed by the ringing call of the Gallic cock.
+
+[^1]: Written at the end of 1843-January 1844 Printed according to the journal
+
+[^2]: First published in the Deutsch-Französische Jahrbücher, 1844 Signed: Karl Marx
+
+
+
+LETTER TO THE EDITOR OF THE ALLGEMEINE ZEITUNG (AUGSBURG)
+
+The diverse rumours which have been spread by German news- papers concerning the discontinuation of the Deutsch-Französische Jahrbücher impel me to state that the Swiss publishers of the Jahrbücher suddenly withdrew from this enterprise for economic reasons and thus made impossible the continuation of this journal for the time being.36
+
+Paris, April 14, 1844
+
+Karl Marx
+
+[^1]: First published in the Allgemeine Zeitung, Printed according to the news- Augsburg, No. 3, April 20, 1844 paper Published in English for the first time
+
+
+
+
+
+**[p. 0]**
+
+i« $ari. 1:
+
+©w( • « • t u .
+
+. * * fnm.
+
+• « .. a „ *U • »Art # :
+
+Htm 3 * * . .
+
+• • « I V N M M . M l IX
+
+9
+
+|n>d.
+
+^MfcnÜMll : Ml Srii» à so g intim
+
+( W i t h » o * . )
+
+\ > « Ï W ^ /
+
+fat * « « ) :
+
+i M H O . I I M . l t . na la ht • • ^ i i l l «ai Jul«, I m m i x C*. rua Ja Taaraaa, • ;
+
+la Wa ^raarlemcatt :
+
+Sttatfft Uaa, 6ojn>rii, Œajlano :
+
+la ttja aja^tmii,»!».
+
+SWüj Ica:
+
+fta VVmirila : i Ma *wtai tfi Arfai aa> Bftatark,
+
+eaiaa Bttt Nl, »>. 1, la Pua"*«!.
+
+4rfd)tuit Dtiuaaa) ant €*aaflbn M.
+
+y a r i f r r » r n t f r»i' 3 r i t f rl|r i ft. (T. «.,.«>
+
+CRITICAL MARGINAL NOTES ON THE ARTICLE "THE KING OF PRUSSIA AND SOCIAL REFORM.
+
+BY A PRUSSIAN"*37
+
+(Vorwärts! No. 60)
+
+[Vorwärts/ No. 63, August 7, 1844] No. 60 of Vorwärts contains an article headed "Der König von Preussen und die Sozialreform", signed "A Prussian".
+
+First of all this alleged Prussian sets out the content of the royal Prussian Cabinet order on the uprising of the Silesian workers and the opinion of the French newspaper La Réforme on the Prussian Cabinet order.38 The Réforme, he writes, considers that the King's "alarm and religious feeling" are the source of the Cabinet order. It even sees in this document a presentiment of the great reforms which are in prospect for bourgeois society. The "Prussian" lectures the Réforme as follows:
+
+[^1]: "The King and German society has not yet arrived at the 'presentiment of their reform',** even the Silesian and Bohemian uprisings have not aroused this feeling. It is impossible to make such an unpolitical country as Germany regard the partial distress of the factory districts as a matter of general concern, let alone as an affliction of the whole civilised world. The Germans regard this event as if it were of the same nature as any local distress due to flood or famine. Hence the King regards it as due to deficiencies in the administration or in charitable activity. For this reason, and because a few soldiers sufficed to cope with the feeble weavers, the destruction of factories and machinery, too, did not inspire any 'alarm' either in the King or the authorities. Indeed, the Cabinet order was not prompted even by religious feeling: it is a very sober expression of the Christian art of statesmanship
+
+[^2]: * Special reasons prompt me to state that the present article is the first which I have contributed to Vorwärts. K. M.
+
+[^3]: ** Note the stylistic and grammatical lack of sense. "The King of Prussia and society has not yet arrived at the presentiment of their (to whom does this "their" relate?) reform".— Not« by Marx.
+
+
+
+
+
+**[p. 190]**
+
+and of a doctrine which considers that no difficulties can withstand its sole medicine — 'the well-disposed Christian hearts'. Poverty and crime are two great evils; who can cure them? The state and the authorities? No, but the union of all Christian hearts can."
+
+The alleged Prussian denies the King's "alarm" on the grounds, among others, that a few soldiers sufficed to cope with the feeble weavers.
+
+Therefore, in a country where ceremonial dinners with liberal toasts and liberally foaming champagne — recall the Düsseldorf
+
+festival — inspired a royal Cabinet order39; where not a single soldier was needed to shatter the desires of the entire liberal bourgeoisie for freedom of the press and a constitution; in a country where passive obedience is the order of the day — can it be that in such a country the necessity to employ armed force against feeble weavers is not an event, and not an alarming event? Moreover, at the first encounter the feeble weavers were victori- ous. They were suppressed only by subsequent troop reinforce- ments. Is the uprising of a body of workers less dangerous because it did not require a whole army to suppress it? Let the wise Prussian compare the uprising of the Silesian weavers with the revolts of the English workers, and the Silesian weavers will be seen by him to be strong weavers.
+
+Starting out from the general relation of politics to social ills, we shall show why the uprising of the weavers could not cause the King any special "alarm". For the time being we shall say only the following: the uprising was not aimed directly against the King of Prussia, but against the bourgeoisie. As an aristocrat and absolute monarch, the King of Prussia cannot love the bourgeoisie; still less can he be alarmed if thé- submissiveness and impotence of the bourgeoisie is increased because of a tense and difficult relation- ship between it and the proletariat. Further: the orthodox Catholic is more hostile to the orthodox Protestant than to the atheist, just as the Legitimist is more hostile to the liberal than to the Communist. This is not because the atheist and the Communist are more akin to the Catholic or Legitimist, but because they are more foreign to him than are the Protestant and the liberal, being outside his circle. In the sphere of politics, the King of Prussia, as a politician, has his direct opposite in liberalism. For the King, the proletariat is as little an antithesis as the King is for the proletariat. The proletariat would have to have already attained considerable power for it to stifle the other antipathies and political antitheses and to divert to itself all political enmity. Finally: in view of the well-known character of the King, avid for anything interesting and
+
+
+
+**[p. 191]**
+
+significant, it must have been a joyful surprise for him to discover this "interesting" and "much discussed" pauperism in his own territ- ory and consequently a new opportunity for making people talk about him. How pleasant for him must have been the news that henceforth he possesses his "own", royal Prussian pauperisml
+
+Our "Prussian" is still more unlucky when he seeks to deny that "religious feeling" is the source of the royal Cabinet order.
+
+Why is religious feeling not the source of this order? Because it is a "very sober expression of the Christian art of statesmanship", a "sober" expression of the doctrine which "considers that no difficulties can withstand its sole medicine — the well-disposed Christian hearts".
+
+Is not religious feeling the source of the Christian art of statesmanship? Is a doctrine that has its panacea in the well- disposed Christian hearts not based on religious feeling? Does a sober expression of religious feeling cease to be an expression of religious feeling? Moreover, I maintain that it is a very intoxicated religious feeling with an extremely high opinion of itself which denies that the "state and the authorities" can "cure great evils" and seeks their cure in the "union of Christian hearts". It is a very intoxicated religious feeling which — as the "Prussian" himself admits—sees the whole evil in the lack of Christian feeling and therefore refers the authorities to "admonition" as the only means of strengthening this feeling. According to the "Prussian", the Christian frame of mind is the aim of the Cabinet order. When it is intoxicated, when it is not sober, religious feeling, as a matter of course, considers itself the only good. Wherever it sees evils it ascribes them to absence of religious feeling, for if the latter is the only good, then it alone can produce what is good. Hence the Cabinet order, being dictated by religious feeling, consistently prescribes religious feeling. A politician with a sober religious feeling would not in his "perplexity" seek "aid" in the "pious preacher's admonition about a Christian frame of mind".
+
+How then does the alleged Prussian prove in the Réforme that the Cabinet order is not a product of religious feeling? He does so precisely by everywhere depicting the Cabinet order as a product of religious feeling. Can one expect from such an illogical brain an insight into social movements? Listen to him chatting about the attitude of German society to the workers' movement and to social reform in general.
+
+Let us distinguish—which the "Prussian" neglects to do — the different categories contained in the expression "German society": the Government, the bourgeoisie, the press and, finally, the workers
+
+
+
+**[p. 192]**
+
+themselves. These are the different masses with which we are concerned here. The "Prussian" lumps all these masses together and, from his lofty stand, passes sentence on them en bloc. German society, in his opinion, "has not yet arrived even at the presentiment of their reform".
+
+Why does German society lack this instinct?
+
+"It is impossible to make such an unpolitical country as Germany," replies the Prussian, "regard the partial distress of the factory districts as a matter of general concern, let alone as an affliction of the whole civilised world. The Germans regard this event as if it were of the same nature as any local distress due to flood or famine. Hence the King regards it as due to deficiencies in the administration and in charitable activity."
+
+Thus the "Prussian" explains this misinterpretation of the dis- tressed state of the workers as due to the special character of an unpoli- tical country.
+
+It will be admitted that England is a political country. It will be admitted also that England is the country of pauperism, even the word itself is of English origin. Observing the state of things in England, therefore, is the surest means of learning the attitude of a political country to pauperism. In England, the distress of the workers is not partial but universal; it is not restricted to the factory districts, but extends to the rural districts. The movements here are not just beginning to arise, for almost a century they have periodically recurred.
+
+What then is the view about pauperism held by the English bourgeoisie and the government and press connected with it?
+
+Insofar as the English bourgeoisie acknowledges that politics are to blame for pauperism, the Whig regards the Tory, and the Tory regards the Whig, as the cause of pauperism. According to the Whig, the main source of pauperism is the monopoly of big landownership and the prohibitive legislation against the import of corn.40 According to the Tory, the whole evil lies in liberalism, in competition, and in the excessive development of the factory system. Neither of the parties sees the cause in politics in gênerai, but each sees it only in the politics of the opposing party; neither party even dreams of a reform of society.
+
+The most definite expression of the English view of pau- perism—we are speaking always of the view of the English bourgeoisie and government—is English political economy, i.e., the scientific reflection of English economic conditions.
+
+One of the best and most famous English economists, Mc Cul- loch—a pupil of the cynical Ricardo—who is familiar with present-day conditions and ought to have a comprehensive view of
+
+
+
+**[p. 193]**
+
+the movement of bourgeois society, still dares in a public lecture, and with applause from the audience, to apply to political economy what Bacon says about philosophy:
+
+"The man who, with true and untiring wisdom, suspends his judgment, who goes forward step by step, surmounting one after the other the obstacles which, like mountains, hinder the course of study, will eventually reach the summit of science, where peace and pure air may be enjoyed, where nature presents itself to the eye in all its beauty, and from where it is possible to descend by a comfortably sloping path to the last details of practice."4
+
+Good pure air—the pestilential atmosphere of English cellar dwellings! Great beauty of nature—the fantastic rags worn by the English poor, and the flabby, shrunken flesh of the women, undermined by labour and poverty; children crawling about in the dirt; deformity resulting from excessive labour in the monotonous mechanical operations of the factories! The most delightful last details of practice: prostitution, murder and the gallows!
+
+Even that part of the English bourgeoisie which is impressed by the danger of pauperism conceives this danger, as also the means to remedy it, not merely in a partial way, but also, frankly speaking, in a childish and stupid way.
+
+Thus Dr. Kay, for example, in his pamphlet Recent Measures for the Promotion of Education in England reduces everything to neglected education. Guess why! Owing to lack of education, the worker does not understand the "natural laws of trade", laws which necessarily reduce him to pauperism. That is why he rebels. This could
+
+So great is the mental vacuity of the English bourgeoisie and its press on the subject of pauperism, this national epidemic of England.
+
+Let us suppose then that the reproaches our "Prussian" levels against German society are well founded. Does the reason lie in the unpolitical condition of Germany? But if the bourgeoisie of unpolitical Germany is unable to see that a partial distress is a matter of general significance, the bourgeoisie of political England, on the other hand, manages to misunderstand the general signifi- cance of a universal state of distress — a distress the general significance of which has been made evident partly by its periodi- cal recurrence in time, partly by its extension in space, and partly by the failure of all attempts to remedy it.
+
+Further, the "Prussian" makes the unpolitical condition of Germany responsible for the fact that the King of Prussia finds the
+
+[^1]: "affect t/i« prosperity of English manufactures and English commerce, shake the mutual confidence of mercantile men, and diminish the stability of political and social institutions."
+
+
+
+
+
+**[p. 194]**
+
+Is this kind of view peculiar to the King of Prussia? Let us take a quick look at England, the only country where large-scale political action against pauperism can be said to have taken place.
+
+The present English legislation on the poor dates from the Poor Law enacted in the 43rd year of the reign of Elizabeth.* What are the means adopted in this legislation? They consist in the obliga- tion of the parishes to support their poor labourers, in the poor rate, and in legal charity. This legislation — charity carried out by administrative means—has lasted for two centuries. What attitude do we find adopted by Parliament, after long and painful experience, in its Amendment Bill of 1834?
+
+First of all, it explains the frightful increase of pauperism by "deficiencies in the administration".
+
+Consequently, the-administration of the poor rate, which was in the hands of officials of each of the parishes, is reformed. Unions are formed of about 20 parishes which are united in a single administration. A committee of officials, a Board of Guardians,3
+
+consisting of officials elected by the taxpayers, meets on an appointed day in the administrative centre of the Union and decides on the admissibility of relief. These Boards of Guardians are directed and supervised by government representatives sitting in a Central Commission at Somerset House, the Ministry of Pauperism, as a Frenchmanb aptly calls it. The capital supervised by this administration is almost equal to the amount which the military administration in France costs. It employs 500 local administrative bodies, and each of these in its turn has at least 12 officials working for it.
+
+The English Parliament did not restrict itself to a formal reform of the administration.
+
+It found the main source of the acute state of English pauperism in the Poor Law itself. Charity, the means prescribed by law against the social malady, is alleged to promote the social malady. As far as pauperism in general is concerned, it is said to be an eternal law of nature, according to the theory of Malthus:
+
+[^1]: "Since population is constantly tending to overtake the means of subsistence, charity is folly, a public encouragement of poverty. The state can therefore do
+
+[^2]: * For our purpose it is not necessary to go back to the Statute of Labourers under Edward III.— Note by Marx.
+
+[^3]: The words "Board of Guardians" are in English in the manuscript.— Ed. b Eugene Buret.— Ed.
+
+
+
+
+
+**[p. 195]**
+
+nothing but leave the poor to their fate and, at the most, make death easy for them."
+
+With this philanthropic theory the English Parliament combines the view that pauperism is poverty which the workers have brought upon themselves by their own fault, and therefore it is not a misfortune which must be prevented, but rather a crime which has to be suppressed and punished.
+
+Thus there arose the system of workhouses," i. e., houses for the poor, the internal organisation of which tends to deter the poor wretches from seeking refuge in them from death by starvation. In the workhouses, charity is cunningly combined with revenge of the bourgeoisie on the poor who appeal to its charity.
+
+At first, therefore, England tried to abolish pauperism by charity and administrative measures. Then it came to see in the progressive advance of pauperism not the inevitable consequence of modern industry but, on the contrary, the consequence of the English poor rate. It regarded the universal distress merely as a specific feature of English legislation. What was previously ascribed to a lack of charity now began to be attributed to an excess of charity. Finally, poverty came to be regarded as the fault of the poor themselves, and consequently they were punished for it.
+
+The general significance which pauperism has acquired in political England is restricted to the fact that in the course of its development, in spite of all the administrative measures, pauper- ism has become a national institution and has therefore inevitably become the object of a ramified and widely extended administra- tion, but an administration which no longer has the task of abolishing pauperism but of disciplining it, of perpetuating it. This administration has given up trying to stop pauperism at its source by positive methods; it is satisfied to dig a grave for it with policeman-like gentleness whenever it wells up to the surface of the official world. Far from going beyond administrative and charitable measures, the English state has taken a big step backwards from them. Its administration now extends only to that pauperism which is so desperate as to allow itself to be caught and locked up.
+
+So far, therefore, the "Prussian" has not shown that there is anything original in the course adopted by the King of Prussia. But why, exclaims our great man with rare naivety,
+
+[^1]: "why does the King of Prussia not at once issue a decree for the education of all uncared-for children?"
+
+[^2]: a This word is here and further on given in English in the original.—Ed.
+
+
+
+
+
+**[p. 196]**
+
+Our super-clever "Prussian" will be reassured when he learns that the King of Prussia is as little original in this matter as in all his other actions, and that the course he has taken is even the only possible one a head of state can take.
+
+Napoleon wanted to abolish mendicancy at a stroke. He charged his official bodies with the preparation of plans for eradicating mendicancy throughout France. The drawing-up of a project dragged on. Napoleon lost patience. He wrote to Crétet, his Minister of Internal Affairs, ordering him to abolish mendicancy within one month. Napoleon said:
+
+"One ought not to traverse this earth without leaving behind traces which would earn us the grateful memory of posterity. Do not ask me for another three or four months for collecting information. You have young judges, wise prefects, well-trained engineers from the department for roads and bridges; set them all in motion, do not go to sleep in performing ordinary office work."3
+
+Within a few months everything was done. On July 5, 1808, the law abolishing mendicancy was promulgated. How? By means of the depots? which so quickly became converted into punitive institutions that very soon the poor entered them only by order of the police-court. Nevertheless M. Noailles du Gard, a member of the Legislative Corps, exclaimed at the time:
+
+The final cynical passage is the only truth in this eulogy. If Napoleon addresses himself to the intelligence of his judges, prefects and engineers, why should not the King of Prussia appeal to his official bodies?
+
+Why did Napoleon not at once issue a decree for the abolition of mendicancy? This is on the same level as the "Prussian's" question: "Why does the King of Prussia not at once issue a decree for the education of all uncared-for children?" Does the "Prussian" know what the King would have to decree? Nothing less than the abolition of the proletariat. In order to educate children
+
+[^1]: "Eternal gratitude to the hero who gave a refuge to those in need, and means of subsistence to the poor. Children will no longer be left to their fate; poor families will no longer be deprived of a source of sustenance, and the workers of encouragement and occupation. Nos pas ne seront plus arrêtés par l'image dégoûtante des infirmités et de la honteuse misère."0
+
+[^2]: This passage is taken from E. Buret, De la misère des classes laborieuses en Angleterre et en France, t. 1, p. 227.— Ed.
+
+[^3]: Dépôt de mendicité—i.e., workhouse.— E'd. c "No longer will the sight of disgusting afflictions and disgraceful poverty dog our footsteps." This passage is taken from E. Buret's book, t. 1, pp. 229-30.—Ed.
+
+
+
+
+
+**[p. 197]**
+
+The Convention at one moment had the courage to decree the abolition of pauperism — though not "at once", as the "Prussian" demands of his King, but only after it had instructed the Committee of Public Safety to draw up the necessary plans and proposals and after this Committee had made use of the extensive researches of the Constituent Assembly on the conditions of the French poor, and had proposed through Barère the institution of a Livre de la bienfaisance nationale, etc. What was the result of the Convention's decree? That one more decree came into the world and one year later starving women besieged the Convention.43
+
+Yet the Convention represented the maximum of political energy, political power and political understanding.
+
+No government in the world has issued regulations regarding pauperism at once, without reaching agreement with the authori- ties. The English Parliament even sent representatives to all the countries of Europe to learn about the various administrative remedies for pauperism. But insofar as the states have occupied themselves with pauperism, they have either confined themselves to administrative and charitable measures, or they have retreated to less than administrative action and charity.
+
+Can the state act in any other way? The state—contrary to what the Prussian demands of his King — will never see in "the state and the system of society" the source of social maladies. Where political parties exist, each party sees the root of every evil in the fact that instead of itself an opposing party stands at the helm of the state. Even radical and revolutionary politicians seek the root of the evil not in the essential nature of the state, but in a definite state form, which they wish to replace by a different state form.
+
+From the political point of view, the state and the system of society are not two different things. The state is the system of society. Insofar as the state admits the existence of social defects, it sees their cause either in the laws of nature, which no human power can command, or in private life, which does not depend on the state, or in the inexpedient activity of the administration, which does not depend on it. Thus England sees the cause of poverty in the law of nature by which the population must always be in excess of the means of subsistence. On the other hand, England explains pauperism as due to the bad will of the poor, just as the King of Prussia explains it by
+
+
+
+**[p. 198]**
+
+Finally, every state seeks the cause in accidental or deliberate shortcomings of the administration, and therefore it seeks the remedy for its ills in measures of the administration. Why? Precisely because administration is the organising activity of the state.
+
+The contradiction between the purpose and goodwill of the administration, on the one hand, and its means and possibilities, on the other hand, cannot be abolished by the state without the latter abolishing itself, for it is based on this contradiction. The state is based on the contradiction between public and private life, on the contradiction between general interests and private interests. Hence the administration has to confine itself to a formal and negative activity, for where civil life and its labour begin, there the power of the administration ends. Indeed, confronted by the consequences which arise from the unsocial nature of this civil life, this private ownership, this trade, this industry, this mutual plundering of the various circles of citizens, confronted by all these consequences, impotence is the law of nature of the administra- tion. For this fragmentation, this baseness, this slavery of civil society is the natural foundation on which the modern state rests, just as the civil society of slavery was the natural foundation on which the ancient state rested. The existence of the state and the existence of slavery are inseparable. The ancient state and ancient slav- ery— these straightforward classic opposites — were not more inti- mately riveted to each other than are the modern state and the modern commercial world, these hypocritical Christian opposites. If the modern state wanted to abolish the impotence of its administration, it would have to abolish the private life of today. But if it wanted to abolish private life, it would have to abolish itself, for it exists only in the contradiction to private life. But no living being believes that the shortcomings of his existence have their basis in the principle of his life, in the essence of his life; everyone believes that their basis lies in circumstances external to his life. Suicide is against nature. Therefore the state cannot believe in the inherent impotence of its administration, i. e., in its own impotence. It can perceive only formal, accidental deficiencies in its administration and try to remedy them. And if these modifications prove fruitless, the conclusion is drawn that social ills are a natural imperfection independent of man, a law of God
+
+
+
+**[p. 199]**
+
+The mightier the state, and the more political therefore a country is, the less is it inclined to grasp the general principle of social maladies and to seek their basis in the principle of the state, hence in the present structure of society, the active, conscious and official expression of which is the state. The political mind is a political mind precisely because it thinks within the framework of politics. The keener and more lively it is, the more incapable is it of understanding social ills. The classic period of political intellect is the French Revolution. Far from seeing the source of social shortcomings in the principle of the state, the heroes of the French Revolution instead saw in social defects the source of political evils. Thus, Robespierre saw in great poverty and great wealth only an obstacle to pure democracy. Therefore he wished to establish a universal Spartan frugality. The principle of politics is the will. The more one-sided and, therefore, the more perfected the political mind is, the more does it believe in the omnipotence of the will, the more is it blind to the natural and spiritual limits of the will, and the more incapable is it therefore of discovering the source of social ills. There is no need of further argument against the "Prussian's" silly hope that "political understanding" is destined "to discover the roots of social distress in Germany".
+
+It was foolish to expect from the King of Prussia not only a power such as the Convention and Napoleon together did not possess; it was foolish to expect from him a manner of viewing things that transcends the bounds of all politics and which the wise "Prussian" himself is no closer to possessing than is his King. This whole declaration was all the more foolish in that the "Prussian" admits to us:
+
+If they are still not at all to be had, then one should appreciate the attempts of anyone to do whatever is possible for him in his situation. For the rest, I leave it to the tact of the reader to decide whether in this connection the commercial gipsy jargon, i.e., "cheap", "dear", "more than dear", "still not at all to be had", is to be included in the category of "good words" and a "good frame of mind".
+
+[^1]: "Good words and a good frame of mind are cheap; insight and successful deeds are dear, in the present case they are more than dear, they are still not at all to be had."
+
+
+
+
+
+**[p. 200]**
+
+Finally, it is untrue, actually untrue, that the German bourgeoisie totally fails to understand the general significance of the Silesian uprising. In several towns the masters are trying to act jointly with the apprentices. All the liberal German newspapers, the organs of the liberal bourgeoisie, teem with articles about the organisation of labour, the reform of society, criticism of monopolies and competi- tion, etc. All this is the result of the movements among the workers. The newspapers of Trier, Aachen, Cologne, Wesel, Mannheim, Breslau, and even of Berlin, often publish quite reasonable articles on social questions from which the "Prussian" could after all learn something. Moreover, letters from Germany constantly express surprise at the slight resistance shown by the bourgeoisie against social tendencies and ideas.
+
+The "Prussian" — if he were more familiar with the history of the social movement — would have put his question the other way round. Why does even the German bourgeoisie interpret a partial state of distress in such a comparatively universal manner? Whence the hostility and cynicism of the politically-minded bourgeoisie towards the proletariat, and whence the lack of resistance and the sympathy towards it of the non-politically-minded bourgeoisie?
+
+[Vorworts! No. 64, August 10, 1844] Let us pass now to the oracular pronouncements of the "Prussian" on the German workers.
+
+[^1]: "The German poor," he says wittily, "are no wiser than the poor Germans, i. e., nowhere do they see beyond their own hearth and home, their own factory, their own district; the whole question has so far still been ignored by the all-penetrating political soul."
+
+
+
+
+
+**[p. 201]**
+
+In order to be able to compare the condition of the German workers with the condition of the French and English workers, the "Prussian" would have had to compare the first form, the. start, of the English and French workers' movement with the German movement that is just beginning. He failed to do so. Consequently, his arguments lead to trivialities, such as that industry in Germany is not yet so developed as in England, or that a movement at its start looks different from the movement in its subsequent prog- ress. He wanted to speak about the specific character of the German workers' movement, but he has not a word to say on this subject of his.
+
+On the other hand, suppose the "Prussian" were to adopt the correct standpoint. He will find that not one of the French and English workers' uprisings had such a theoretical and conscious character as the uprising of the Silesian weavers.
+
+First of all, recall the song of the weavers,*4 that bold call to struggle, in which there is not even a mention of hearth and home, factory or district, but in which the proletariat at once, in a striking, sharp, unrestrained and powerful manner, proclaims its opposition to the society of private property. The Silesian uprising begins precisely with what the French and English workers' uprisings end, with consciousness of the nature of the proletariat. The action itself bears the stamp of this superior character. Not only machines, these rivals of the workers, are destroyed, but also ledgers, the titles to property. And while all other movements were aimed primarily only against the owner of the industrial enterprise, the visible enemy, this movement is at the same time directed against the banker, the hidden enemy. Finally, not a single English workers' uprising was carried out with such courage, thought and endurance.
+
+As for the educational level or capacity for education of the German workers in general, I call to mind Weitling's brilliant writings, which as regards theory are often superior even to those of Proudhon, however much they are inferior to the latter in their execution. Where among the bourgeoisie—including its philosophers and learned writers—is to be found a book about the emancipation of the bourgeoisie—political emancipation— similar to Weitling's work: Garantien der Harmonie und Freiheit? It is enough to compare the petty, faint-hearted mediocrity of German political literature with this vehement and brilliant literary debut of the German workers, it is enough to compare these gigantic infant shoes of the proletariat with the dwarfish, worn-out political shoes of the German bourgeoisie, and one is
+
+[^1]: 8—482
+
+
+
+
+
+**[p. 202]**
+
+At the present moment, however, I have neither the time nor the desire to explain to the "Prussian" the relationship of "German society" to social revolution, and, arising from this relationship, on the one hand, the feeble reaction of the German bourgeoisie against socialism and, on the other hand, the excellent capabilities of the German proletariat for socialism. He will find the first rudiments for an understanding of this phenomenon in my "Einleitung zur Kritik der Hegeischen Rechtsphilosophie" (Deutsch-Französische Jahrbücher) .a
+
+The wisdom of the German poor, therefore, is in inverse ratio to the wisdom of poor Germans. But people for whom every subject has to serve as a vehicle for stylistic exercises performed in public hit upon a distorted content owing to this formal kind of activity, while the distorted content, for its part, puts its stamp of baseness on the form. Thus, the "Prussian's" attempt — when an opportun- ity such as the Silesian workers' disturbances presents itself — to develop his arguments in the form of an antithesis leads him to the greatest antithesis to the truth. Confronted with the first outbreak of the Silesian workers' uprising, the sole task of one who thinks and loves the truth consisted not in playing the role of schoolmaster in relation to this event, but instead in studying its specific character. This, of course, requires some scientific insight and some love of mankind, whereas for the other operation a glib phraseology, impregnated with empty love of oneself, is quite enough.
+
+[^1]: a "Contribution to the Critique of Hegel's Philosophy of Law. Introduction" (see this volume, pp. 175-87).—Ed.
+
+
+
+"All uprisings which break out in this disastrous isolation of people from the community, and of their thoughts from social principles, will be smothered in blood and incomprehension; but when distress produces understanding, and the political understanding of the Germans discovers the roots of social distress, then in Germany too these events will be appreciated as symptoms of a great revolution."
+
+First of all, let the "Prussian" allow us to make a comment of a stylistic nature. His antithesis is defective. In the first half it says: "when distress produces understanding", but in the second it says: "when political understanding discovers the roots of social distress". The simple understanding of the first half of the antithesis becomes political understanding in the second half, just as the simple distress of the first half of the antithesis becomes social distress in the second half. Why does our stylistic artist endow the two halves of his antithesis so unequally? I do not think that he realised why he did it. I will explain to him his correct instinct here. If the "Prussian" had written "when social distress produces political understanding, and political understanding discovers the roots of social distress", no unbiassed reader could have failed to see the nonsense of this antithesis. Everyone would at once have asked himself: why does the anonymous author not couple social understanding with social distress, and political understanding with political distress, as the simplest logic requires? And now to the matter itself!
+
+That social distress produces political understanding is so incor- rect that, on the contrary, what is correct is the opposite: social well-being produces political understanding. Political understanding is a spiritualist, and is given to him who already has, to him who is already comfortably situated. Let our "Prussian" listen to a French economist, M. Michel Chevalier, on this subject:
+
+We have already shown the "Prussian" how incapable political
+
+[^1]: "When the bourgeoisie rose up in 1789, it lacked — in order to be free — only participation in governing the country. Emancipation consisted for it in wresting the control of public affairs, the principal civil, military and religious functions, from the hands of the privileged who had the monopoly of these functions. Rich and enlightened, capable of being self-sufficient and of managing its own affairs, it wanted to escape from the system of arbitrary rule.""
+
+[^2]: a M. Chevalier, Des intérêts matériels en France, p. 3 (Marx gives a free translation).— Ed.
+
+[^3]: 8»
+
+
+
+
+
+**[p. 204]**
+
+But if the "Prussian" expects understanding to be produced by distress, why does he lump together "smothering in blood" and "smothering in incomprehension"} If distress is in general a means of producing understanding, then bloody distress is even a very acute means to this end. The "Prussian" therefore should have said: smothering in blood will smother incomprehension and procure a proper current of air for the understanding.
+
+The "Prussian" prophesies the smothering of uprisings which break out in "disastrous isolation of people from the community, and in the separation of their thoughts from social principles".
+
+We have shown that the Silesian uprising occurred by no means in circumstances of the separation of thoughts from social princi- ples. It only remains for us to deal with the "disastrous isolation of people from the community". By community here is meant the political community, the state. This is the old story about unpolitical Germany.
+
+But do not all uprisings, without exception, break out in a disastrous isolation of man from the community? Does not every uprising necessarily presuppose isolation? Would the 1789 revolu- tion have taken place without the disastrous isolation of French citizens from the community? It was intended precisely to abolish this isolation.
+
+But the community from which the worker is isolated is a community the real character and scope of which is quite different from that of the political community. The community from which the worker is isolated by his own labour is life itself, physical and mental life, human morality, human activity, human enjoyment, human nature. Human nature is the true community of men. The
+
+disastrous isolation from this essential nature is incomparably more universal, more intolerable, more dreadful, and more contradic- tory, than isolation from the political community. Hence, too, the abolition of this isolation — and even a partial reaction to it, an uprising against it—is just as much more infinite as man is more infinite than the citizen, and human life more infinite than political life. Therefore, however partial the uprising of the industrial workers may be, it contains within itself a universal soul; however universal a political uprising may be, it conceals even in its most grandiose form a narrow-minded spirit.
+
+The "Prussian" worthily concludes his article with the following sentence:
+
+"A social revolution without a political soul (i.e., without an organising idea from the point of view of the whole) is impossible."
+
+We have already seen that a social revolution is found to have the point of view of the whole because — even if it were to occur in only one factory district — it represents man's protest against a dehumanised life, because it starts out from the point of view of a separate real individual, because the community, against the separa- tion of which from himself the individual reacts, is man's true community, human nature. The political soul of revolution, on the other hand, consists in the tendency of classes having no political influence to abolish their isolation from statehood and rule. Its point of view is that of the state, of an abstract whole, which exists only through separation from real life, and which is inconceivable without the organised contradiction between the universal idea of man and the individual existence of man. Hence, too, a revolution with a political soul, in accordance with the limited and dichotomous nature of this soul, organises a ruling stratum in society at the expense of society itself.
+
+We want to divulge to the "Prussian" what a "social revolution with a political soul" actually is; we shall thereby at the same time confide the secret to him that he himself is unable, even in words, to rise above the narrow-minded political point of view.
+
+A "social" revolution with a political soul is either a nonsensical concoction, if by "social" revolution the "Prussian" means a "social" as opppsed to a political revolution, and nevertheless endows the social revolution with a political soul instead of a social one; or else a "social revolution with a political soul" is only a paraphrase for what was usually called a "political revolution", or "simply a revolution". Every revolution dissolves the old society and to that extent it is social. Every revolution overthrows the old power and to that extent it is political.
+
+
+
+**[p. 206]**
+
+Let the "Prussian" choose between the paraphrase and the nonsensel But whereas a social revolution with a political soul is a paraphrase or nonsense, a political revolution with a social! soul has a rational meaning. Ä«voiution in general—the overthrow of the existing power and dissolution of the old relationships — is a political act. But socialism cannot be realised without revolution. It needs this political act insofar as it needs destruction and dissolution. But where its organising activity begins, where its proper object, its soul, comes to the fore — there socialism throws off the political cloak.
+
+How much detailed argument has been necessary to tear to pieces the tissue of errors concealed on a single newspaper column. Not all readers can have the education and time to get to the bottom of such literary charlatanism. Is it therefore not the anonymous "Prussian's" duty to the reading public to refrain for the time being from all writing on political and social matters, such as the declamations about conditions in Germany, and instead sincerely try to come to an understanding of his own condition?
+
+Paris, July 31, 1844.
+
+First published in Vorwärts! Printed according to the news- Nos. 63 and 64, August 7 and 10, 1844 paper (Paris) Signed: Karl Marx
+
+ILLUSTRATIONS OF THE LATEST EXERCISE IN CABINET
+
+STYLE OF FREDERICK WILLIAM IV
+
+"I cannot leave the soil of the Fatherland, although only for a short time, without expressing publicly the deeply-felt gratitude in My and the Queen's3 name by which Our heart has been moved. It has heen produced by the innumerable verbal and written proofs of the love for Us which the attempt of July 26 has evoked — of the love which jubilantly acclaimed Us at the moment of the crime itself, when the hand of the Almighty cast the deadly bullet away from My breast to the ground. While looking upwards to the divine Saviour, I go with new courage about My daily work, to complete what has been begun, to carry out what has been prepared, to combat evil with new certainty of victory, and to be to My people what My high vocation imposes on Me, and My people's love merits. "Erdmannsdorf, August 5, 1844
+
+Immediate emotion is a bad writer. The letter which a lover writes in great excitement to his beloved is no model of style, but it is just this confusion of expression that is the clearest, most obvious and most moving expression of the power of love over the writer of the letter. The power of love over the letter-writer is the power of his beloved over him. That passionate unclarity and erratic confusion of style therefore flatters the heart of the beloved, since the reflected, general, and therefore untrustworthy nature of the language has assumed a directly individual, sensu- ously powerful, and hence absolutely trustworthy, character. The trusting faith in the truth of the love that the lover expresses for her, however, is the supreme joy of the loved one, her faith in herself.
+
+From these premises it follows: We perform an inestimable service for the Prussian people when we put the inner truth of the
+
+[^1]: (signed)fr«dmck William"
+
+[^2]: a Queen Elizabeth.— Ed.
+
+
+
+
+
+**[p. 208]**
+
+royal gratitude beyond all doubt. We put this truth beyond all doubt, however, by proving the force of the thankful feeling over the royal writer, and we prove the force of this feeling over the royal writer by demonstrating the stylistic confusion of the cabinet edict in expressing thanks. Hence the aim of our patriotic analysis will not be misinterpreted.
+
+"I cannot leave the soil of the Fatherland, although only for a short time, without expressing publicly the deeply-felt gratitude in My and the Queen's name by which Our heart has been moved."
+
+By the construction of the sentence, it might be thought at first glance that the royal bosoms were moved by their own name. If amazement at this peculiar movement makes one think again, one sees that the relative conjunction "by which our heart has been moved" refers not to the name, but to the more remotely situated gratitude. The singular "Our heart" for the heart of the king and the heart of the queen can be justified as poetic licence, as a cordial expression of the cordial unity of the cordial royal couple. The laconic brevity: "in My and the Queen's name", instead of "in My name and in the name of the Queen", can easily lead to a false interpretation. "My and the Queen's name" could be understood to mean the simple name of the king, since the name of the husband is the name of the husband and the wife. Now, it is true that it is a privilege of great men and of children to make their name the subject of the sentence instead of saying "I". Thus Caesar could say "Caesar conquered" instead of "I conquered". Thus children do not say "I want to go to the school in Vienna", but "Friedrich, Karl, or Wilhelm, etc., wants to go to the school in Vienna". But it would be a dangerous innovation to make one's "I" the subject of the sentence and at the same time to give an assurance that this "I" speaks in his "own" name. Such an assurance could seem to contain a confession that one did not usually speak from one's own inspiration. "I cannot leave the soil of the Fatherland, although only for a short time" is neither a very skilful nor a more easily intelligible rephrasing of "I cannot leave the soil of the Fatherland, even for a short time, without, etc." The difficulty is due to the combination of three ideas: (1) that the king is leaving his homeland, (2) that he is leaving it only for a short time, (3) that he feels a need to thank the people. The too compressed utterance of these ideas makes it appear that the king expresses his gratitude only because he is leaving his home- land. But if the gratitude was seriously meant, if it came from the heart, then its utterance could not possibly be linked with such a
+
+"It" (the gratitude) "has been produced by the innumerable verbal and written proofs of the love for Us which the attempt of July 26 has evoked — of the love which jubilantly acclaimed Us at the moment of the crime itself, when the hand of the Almighty cast the deadly bullet away from My breast to the ground."
+
+It is not clear whether the attempt evoked the love or the proofs of the love, the more sb because the genitive "of the love" after the parenthesis appears again as the governing and emphasised phrase in the sentence. The stylistic boldness of the repetition of the genitive is very noticeable. The difficulty increases when we examine the content of the sentence. Was it correct that the love which spoke and wrote was described directly as the subject which shouted in the street? Did not chronological truth require that one should begin with the love that was voiced at once in the presence of the occurrence and only then go on to the subsequent expressions of love in writing and speech?
+
+Should one not have avoided the suspicion that the king desires simultaneously to flatter both the aristocracy and the people? The aristocracy because their written and verbal expressions of love, although coming later in time than the popular expressions of love, nevertheless by their effect were earlier able to arouse gratitude in the royal heart; the people because its jubilant love is declared to be essentially the same as the written and verbal love, that is, the hereditary nobility of love is abolished? Lastly, it does not seem altogether appropriate to cause the "bullet" to be warded off directly by the hand of God, since in this way even a slight degree of consistent thought will arrive at the false conclusion that God at the same time both guided the hand of the criminal and diverted the bullet away from the king; for how can one presume a one-sided action on the part of God?
+
+One cannot very well say: "I go" "to be something". At the most one can go "to become something". The motion involved in becoming appears at least as the result of the motion of going, although we would not recommend even the latter turn of phrase as correct. That His Majesty "goes while looking upwards to God" "to complete what has been begun, to carry out what has been prepared", does not seem to offer a good prospect for either the
+
+[^1]: "While looking upwards to the divine Saviour, I go with new courage about My daily work, to complete what has been begun, to carry out what has been prepared, to combat evil with [] certainty of victory, and to be to My people what My high vocation imposes on Me, and My people's love merits."
+
+
+
+
+
+**[p. 210]**
+
+Written about August 15, 1844 Printed according to the news- paper First published » Vjnj&fc/ Published in English for the first No. 66, August 17, 1844 ^ e
+
+[COMMENTS ON JAMES MILL, ÊLÉMENS D'ÉCONOMIE POLITIQUE Translated by J. T. Parisot, Paris, 1823]48
+
+||XXVf In the compensation of money and value of metal, as in his description of the cost of production as the only factor in determining value,49 Mill commits the mistake — like the school of Ricardo in general — of stating the abstract law without the change or continual supersession of this law through which alone it comes into being. If it is a constant law that, for example, the cost of production in the last instance — or rather when demand and supply are in equilibrium which occurs sporadically, fortuitous- ly— determines the price (value), it is just as much a constant law that they are not in equilibrium, and that therefore value and cost of production stand in no necessary relationship. Indeed, there is always only a momentary equilibrium of demand and supply owing to the previous fluctuation of demand and supply, owing to the disproportion between cost of production and exchange-value, just as this fluctuation and this disproportion likewise again follow the momentary state of equilibrium. This real movement, of which that law is only an abstract, fortuitous and one-sided factor, is made by recent political economy into something accidental and inessential. Why? Because in the acute and precise formulas to which they reduce political economy, the basic formula, if they wished to express that movement abstractly, would have to be: In political economy, law is determined by its opposite, absence of law. The true law of political economy is chance, from whose movement we, the scientific men, isolate certain factors arbitrarily in the form of laws.
+
+[^1]: 1 The Roman figures refer to Marx's Paris Notebook number four.— Ed.
+
+
+
+
+
+**[p. 212]**
+
+Christ represents originally: 1) men before God; 2) God for men; 3) men to man.
+
+Similarly, money represents originally, in accordance with the idea of money: 1) private property for private property; 2) society for private property; 3) private property for society.
+
+But Christ is alienated God and alienated man. God has value only insofar as he represents Christ, and man has value only insofar as he represents Christ. It is the same with money.
+
+Why must private property develop into the money system? Because man as a social being must proceed to exchange i|XXVIa
+
+and because exchange—private property being presup- posed— must evolve value. The mediating process between men
+
+[^1]: a Two consecutive pages are numbered XXV.—Ed.
+
+
+
+
+
+**[p. 213]**
+
+engaged in exchange is not a social or human process, not human relationship; it is the abstract relationship of private property to private property, and the expression of this abstract relationship is value, whose actual existence as value constitutes money. Since men enga- ged in exchange do not relate to each other as men, tilings lose the significance of human, personal property. The social relati- onship of private property to private property is already a rela- tionship in which private property is estranged from itself. The form of existence for itself of this relationship, money, is there- fore the alienation of private property, the abstraction from its specific, personal nature.
+
+Hence the opposition of modern political economy to the monetary system, the système monétaire, cannot achieve any deci- sive victory in spite of all its cleverness. For if the crude economic superstition of the people and governments clings to the sensuous, tangible, conspicuous money-bag, and therefore believes both in the absolute value of the precious metals and possession of them as the sole reality of wealth — and if then the enlightened, worldly- wise economist comes forward and proves to them that money is a commodity like any other, the value of which, like that of any other commodity, depends therefore on the relation of the cost of production to demand, competition, and supply, to the quantity or competition of the other commodities — this economist is given the correct reply that nevertheless the real value of things is their exchange-value and this in the last instance exists in money, as the latter does in the precious metals, and that consequently money represents the true value of things and for that reason money is the most desirable thing. Indeed, in the last instance the econom- ist's theory itself amounts to this wisdom, the only difference being that he possesses the capacity of abstraction, the capacity to recognise the existence of money under all forms of commodities and therefore not to believe in the exclusive value of its official metallic mode of existence. The metallic existence of money is only the official palpable expression of the soul of money, which is present in all branches of production and in all activities of bourgeois society.
+
+The opposition of modern economists to the monetary system is merely that they have conceived the essence of money in its abstract universality and are therefore enlightened about the sensuous superstition which believes in the exclusive existence of this essence in precious metal. They substitute refined superstition for crude superstition. Since, however, in essence both have the same root, the enlightened form of the superstition cannot succeed in
+
+
+
+**[p. 214]**
+
+supplanting completely the crude sensuous form, because the former does not attack the essence of the latter but only the particular form of this essence.
+
+The personal mode of existence of money as money — and not only as the inner, implicit, hidden social relationship or class relationship between commodities—this mode of existence corres- ponds the more to the essence of money, the more abstract it is, the less it has a natural relationship to the other commodities, the more it appears as the product and yet as the non-product of man, the less primitive its sphere of existence, the more it is created by man or, in economic terms, the greater the inverse relationship of its value as money to the exchange-value or money value of the material in which it exists. Hence paper money and the whole number of paper representatives of money (such as bills of exchange, mandates, promissory notes, etc.) are the more perfect mode of existence of money as money and a necessary factor in the progressive development of the money system. In the credit system, of which banking is the perfect expression, it appears as if the power of the alien, material force were broken, the relationship of self-estrangement abolished and man had once more human relations to man. The Saint-Simonists, deceived by this appearance, regarded the development of money, bills of exchange, paper money, paper representatives of money, credit, banking, as a gradual abolition of the separation of man from things, of capital from labour, of private property from money and of money from man, and of the separation of man from man. An organised banking system is therefore their ideal. But this abolition of ||XXVI| estrangement, this return of man to himself and therefore to other men is only an appearance; the self-estrangement, the dehumanisa- tion, is all the more infamous and extreme because its element is no longer commodity, metal, paper, but man's moral existence, man's social existence, the inmost depths of his heart, and because under the appearance of man's trust in man it is the height of distrust and complete estrangement. What constitutes the essence of credit? We leave entirely out of account here the content of credit, which is again money. We leave out of account, therefore, the content of this trust in accordance with which a man recognises another man by advancing him a certain quantity of value and — at best, namely, when he does not demand payment for the credit, i.e., he is not a usurer — showing his trust in his fellow man not being a swindler, but a "good" man. By a "good" man, the one who bestows his trust understands, like Shylock, a man who is "able to pay".
+
+
+
+**[p. 215]**
+
+Within the credit system, its nature, estranged from man, under the appearance of an extreme economic appreciation of man, operates in a double way:
+
+1) The antithesis between capitalist and worker, between big and
+
+
+
+**[p. 216]**
+
+2) Mutual dissimulation, hypocrisy and sanctimoniousness are carried to extreme lengths, so that on the man without credit is pronounced not only the simple judgment that he is poor, but in addition a pejorative moral judgment that he possesses no trust, no recognition, and therefore is a social pariah, a bad man, and in addition to his privation, the poor man undergoes this humiliation and the humiliating necessity of having to ask the rich man for credit.
+
+IIXXVIII 3) Since, owing to this completely nominal existence of money, counterfeiting cannot be undertaken by man in any other material than his own person, he has to make himself into counterfeit coin, obtain credit by stealth, by lying, etc., and this credit relationship—both on the part of the man who trusts and of the man who needs trust — becomes an object of commerce, an object of mutual deception and misuse. Here it is also glaringly evident that distrust is the basis of economic trust; distrustful calculation whether credit ought to be given or not; spying into the secrets of the private life, etc., of the one seeking credit; the disclosure of temporary straits in order to overthrow a rival by a sudden shattering of his credit, etc. The whole system of bank- ruptcy, spurious enterprises, etc As regards government loans, the state occupies exactly the same place as the man does in the earlier example In the game with government securities it is seen how the state has become the plaything of businessmen, etc.
+
+4) The credit system finally has its completion in the banking system. The creation of bankers, the political domination of the bank, the concentration of wealth in these hands, this economic Areopagus of the nation, is the worthy completion of the money system.
+
+Owing to the fact that in the credit system the moral recognition of a man, as also trust in the state, etc., take the form of credit, the secret contained in the lie of moral recognition, the immoral vileness of this morality, as also the sanctimoniousness and egoism of that trust in the state, become evident and show themselves for what they really are.
+
+Exchange, both of human activity within production itself and of human products against one another, is equivalent to species-activity
+
+The community of men, or the manifestation of the nature of men, their mutual complementing the result of which is species-life, truly human life — this community is conceived by political economy in the form of exchange and trade. Society, says Destutt de Tracy, is a series of mutual exchanges." It is precisely this process of mutual integration. Society, says Adam Smith, is a commercial society. Each of its members is a merchant.6
+
+It is seen that political economy defines the estranged form of social intercourse as the essential and original form corresponding to man's nature.
+
+IIXXVIIII Political economy—like the real process—starts out from the relation of man to man as that of property owner to property owner. If man is presupposed as property owner, i.e., therefore as
+
+[^1]: a See Destutt de Tracy, Elémens d'idéologie, IVe et Ve parties. Traité de la volonté et de ses effets, p.68.— Ed.
+
+[^2]: b See Adam Smith, Wealth of Nations, Book I, Ch. IV.—Ed.
+
+
+
+
+
+**[p. 218]**
+
+The bond which connects the two property owners with each other is the specific kind of object that constitutes the substance of their private property. The desire for these two objects, i.e., the need for them, shows each of the property owners, and makes him conscious of it, that he has yet another essential relation to objects besides that of private ownership, that he is not the particular being that he considers himself to be, but a total being whose needs stand in the relationship of inner ownership to all products, including those of another's labour. For the need of a thing is the most evident, irrefutable proof that the thing belongs to my essence, that its being is for me, that its property is the property, the peculiarity, of my essence. Thus both property owners are impelled to give up their private property, but to do so in such a way that at the same time they confirm private ownership, or to give up the private property within the relation- ship of private ownership. Each therefore alienates a part of his private property to the other.
+
+The social connection or social relationship between the two prop- erty owners is therefore that of reciprocity in alienation, positing
+
+
+
+**[p. 219]**
+
+the relationship of alienation on both sides, or alienation as the relationship of both property owners, whereas in simple private property, alienation occurs only in relation to oneself, one-sidedly.
+
+Exchange or barter is therefore the social act, the species-act, the community, the social intercourse and integration of men within private ownership, and therefore the external, alienated species-act. It is just for this reason that it appears as barter. For this reason, likewise, it is the opposite of the social relationship.
+
+Through the reciprocal alienation or estrangement of private property, private property itself falls into the category of alienated private property.5' For, in the first place, it has ceased to be the product of the labour of its owner, his exclusive, distinctive personality. For he has alienated it, it has moved away from the owner whose product it was and has acquired a personal signifi- cance for someone whose product it is not. It has lost its personal significance for the owner. Secondly, it has been brought into relation with another private property, and placed on a par with the latter. Its place has been taken by a private property of a different kind, just as it itself takes the place of a private property of a different kind. On both sides, therefore, private property appears as the representative of a different kind of private property, as the equivalent of a different natural product, and both sides are related to each other in such a way that each represents the mode of existence of the other, and both relate to each other as substitutes for themselves and the other. Hence the mode of existence of private property as such has become that of a substitute, of an equivalent. Instead of its immediate unity with itself, it exists now only as a relation to something else. Its mode of existence as an equivalent is no longer its specific mode of existence. It has thus become a value, and immediately an exchange-value. Its mode of existence as value is an alienated designa- tion IIXXIXI of itself, different from its immediate existence, external to its specific nature, a merely relative mode of existence of this.
+
+How this value is more precisely determined must be described elsewhere, as also how it becomes price.
+
+The relationship of exchange being presupposed, labour becomes directly labour to earn a living. This relationship of alienated labour reaches its highest point only when 1) on one side labour to earn a living and the product of the worker have no direct relation to his need or his function as worker, but both aspects are determined by social combinations alien to the worker; 2) he who buys the product is not himself a producer, but gives in exchange what
+
+
+
+**[p. 220]**
+
+someone else has produced. In the crude form of alienated private property, barter, each of the property owners has produced what his immediate need, his talents and the available raw material have impelled him to make. Each, therefore, exchanges with the other only the surplus of his production. It is true that labour was his immediate source of subsistence, but it was at the same time also the manifestation of his individual existence. Through exchange his labour has become partly a source of income. Its purpose differs now from its mode of existence. The product is produced as value, as exchange-value, as an equivalent, and no longer because of its direct, personal relation to the producer. The more diverse production becomes, and therefore the more diverse the needs become, on the one hand, and the more one-sided the activities of the producer become, on the other hand, the more does his labour fall into the category of labour to earn a living, until finally it has only this significance and it becomes quite accidental and inessential whether the relation of the producer to his product is that of immediate enjoyment and personal need, and also whether his activity, the act of labour itself, is for him the enjoyment of his personality and the realisation of his natural abilities and spiritual aims.
+
+Labour to earn a living involves: 1) estrangement and fortuitous connection between labour and the subject who labours; 2) estrangement and fortuitous connection between labour and the object of labour; 3) that the worker's role is determined by social needs which, however, are alien to him and a compulsion to which he submits out of egoistic need and necessity, and which have for him only the significance of a means of satisfying his dire need, just as for them he exists only as a slave of their needs; 4) that to the worker the maintenance of his individual existence appears to be the purpose of his activity and what he actually does is regarded by him only as a means; that he carries on his life's activity in order to earn means of subsistence.
+
+Hence the greater and the more developed the social power appears to be within the private property relationship, the more egoistic, asocial and estranged from his own nature does man become.
+
+Just as the mutual exchange of the products of human activity appears as barter, as trade, so the mutual completion and exchange of the activity itself appears as division of labour, which turns man as far as possible into an abstract being, a machine tool, etc., and transforms him into a spiritual and physical monster.
+
+It is precisely the unity of human labour that is regarded merely
+
+
+
+**[p. 221]**
+
+as division of labour, because social nature only comes into existence as its opposite, in the form of estrangement. Division of labour increases with civilisation.
+
+Within the presupposition of division of labour, the product, the material of private property, acquires for the individual more and more the significance of an equivalent, and as he no longer exchanges only his surplus, and the object of his production can be simply a matter of indifference to him, so too he no longer exchanges his product for something directly needed by him. The equivalent comes into existence as an equivalent in money, which is now the immediate result of labour to gain a living and the medium of exchange (see above").
+
+The complete domination of the estranged thing over man has become evident in money, which is completely indifferent both to the nature of the material, i.e., to the specific nature of the private property, and to the personality of the property owner. What was the domination of person over person is now the general domina- tion of the thing over the person, of the product over the producer. Just as the concept of the equivalent, the value, already implied the alienation of private property, so money is the sensuous, even objective existence of this alienation.
+
+11XXX | Needless to say that political economy is only able to grasp this whole development as a fact, as the outcome of fortuitous necessity.
+
+The separation of work from itself—separation of the worker from the capitalist—separation of labour and capital, the original form of which is made up of landed property and movableh property The original determining feature of private property is mono- poly; hence when it creates a political constitution, it is that of monopoly. The perfect monopoly is competition.
+
+To the economist, production, consumption and, as the mediator of both, exchange or distribution, are separate [activities].52 The sepa- ration of production and consumption, of action and spirit, in different individuals and in the same individual, is the separation of labour from its object and from itself as something spiritual. Distribution is the power of private property manifesting itself.
+
+The separation of labour, capital and landed property from one another, like that of labour from labour, of capital from capital, and landed property from landed property, and finally the separation of labour from wages, of capital from profit, and profit from interest, and, last of all, of landed property from land rent,
+
+[^1]: a See this volume, pp. 212-14.—£d. "Movable" is not underlined in the manuscript.—Ed.
+
+
+
+"We have next to examine the effects which take place by the attempts of government to control the increase or diminution of money [] When it endeavours to keep the quantity of money less than it would be, if things were left in freedom, it raises the value of the metal in the coin, and renders it the interest of every body, [who can,] to convert his bullion into money." People "have recourse to private coming. This the government must [] prevent by punishment. On the other hand, were it the object of government to keep the quantity of money greater than it would be, if left in freedom, it would reduce the value of the metal in money, below its value in bullion, and make it the interest of every body to melt the coins. This, also, the government would have only one expedient for preventing, namely, punishment. But the prospect of punishment will prevail over the prospect of profit [,only if the profit is small]." a Pp. 101, 102 (pp. 137, 138).
+
+Section IX. "If there were two individuals one of whom owed to the other £100, and the other owed to him £100", instead of paying each other this sum "all they had to do was to exchange their mutual obligations. The case" is the same between two nations Hence bills of exchange. "The use of them was recom- mended by a still stronger necessity [], because the coarse policy of those times prohibited the exportation of the precious metals, and punished with the greatest severity any infringement" Pp. 104-05, 106 (p. 142 et seq.).
+
+Section X. Saving of unproductive consumption by paper money. P. 108 et seq. (p. 146 et seq.).
+
+Section XI. "The inconveniencies" of paper money are "First,— The failure of the parties, by whom the notes are issued, to fulfil their engagements. Second,— Forgery. Third,— The alteration of the value of the currency". P. 110 (p. 149).
+
+[^1]: Section XII. " the precious metals, are [] that commodity [which is the most generally bought and sold]. Those commodities alone can be exported, which are cheaper in the country from which they go, than in the country to which they are sent; and that those commodities alone can be imported, which are dearer in the country to which they come, than in the country from which they are sent". Accordingly it depends on the value of the precious metals in a country whether they are imported or exported. Pp. 128, 129 [p. 175 et seq.].
+
+[^2]: Section XIII. "When we speak of the value of the precious metal, we mean the quantity of other things for which it will exchange." This relation is different in different countries and even in different parts of the country. "We say that living is more cheap; in other words, commodities may be purchased with a smaller quantity of money." P. 131 [p. 177].
+
+[^3]: Section XVI. The relation between nations is like that between merchants "The merchants [] will always buy in the cheapest market, and sell in the dearest." P. 159 (p. 215).
+
+[^4]: IV. Consumption.
+
+[^5]: "Production, Distribution, Exchange [] are means. No man produces for the sake of producing [] distribution and exchange are only the intermediate operations [for bringing the things which have been produced into the hands of those who are] to consume them." P. 177 (p. 237).
+
+[^6]: a The extracts quoted by Marx from Parisot's French translation of 1823 are reproduced here from the original English text of James Mill's book. The page references are to the English edition of 1821, Marx's page references to the French translation being given in brackets. In this and the following extracts Marx has summarised or paraphrased some passages.— Ed.
+
+
+
+Section I. "Of Consumption, there are two species." 1) Productive. It includes everything "expended for the sake of something to be produced" and comprises "the necessaries of the labourer" The second class then [] "machinery; including tools [], the buildings necessary for the productive operations, and even the cattle. The third is, the material of which the commodity to be produced must be formed, or from which it must be derived". Pp. 178, 179 (pp. 238, 239). "[Of these three classes of things,] it is only the second, the consumption of which is not completed in the course of the productive operations." P. 179 (loc. cit.).
+
+2) Unproductive consumption. "The wages" given to a "footman" and "all consumption, which does not take place to the end that something, which may be an equivalent for it, may be produced by means of it, is unproductive consump- tion". Pp. 179, 180 (p. 240). "Productive consumption is itself a means; it is a means to production. Unproductive consumption [] is not a means." It "is the end. This, or the enjoyment which is involved in it, is the good which constituted the motive to all the operations by which it was preceded". P. 180 (p. 241). "By productive consumption, nothing is lost [] Whatever is unproductively consumed, is lost." P. 180 (loc. cit.). "That which is productively consumed is always capital. This is a property of productive consumption which deserves to be particularly remarked [] Whatever is consumed productively" is capital and "becomes capital." P. 181 (p. [241,]242). "The whole of what the productive powers of the country have brought into existence in the course of a year, is called the gross annual produce. Of this the greater part is required to replace the capital which has been consumed [] What remains of the gross produce, after replacing the capital which has been consumed, is called the net produce; and is always distributed either as profits of stock, or as rent." Pp. 181, 182 (pp. 242, 243). "This net produce is the fund from which all addition to the national capital is commonly made." (loc. cit.) " the two species of consumption" are matched by "the two species of labour, productive and unproductive" P. 182 (p. 244).
+
+[^1]: Section II. " the whole of what is annually produced, is annually consumed; or [] what is produced in one year, is consumed in the next." Either productively or unproductively. P. 184 (p. 246).
+
+[^2]: Section III. "Consumption is co-extensive with production." "A man produces, only because he wishes to have. If the commodity which he produces is the commodity which he wishes to have, he stops when he has produced as much as he wishes to have[] When a man produces a greater quantity [] than he desires for himself, it can only be on one account; namely, that he desires some other commodity, which he can obtain in exchange for the surplus of what he himself has produced If a man desires one thing, and produces another, it can only be because the thing which he desires can be obtained by means of the thing which he produces, and better obtained than if he had endeavoured to produce it himself. After labour has been divided [] each producer confines himself to some one commodity or part of a commodity, a small portion only of what he produces is used for his own consumption. The remainder he destines for the purpose of supplying him with all the other commodities which he desires; and when each man confines himself to one commodity, and exchanges what he produces for what is produced by o.ther people, it is found that each obtains more of the several things which he desires, than he would have obtained had he endeavoured to produce them all for himself." ||XXXI| "In the case of the man who produces for himself, there is no exchange. He neither offers to buy any thing, nor to sell any thing. He has the property; he has produced it; and does not mean to part with it. If we apply, by a sort of metaphor, the terms demand and supply to this case, it is implied [] that the demand and supply are exactly proportioned to one another.
+
+
+
+
+
+**[p. 224]**
+
+"In speaking here of demand and supply, it is evident that we speak of aggregates. When we say of any particular nation, at any particular time, that its supply is equal to its demand, we do not mean in any one commodity, or any two commodities. We mean, that the amount of its demand in all commodities taken together, is equal to the amount of its supply in all commodities taken together. It may very well happen, notwithstanding this equality in the general sum of demands and supplies, that some one commodity or commodities may have been produced in a quantity either above or below the demand for those particular commodities." P. 188 (pp. 251, 252). "Two things are necessary to constitute a demand. These are — A Wish for the commodity, and An Equivalent to give for it. A demand means, the will to purchase, and the means of purchasing. If either is wanting, the purchase does not take place. An equivalent is the necessary foundation of all demand. It is in vain that a man wishes for commodities, if he has nothing to give for them. The equivalent which a man brings is the instrument of demand. The extent of his demand is measured by the extent of his equivalent. The demand and the equivalent are convertible terms, and the one may be substituted for the other. [] We have already seen, that every man, who produces, has a wish for other commodities, than those which he has produced, to the extent of all that he has produced beyond what he wishes to keep for his own consumption. And it is evident, that whatever a man has produced and does not wish to keep for his own consumption, is a stock which he may give in exchange for other commodities. His will, therefore, to purchase, and his means of purchasing—in other words, his demand, is exactly equal to the amount of what he has produced and does not mean to consume." Pp. 188-89 (pp. 252, 253).
+
+With his customary cynical acumen and clarity, Mill here analyses exchange on the basis of private property.
+
+Man produces only in order to have—this is the basic presupposi- tion of private property. The aim of production is having. And not only does production have this kind of useful aim; it has also a selfish aim; man produces only in order to possess for himself; the object he produces is the objectification of his immediate, selfish need. For man himself—in a savage, barbaric condition — therefore, the amount of his production is determined by the extent of his immediate need, the content of which is directly the object produced.
+
+Under these conditions, therefore, man produces no more than he immediately requires. The limit of his need forms the limit of his production. Thus demand and supply exactly coincide. The extent of his production is measured by his need. In this case no exchange takes place, or exchange is reduced to the exchange of his labour for the product of his labour, and this exchange is the latent form, the germ, of real exchange.
+
+
+
+**[p. 225]**
+
+As soon as exchange takes place, a surplus is produced beyond the immediate limit of possession. But this surplus production does not mean rising above selfish need. On the contrary, it is only an indirect way of satisfying a need which finds its objectification not in this production but in the production of someone else. Production has become a means of gaining a living, labour to gain a living. Whereas under the first state of affairs, therefore, need is the measure of production, under the second state of affairs production, or rather ownership of the product, is the measure of how far needs can be satisfied.
+
+I have produced for myself and not for you, just as you have produced for yourself and not for me. In itself, the result of my production has as little connection with you as the result of your production has directly with me. That is to say, our production is not man's production for man as a man, i.e., it is not social production. Neither of us, therefore, as a man stands in a relation of enjoyment to the other's product. As men, we do not exist as far as our respective products are concerned. Hence our ex- change, too, cannot be the mediating process by which it is confirmed that my product IIXXXIII is [for] you, because it is an objectification of your own nature, your need. For it is not man's nature that forms the link between the products we make for one another. Exchange can only set in motion, only confirm, the character of the relation which each of us has in regard to his own product, and therefore to the product of the other. Each of us sees in his product only the objectification of his own selfish need, and therefore in the product of the other the objectification of a different selfish need, independent of him and alien to him.
+
+As a man you have, of course, a human relation to my product: you have need of my product. Hence it exists for you as an object of your desire and your will. But your need, your desire, your will, are powerless as regards my product. That means, therefore, that your human nature, which accordingly is bound to stand in intimate relation to my human production, is not your power over this production, your possession of it, for it is not the specific character, not the power, of man's nature that is recognised in my production. They [your need, your desire, etc.] constitute rather the tie which makes you dependent on me, because they put you in a position of dependence on my product. Far from being the means which would give you power over my production, they are instead the means for giving me power over you.
+
+When I produce more of an object than I myself can directly use, my surplus production is cunningly calculated for your need. It
+
+
+
+**[p. 226]**
+
+On both sides, therefore, exchange is necessarily mediated by the object which each side produces and possesses. The ideal relationship to the respective objects of our production is, of course, our mutual need. But the real, true relationship, which actually occurs and takes effect, is only the mutually exclusive possession of our respective products. What gives your need of my article its value, worth and effect for me is solely your object, the equivalent of my object. Our respective products, therefore, are the means, the mediator, the instrument, the acknowledged power of our mutual needs. Your demand and the equivalent of your possession, therefore, are for me terms that are equal in significance and validity, and your demand only acquires a meaning, owing to having an effect, when it has meaning and effect in relation to me. As a mere human being without this instrument your demand is an unsatisfied aspiration on your part and an idea that does not exist for me. As a human being, therefore, you stand in no relationship to my object, because J myself have no human relationship to it. But the means is the true power over an object and therefore we mutually regard our products as the power of each of us over the other and over himself. That is to say, our own product has risen up against us; it seemed to be our property,
+
+
+
+**[p. 227]**
+
+but in fact we are its property. We ourselves are excluded from true property because our property excludes other men.
+
+The only intelligible language in which we converse with one another consists of our objects in their relation to each other. We would not understand a human language and it would remain without effect. By one side it would be recognised and felt as being a request, an entreaty, IIXXXIIII and therefore a humiliation, and consequently uttered with a feeling of shame, of degradation. By the other side it would be regarded as impudence or lunacy and rejected as such. We are to such an extent estranged from man's essential nature that the direct language of this essential nature seems to us a violation of human dignity, whereas the estranged language of material values seems to be the well-justified assertion of human dignity that is self-confident and conscious of itself.
+
+Although in your eyes your product is an instrument, a means, for taking possession of my product and thus for satisfying your need; yet in my eyes it is the purpose of our exchange. For me, you are rather the means and instrument for producing this object that is my aim, just as conversely you stand in the same relationship to my object. But 1) each of us actually behaves in the way he is regarded by the other. You have actually made yourself the means, the instrument, the producer of your own object in order to gain possession of mine; 2) your own object is for you only the sensuously perceptible covering, the hidden shape, of my object; for its production signifies and seeks to express the acquisi- tion of my object. In fact, therefore, you have become for yourself a means, an instrument of your object, of which your desire is the servant, and you have performed menial services in order that the object shall never again do a favour to your desire. If then our mutual thraldom to the object at the beginning of the process is now seen to be in reality the relationship between master and slave, that is merely the crude and frank expression of our essential relationship.
+
+Our mutual value is for us the value of our mutual objects. Hence for us man himself is mutually of no value.
+
+Let us suppose that we had carried out production as human beings. Each of us would have in two ways affirmed himself and the other person. 1) In my production I would have objectified my indi- viduality, its specific character, and therefore enjoyed not only an in- dividual manifestation of my life during the activity, but also when look- ing at the object I would have the individual pleasure of knowing my personality to be objective, visible to the senses and hence a power beyond all doubt. 2) In your enjoyment or use of my product I
+
+
+
+**[p. 228]**
+
+Our products would be so many mirrors in which we saw reflected our essential nature.
+
+This relationship would moreover be reciprocal; what occurs on my side has also to occur on yours.
+
+Let us review the various factors as seen in our supposition: My work would be a free manifestation of life, hence an enjoyment of life. Presupposing private property, my work is an alienation of life, for I work in order to live, in order to obtain for myself the means of life. My work is not my life.
+
+Secondly, the specific nature of my individuality, therefore, would be affirmed in my labour, since the latter would be an affirmation of my individual life. Labour therefore would be true, active property. Presupposing private property, my individuality is alie- nated to such a degree that this activity is instead hateful to me, a torment, and rather the semblance of an activity. Hence, too, it is only a forced activity and one imposed on me only through an external fortuitous need, not through an inner, essential one.
+
+My labour can appear in my object only as what it is. It cannot appear as something which by its nature it is not. Hence it appears only as the expression of my loss of self and of my powerlessness that is objective, sensuously perceptible, obvious and therefore put beyond all doubt. | XXXIII ||53
+
+[^1]: Written in the first half of 1844 Printed according to the manu- First published in: Marx/Engels, script Gesamtausgabe, Abt. l, Bd. 3, 1932
+
+
+
+[ECONOMIC AND PHILOSOPHIC MANUSCRIPTS OF 184454]
+
+
+
+[^1]: Written between April and August 1844 Printed according to the manu- First published in full in: Marx/Engels, script Gesamtausgabe, Abt. I, Bd. 3, 1932
+
+
+
+Preface
+
+IIXXXIXI I have already announced in the Deutsch-Französische Jahrbücher the critique of jurisprudence and political science in the form of a critique of the Hegelian philosophy of law.a While preparing it for publication, the intermingling of criticism directed only against speculation with criticism of the various subjects themselves proved utterly unsuitable, hampering the develop- ment of the argument and rendering comprehension difficult. Moreover, the wealth and diversity of the subjects to be treated could have been compressed into one work only in a purely apho- ristic style; whilst an aphoristic presentation of this kind, for its part, would have given the impression of arbitrary systematism. I shall therefore publish the critique of law, ethics, politics, çtc, in a series of distinct, independent pamphlets, and afterwards try in a special work to present them again as a connected whole showing the interrelationship of the separate parts, and lastly attempt a critique of the speculative elaboration of that material. For this reason it will be found that the interconnection between political economy and the state, law, ethics, civil life, etc., is touched upon in the present work only to the extent to which political economy itself expressly touches upon these subjects.
+
+It is hardly necessary to assure the reader conversant with political economy that my results have been attained by means of a wholly empirical analysis based on a conscientious critical study of political economy.
+
+(Whereas the uninformed reviewerb who tries to hide his complete ignorance and intellectual poverty by hurling the "uto-
+
+[^1]: " See this volume, pp. 175-87.—Ed. b Bruno Bauer.—Ed.
+
+
+
+
+
+**[p. 232]**
+
+pian phrase" at the positive critic's head, or again such phrases as "quite pure, quite resolute, quite critical criticism", the "not merely legal but social—utterly social—society", the "compact, massy mass", the "outspoken spokesmen of the massy mass",55
+
+this reviewer has yet to furnish the first proof that besides his theological family affairs he has anything to contribute to a discussion of worldly matters.)
+
+It goes without saying that besides the French and English socialists I have also used German socialist works. The only original German works of substance in this science, how- ever—other than Weitling's writings—are the essays by Hess published in Einundzwanzig Bogen56 and Umrisse zu einer Kritik der Nationalökonomie by Engels3 in the Deutsch-Französische Jahrbücher, where also the basic elements of this work [Economic and Philosophic Manuscripts of 1844] have been indicated by me in a very general way.
+
+(Besides being indebted to these authors who have given critical attention to political economy, positive criticism as a whole—and therefore also German positive criticism of political econ- omy—owes its true foundation to the discoveries of Feuerbach, against whose Philosophie der Zukunft and Thesen zur Reform der Philosophie in the Anekdota,b despite the tacit use that is made of them, the petty envy of some and the veritable wrath of others seem to have instigated a regular conspiracy of silence.)
+
+It is only with Feuerbach that positive, humanistic and naturalistic criticism begins. The less noise they make, the more certain, profound, extensive, and enduring is the effect of Feuerbach's writings, the only writings since. Hegel's Phänomenologie and Logik to contain a real theoretical revolution.
+
+In contrast to the critical theologian" of our day, I have deemed the concluding chapter of this work—a critical discussion of Hegelian dialectic and philosophy as a whole—to be absolutely necessary, IIXLl a task not yet performed. This lack of thoroughness is not accidental, since even the critical theologian remains a theologian. Hence, either he has to start from certain presupposi- tions of philosophy accepted as authoritative; or, if in the process of criticism and as a result of other people's discoveries doubts about these philosophical presuppositions have arisen in him, he abandons them in a cowardly and unwarrantable fashion, abstracts from them, thus showing his servile dependence on these presup-
+
+[^1]: a See this volume, pp. 418-43.—Ed. b Anekdota zur neuesten deutschen Philosophie und Publicistik.—Ed. c Marx has in mind Bruno Bauer.—Ed.
+
+
+
+positions and his resentment at this servility merely in a negative, unconscious and sophistical manner.
+
+{He does this either by constantly repeating assurances concern- ing the purity of his own criticism, or by trying to make it seem as though all that was left for criticism to deal with now was some other limited form of criticism outside itself—say eighteenth- century criticism—and also the limitations of the masses, in order to divert the observer's attention as well as his own from the necessary task of settling accounts between criticism and its point of origin—Hegelian dialectic and German philosophy as a whole—that is, from this necessary raising of modern criticism above its own limitation and crudity. Eventually, however, whenever discoveries (such as Feuerbach's) are made regarding the nature of his own philosophic presuppositions, the critical theologian partly makes it appear as if he were the one who had accomplished this, producing that appearance by taking the results of these discoveries and, without being able to develop them, hurling them in the form of catch-phrases at writers still caught in the confines of philosophy. He partly even manages to acquire a sense of his own superiority to such discoveries by asserting in a mysterious way and in a veiled, malicious and sceptical fashion elements of the Hegelian dialectic which he still finds lacking in the criticism of that dialectic (which have not yet been critically served up to him for his use) against such criticism—not having tried to bring such elements into their proper relation or having been capable of doing so, asserting, say, the category of mediating proof against the category of positive, self-originating truth, []* in a way peculiar to Hegelian dialectic. For to the theological critic it seems quite natural that everything has to be done by philosophy, so that he can chatter away about purity, resoluteness, and quite critical criticism; and he fancies himself the true conqueror of philosophy whenever he happens to feel some element57 in Hegel to be lacking in Feuerbach—for however much he practises the spiritual idolatry of "self-consciousness" and "mind" the theological critic does not get beyond feeling to consciousness.)
+
+On close inspection theological criticism—genuinely progressive though it was at the inception of the movement—is seen in the final analysis to be nothing but the culmination and consequence of the old philosophical, and especially the Hegelian, transcendental- ism, twisted into a theological caricature. This interesting example of historical justice, which now assigns to theology, ever philosophy's
+
+[^1]: ' Three words in the manuscript cannot be deciphered.— Ed.
+
+[^2]: 9—482
+
+
+
+
+
+**[p. 234]**
+
+<How far, on the other hand, Feuerbach's discoveries about the nature of philosophy still, for their proof at least, called for a critical discussion of philosophical dialectic will be seen from my exposition itself.) I XL 11
+
+[First Manuscript]
+
+WAGES OF LABOUR
+
+111,11 Wages are determined through the antagonistic struggle between capitalist and worker. Victory goes necessarily to the capitalist. The capitalist can live longer without the worker than can the worker without the capitalist. Combination among the capitalists is customary and effective; workers' combination is prohibited and painful in its consequences for them. Besides, the landowner and the capitalist can make use of industrial advantages to augment their revenues; the worker has neither rent nor interest on capital to supplement his industrial income. Hence the intensity of the competition among the workers. Thus only for the workers is the separation of capital, landed property, and labour an inevitable, essential and detrimental separation. Capital and landed property need not remain fixed in this abstraction, as must the labour of the workers.
+
+The separation of capital, rent, and labour is thus fatal for the worker. The lowest and the only necessary wage rate is that providing for the subsistence of the worker for the duration of his work and as much more as is necessary for him to support a family and for the race of labourers not to die out. The ordinary wage, according to Smith, is the lowest compatible with common humanity,59 that is, with cattle-like existence.
+
+The demand for men necessarily governs the production of men, as of every other commodity. Should supply greatly exceed demand, a section of the workers sinks into beggary or starvation. The worker's existence is thus brought under the same condition as the existence of every other commodity. The worker has become a commodity, and it is a bit of luck for him if he can find a buyer. And the demand on which the life of the worker depends, depends on the whim of the
+
+
+
+**[p. 236]**
+
+Thus in the gravitation of market price to natural price it is the worker who loses most of all and necessarily. And it is just the capacity of the capitalist to direct his capital into another channel which either renders the worker,b who is restricted to some particular branch of labour, destitute, or forces him to submit to every demand of this capitalist.
+
+||II,1| The accidental and sudden fluctuations in market price hit rent less than they do that part of the price which is resolved into profit and wages; but they hit profit less than they do wages. In most cases, for every wage that rises, one remains stationary and one falls.
+
+The worker need not necessarily gain when the capitalist does, but he necessarily loses when the latter loses. Thus, the worker does not gain if the capitalist keeps the market price above the natural price by virtue of some manufacturing or trading secret, or by virtue of monopoly or the favourable situation of his land.
+
+Furthermore, the prices of labour are much more constant than the prices of provisions. Often they stand in inverse proportion. In a dear year wages fall on account of the decrease in demand, but rise on account of the increase in the prices of provisions — and thus balance. In any case, a number of workers are left without bread. In cheap years wages rise on account of the rise in demand, but decrease on account of the fall in the prices of provi- sions—and thus balance.
+
+Another respect in which the worker is at a disadvantage:
+
+The labour prices of the various kinds of workers show much wider differences than the profits in the various branches in which capital is. applied. In labour all the natural, spiritual, and social variety ot individual activity is manifested and is variously rewarded, whilst dead capital always keeps the same pace and is indifferent to real individual activity.
+
+[^1]: The letters and words enclosed in square brackets in this sentence are indecipherable as they are covered by an inkspot.— Ed.
+
+[^2]: Here and occasionally later Marx uses the French word ouvrier.—Ed.
+
+
+
+
+
+**[p. 237]**
+
+In general we should observe that in those cases where worker and capitalist equally suffer, the worker suffers in his very existence, the capitalist in the profit on his dead mammon.
+
+The worker has to struggle not only for his physical means of subsistence; he has to struggle to get work, i. e., the possibility, the means, to perform his activity.
+
+Let us take the three chief conditions in which society can find itself and consider the situation of the worker in them:
+
+(1) If the wealth of society declines the worker suffers most of all, and for the following reason: although the working class cannot gain so much as can the class of property owners in a prosperous state of society, no one suffers so cruelly from its decline as the working class. '
+
+IIIII,1| (2) Let us now take a society in which wealth is increasing. This condition is the only one favourable to the worker. Here competition between the capitalists sets in. The demand for workers exceeds their supply. But:
+
+In the first place, the raising of wages gives rise to overwork among the workers. The more they wish to earn, the more must they sacrifice their time and carry out slave-labour, completely losing all their freedom, in the service of greed. Thereby they shorten their lives. This shortening of their life-span is a favourable circumstance for the working class as a whole, for as a result of it an ever-fresh supply of labour becomes necessary. This class has always to sacrifice a part of itself in order not to be wholly destroyed.
+
+Furthermore: When does a society find itself in a condition of advancing wealth? When the capitals and the revenues of a country are growing. But this is only possible:
+
+(a) As the result of the accumulation of much labour, capital being accumulated labour; as the result, therefore, of the fact that more and more of his products are being taken away from the worker, that to an increasing extent his own labour confronts him as another man's property and that the means of his existence and his activity are increasingly concentrated in the hands of the capitalist.
+
+(f$) The accumulation of capital increases the division of labour, and the division of labour increases the number of workers. Conversely, the number of workers increases the division of labour, just as the division of labour increases the accumulation of capital. With this division of labour on the one hand and the accumulation of capital on the other, the worker becomes ever more exclusively dependent on labour, and on a particular, very one-sided, machine- like labour at that. Just as he is thus depressed spiritually and
+
+[^1]: a Cf. Adam Smith, Wealth of Nations, Vol. I, p. 230 (Gamier, t. II, p. 162).—Ed.
+
+
+
+
+
+**[p. 238]**
+
+physically to the condition of a machine and from being a man becomes an abstract activity and a belly, so he also becomes ever more dependent on every fluctuation in market price, on the application of capital, and on the whim of the rich. Equally, the increase in the HIV,II class of people wholly dependent on work intensifies competition among the workers, thus lowering their price. In the factory system this situation of the worker reaches its climax.
+
+(y) In an increasingly prosperous society only the richest of the rich can continue to live on money interest. Everyone else has to carry on a business with his capital, or venture it in trade. As a result, the competition between the capitalists becomes more intense. The concentration of capital increases, the big capitalists ruin the small, and a section of the erstwhile capitalists sinks into the working class, which as a result of this supply again suffers to some extent a depression of wages and passes into a still greater dependence on the few big capitalists. The number of capitalists having been diminished, their competition with respect to the workers scarcely exists any longer; and the number of workers having been increased, their competition among themselves has become all the more intense, unnatural, and viole.nt. Consequently, a section of the working class falls into beggary or starvation just as necessarily as a section of the middle capitalists falls into the working class.
+
+Hence even in the condition of society most favourable to the worker, the inevitable result for the worker is overwork and premature death, decline to a mere machine, a bond servant of capital, which piles up dangerously over and against him, more competition, and starvation or beggary for a section of the workers.
+
+IIV, II The raising of wages excites in the worker the capitalist's mania to get rich, which he, however, can only satisfy by the sacrifice of his mind and body. The raising of wages presupposes and entails the accumulation of capital, and thus sets the product of labour against the worker as something ever more alien to him. Similarly, the division of labour renders him ever more one-sided and dependent, bringing with it the competition not only of men but also of machines. Since the worker has sunk to the level of a machine, he can be confronted by the machine as a competitor. Finally, as the amassing of capital increases the amount of industry and therefore the number of workers, it causes the same amount of industry to manufacture a larger amount of products, which leads to over-production and thus either ends by throwing a large
+
+
+
+**[p. 239]**
+
+section of workers out of work or by reducing their wages to the most miserable minimum.
+
+Such are the consequences of a state of society most favourable to the worker—namely, of a state of growing, advancing wealth.
+
+Eventually, however, this state of growth must sooner or later reach its peak. What is the worker's position now?
+
+3) "In a country which had acquired that full complement of riches [] both the wages of labour and the profits of stock would probably be very low [] the competition for employment would necessarily be so great as to reduce the wages of labour to what was barely sufficient to keep up the number of labourers, and, the country being already fully peopled, that number could never be augmented.""
+
+The surplus would have to die. Thus in a declining state of society—increasing misery of the worker; in an advancing state — misery with complications; and in a fully developed state of society — static misery.
+
+IIVI.ll Since, however, according to Smith, a society is not happy, of which the greater part suffersb — yet even the wealthiest state of society leads to this suffering of the majority — and since the economic system60 (and in general a society based on private interest) leads to this wealthiest condition, it follows that the goal of the economic system is the unhappiness of society.
+
+Concerning the relationship between worker and capitalist we should add that the capitalist is more than compensated for rising wages by the reduction in the amount of labour time, and that rising wages and rising interest on capital operate on the price of commodities like simple and compound interest respectively.
+
+Let us put ourselves now wholly at the standpoint of the political economist, and follow him in comparing the theoretical and practical claims of the workers.
+
+He tells us that originally and in theory the whole product of labour belongs to the worker. But at the same time he tells us that in actual fact what the worker gets is the smallest and utterly indispensable part of the product — as much, only, as is necessary for his existence, not as a human being, but as a worker, and for the propagation, not of humanity, but of the slave class of workers.
+
+The political economist tells us that everything is bought with labour and that capital is nothing but accumulated labour; but at the same time he tells us that the worker, far from being able to buy everything, must sell himself and his humanity.
+
+[^1]: a Adam Smith, Wealth of Nations, Vol. I, p. 84 (Gamier, t. I, p. 193).—JEd. b Cf. Adam Smith, Wealth of Nations, Vol. I, p. 70 (Gamier, t. I, pp. 159-60).—Ed.
+
+
+
+
+
+**[p. 240]**
+
+Whilst the rent of the idle landowner usually amounts to a third of the product of the soil, and the profit of the busy capitalist to as much as twice the interest on money, the "something more" which the worker himself earns at the best of times amounts to so little that of four children of his, two must starve and die.
+
+IIVII, 1-31 Whilst according to the political economists it is solely through labour that man enhances the value of the products of nature, whilst labour is man's active possession, according to this same political economy the landowner and the capitalist, who qua landowner and capitalist are merely privileged and idle gods, are everywhere superior to the worker and lay down the law to him.
+
+Whilst according to the political economists labour is the sole unchanging price of things, there is nothing more fortuitous than the price of labour, nothing exposed to greater fluctuations.
+
+Whilst the division of labour raises the productive power of labour and increases the wealth and refinement of society, it impoverishes the worker and reduces him to a machine. Whilst labour brings about the accumulation of capital and with this the increasing prosperity of society, it renders the worker ever more dependent on the capitalist, leads him into competition of a new intensity, and drives him into the headlong rush of over- production, with its subsequent corresponding slump.
+
+Whilst the interest of the worker, according to the political economists, never stands opposed to the interest of society, society always and necessarily stands opposed to the interest of the worker.
+
+According to the political economists, the interest of the worker is never opposed to that of society: (1) because the rising wages are more than compensated by the reduction in the amount of labour time, together with the other consequences set forth above; and (2) because in relation to society the whole gross product is the net product, and only in relation to the private individual has the net product any significance.
+
+But that labour itself, not merely in present conditions but insofar as its purpose in general is the mere increase of wealth—that labour itself, I say, is harmful and pernicious— follows from the political economist's line of argument, without his being aware of it.
+
+In theory, rent of land and profit on capital are deductions suffered by wages. In actual fact, however, wages are a deduction
+
+
+
+**[p. 241]**
+
+which land and capital allow to go to the worker, a concession from the product of labour to the workers, to labour.
+
+When society is in a state of decline, the worker suffers most severely. The specific severity of his burden he owes to his posi- tion as a worker, but the burden as such to the position of society.
+
+But when society is in a state of progress, the ruin and impoverishment of the worker is the product of his labour and of the wealth produced by him. The misery results, therefore, from the essence of present-day labour itself.
+
+Society in a state of maximum wealth—an ideal, but one which is approximately attained, and which at least is the aim of political economy as of civil society—means for the workers static misery.
+
+It goes without saying that the proletarian, i. e., the man who, being without capital and rent, lives purely by labour, and by a one-sided, abstract labour, is considered by political economy only as a worker. Political economy can therefore advance the proposi- tion that the proletarian, the same as any horse, must get as much as will enable him to work. It does not consider him when he is not working, as a human being; but leaves such consideration to criminal law, to doctors, to religion, to the statistical tables, to politics and to the poor-house overseer.
+
+Let us now rise above the level of political economy and try to answer two questions on the basis of the above exposition, which has been presented almost in the words of the political economists:
+
+(1) What in the evolution of mankind is the meaning of this reduction of the greater part of mankind to abstract labour?
+
+(2) What are the mistakes committed by the piecemeal reform- ers, who either want to raise wages and in this way to improve the situation of the working class, or regard equality of wages (as Proudhon does) as the goal of social revolution?
+
+In political economy labour occurs only in the form of activity as a source of livelihood."
+
+[^1]: 11VIII, ll "It can be asserted that those occupations which presuppose specific talents or longer training have become on the whole more lucrative; whilst the proportionate reward for mechanically monotonous activity in which one person can be trained as easily and quickly as another has fallen with growing competition, and was inevitably bound to fall. And it is just tfits sort of work which in the present state of the organisation of labour is still by far the commonest. If therefore a worker in the first category now earns seven times as much as he did, say, fifty years ago, whilst the earnings of another in the second category have remained unchanged, then of course both are earning on the average four times as much. But if the first category comprises only a thousand workers in a particular
+
+[^2]: " In the manuscript a blank space is left here.— Ed.
+
+
+
+
+
+**[p. 242]**
+
+country, and the second a million, then 999,000 are no better off than fifty years ago — and they are worse off if at the same time the prices of the necessaries of life have risen. With such superficial calculations of averages people try to deceive themselves about the most numerous class of the population. Moreover, the size of the wage is only one factor in the estimation of the worker's income, because it is essential for the measurement of the latter to take into account the certainty of its duration—which is obviously out of the question in the anarchy of so-called free competition, with its ever-recurring fluctuations and periods of stagnation. Finally, the hours of work customary formerly and now have to be considered. And for the English cotton-workers these have been increased, as a result of the entrepreneurs' mania for profit, ||IX,1| to between twelve and sixteen hours a day during the past twenty-five years or so—that is to say, precisely during the period of the introduction of labour-saving machines; and this increase in one country and in one branch of industry inevitably asserted itself elsewhere to a greater or lesser degree, for the right of the unlimited exploitation of the poor by the rich is still universally recognised." (Wilhelm Schulz, Die Bewegung der Production, p. 65.)
+
+"But even if it were as true as it is false that the average income of every class of society has increased, the income-differences and relative income-distances may nevertheless have become greater and the contrasts between wealth and poverty accordingly stand out more sharply. For just because total production rises—and in the same measure as it rises—needs, desires and claims also multiply and thus relative poverty can increase whilst absolute poverty diminishes. The Samoyed living on fish oil and rancid fish is not poor because in his secluded society all have the same needs. But in a state that is forging ahead, which in the course of a decade, say, increased by a third its total production in proportion to the population, the worker who is getting as much at the end of ten years as at the beginning has not remained as well off, but has become poorer by a third." (op. cit., pp. 65-66.)
+
+But political economy knows the worker only as a working animal——as a beast reduced to the strictest bodily needs.
+
+[^1]: "To develop in greater spiritual freedom, a people must break their bondage to their bodily needs—they must cease to be the slaves of the body. They must, above all, have time at their disposal for spiritual creative activity and spiritual enjoyment. The developments in the labour organism gain this time. Indeed, with new motive forces and improved machinery, a single worker in the cotton mills now often performs the work formerly requiring a hundred, or even 250 to 350 workers. Similar results can be observed in all branches of production, because external natural forces are being compelled to participate ||X, 1] to an ever-greater degree in human labour. If the satisfaction of a given amount of material needs formerly required a certain expenditure of time and human effort which has later been reduced by half, then without any loss of material comfort the scope for spiritual activity and enjoyment has been simultaneously extended by as much But again the way in which the booty, that we win from old Cronus himself in his most private domain, is shared out is still decided by the dice-throw of blind, unjust Chance. In France it has been calculated that at the present stage in the development of production an average working period of five hours a day by every person capable of work could suffice for the satisfaction of all the material interests of society Notwithstanding the time saved by the perfecting of machinery, the duration of the slave-labour performed by a large population in the factories has only increased." (Schulz, op. cit., pp. 67, 68.)
+
+
+
+
+
+**[p. 243]**
+
+"The transition from compound manual labour rests on a break-down of the latter into its simple operations. At first, however, only some of the uniformly- recurring operations will devolve on machines, while some will devolve on men. From the nature of things, and from confirmatory experience, it is clear that unendingly monotonous activity of this kind is as harmful to the mind as to the body; thus this combination of machinery with mere division of labour among a greater number of hands must inevitably show all the disadvantages of the latter. These disadvantages appear, among other things, in the greater mortality of factory ||XI,1[ workers Consideration has not been given to this big distinction as to how far men work through machines or how far as machines." (op. cit., p. 69.)
+
+"In the future life of the peoples, however, the inanimate forces of nature working in machines will be our slaves and serfs." (op. cit., p. 74.)
+
+"The English spinning mills employ 196,818 women and only 158,818 men. For every 100 male workers in the cotton mills of Lancashire there are 103 female workers, and in Scotland as many as 209. In the English flax mills of Leeds, for every 100 male workers there were found to be 147 female workers. In Druden a
+
+and on the east coast of Scotland as many as 280. In the English silk mills many female workers; male workers predominate in the woollen mills where the work requires greater physical strength. In 1833, no fewer than 38,927 women were employed alongside 18,593 men in the North American cotton mills. As a result of the changes in the labour organism, a wider sphere of gainful employment has thus fallen to the share of the female sex Women now occupying an economically more independent position the two sexes are drawn closer together in their social conditions." (op. cit., pp. 71-72.)
+
+"Working in the English steam- and water-driven spinning mills in 1835 were: 20,558 children between the ages of eight and twelve; 35,867 between the ages of twelve and thirteen; and, lastly, 108,208 children between the ages of thirteen and eighteen Admittedly, further advances in mechanisation, by more and more removing all monotonous work from human hands, are operating in the direction of a gradual ||XII,1] elimination of this evil. But standing in the way of these more rapid advances is the very circumstance that the capitalists can, in the easiest and cheapest fashion, appropriate the energies of the lower classes down to the children, to be used instead of mechanical devices." (op. cit., pp. 70-71.)
+
+[^1]: "Lord Brougham's call to the workers — 'Become capitalists'. This is the evil that millions are able to earn a bare subsistence for themselves only by strenuous labour which shatters the body and cripples them morally and intellectu- ally; that they are even obliged to consider the misfortune of finding such work a piece of good fortune." (op. cit., p. 60.)
+
+[^2]: "In order to live, then, the non-owners are obliged to place themselves, directly or indirectly, at the service of the owners — to put themselves, that is to say, into a position of dependence upon them." (Pecqueur, Théorie nouvelle d'économie soc, etc., p. 409.)
+
+[^3]: Servants—pay; workers — wages; employees—salary or emoluments.0 (loc. cit., pp. 409, 410.)
+
+[^4]: "To hire out one's labour", "to lend one's labour at interest", "to work in another's place".d
+
+[^5]: a This is probably a misspelling of Dundee.—Ed. b "Pour vivre donc, les non-propriétaires sont obligés de se mettre directement ou indirectement ou service des propriétaires, c.-à.-d. sous leur dépendance."—Ed.
+
+[^6]: c Domestiques—gages; ouvriers—salaires; employés—traitement ou émoluments.—Ed. d "louer son travail", "prêter son travail à l'intérêt", "travailler à la place d'autrui".—Ed.
+
+
+
+
+
+**[p. 244]**
+
+"To hire out the materials of labour", "to lend the materials of labour at interest", "to make others work in one's place".* (op. cit., p. 411.)
+
+11X111,11 "Such an economic order condemns men to occupations so mean, to a degradation so devastating and bitter, that by comparison savagery seems like a kingly condition" b (op. cit., pp. 417, 418.) "Prostitution of the non-owning class in all its forms."0 (op. cit., p. 421 f.) Ragmen.
+
+Charles Loudon, in the book Solution du problème de la population, etc., Paris, 1842,61 declares the number of prostitutes in England to be between sixty and seventy thousand. The number of women of doubtful virtue is said to be equally large (p. 228).
+
+"The average life of these unfortunate creatures on the streets, after they have embarked on their career of vice, is about six or seven years. To maintain the number of sixty to seventy thousand prostitutes, there must be in the three kingdoms at least eight to nine thousand women who commit themselves to this abject profession each year, or about twenty-four new victims each day — an average of one per hour; and it follows that if the same proportion holds good over the whole surface of the globe, there must constantly be in existence one and a half million unfortunate women of this kind."d (op. cit., p. 229.)
+
+"The numbers of the poverty-stricken grow with their poverty, and at the extreme limit of destitution human beings are crowded together in the greatest numbers contending with each other for the right to suffer In 1821 the population of Ireland was 6,801,827. In 1831 it had risen to 7,764,010—an in- crease of 14 per cent in ten years. In Leinster, the wealthiest province, the popu- lation increased by only 8 per cent; whilst in Connaught, the most poverty-stricken province, the increase reached 21 per cent. (Extract from the Enquiries Published in England on Ireland, Vienna, 1840.)"e (Buret, De la misère, etc., t. I, pp. 36, 37.)
+
+Political economy considers labour in the abstract as a thing; labour is a commodity. If the price is high, then the commodity is
+
+[^1]: a "Louer la matière du travail", "prêter la matière du travail à l'intérêt", "faire travailler autrui à sa place".—Ed.
+
+[^2]: "Cette constitution économique condamne les hommes à des métiers tellement abjects, à une dégradation tellement désolante et amère, que la sauvagerie apparaît, en comparaison, comme une royale condition."—Ed.
+
+[^3]: c "La prostitution de la chair non-propriétaire sous toutes les formes."—Ed. "La moyenne vie de ces infortunées créatures sur le pavé, après qu'elles sont entrées dans la carrière du vice, est d'environ six ou sept ans. De manière que pour maintenir le nombre de 60 à 70 000 prostituées, il doit y avoir, dans les 3 royaumes, au moins 8 à 9000 femmes qui se vouent à cet infâme métier chaque année, ou environ vingt-quatre nouvelles victimes par jour, ce qui est la moyenne d'une par heure; et conséquemment, si la même proportion a lieu sur toute la surface du globe, il doit y avoir constamment un million et demi de ces malheureuses."—Ed.
+
+[^4]: e "La population des misérables croît avec leur misère, et c'est à la limite extrême du dénûment que les êtres humains se pressent en plus grand nombre pour se disputer le droit de souffrir En 1821, la population de l'Irlande était de 6801827.
+
+[^5]: En 1831, elle s'était élevée à 7764010; c'est 14 p. % d'augmentation en dix ans. Dans le Leinster, province où il y a le plus d'aisance, la population n'a augmenté que de 8 p. %, tandis que, dans le Connaught, province la plus misérable, l'augmentation s'est élevée à 21 p. %. (Extraits des Enquêtes publiées en Angleterre sur l'Irlande, Vienne,
+
+[^6]: 1840.)"—Ed.
+
+
+
+in great demand; if the price is low, then the commodity is in great supply: the price of labour as a commodity must fall lower and lower. (Buret, op. cit., p. 43.) This is made inevitable partly by the competition between capitalist and worker, partly by the competition amongst the workers.
+
+"The working population, the seller of labour, is necessarily reduced to accept- ing the most meagre part of the product Is the theory of labour as a commodity anything other than a theory of disguised bondage?"3 (op. cit., p. 43.) "Why then has nothing but an exchange-value been seen in labour?" (op. cit., p. 44.) The large workshops prefer to buy the labour of women and children, because this costs less than that of men. (op. cit.)
+
+"The worker is not at all in the position of a free seller vis-à-vis the one who employs him The capitalist is always free to employ labour, and the worker is always forced to sell it. The value of labour is completely destroyed if it is not sold every instant. Labour can neither be accumulated nor even be saved, unlike true [commodities].
+
+IIXIV, 11 "Labour is life, and if life is not each day exchanged for food, it suffers and soon perishes. To claim that human life is a commodity, one must, therefore, admit slavery."0 (op. cit., pp. 49, 50.)
+
+If then labour is a commodity it is a commodity with the most unfortunate attributes. But even by the principles of political econo- my it is no commodity, for it is not the "free result of a free transaction". [op. cit., p. 50.] The present economic regime
+
+Up to the present, industry has been in a state of war, a war of conquest:
+
+[^1]: "simultaneously lowers the price and the remuneration of labour; it perfects the worker and degrades the man".d (op. cit., pp. 52-53.) "Industry has become a war, and commerce a gamble."e (op. cit., p. 62.)
+
+[^2]: "The cotton-working machines"f (in England) alone represent 84,000,000 manual workers, [op. cit., p. 193, note].
+
+[^3]: a "La population ouvrière, marchande de travail, est forcément réduite à la plus faible part du produit la théorie du travail marchandise est-elle autre chose qu'une théorie de servitude déguisée?"—Ed.
+
+[^4]: "Pourquoi donc n'avoir vu dans le travail qu'une valeur d'échange?"—Ed. c "Le travailleur n'est point vis-à-vis de celui qui l'emploie dans la position d'un libre vendeur le capitaliste est toujours libre d'employer le travail, et l'ouvrier est toujours forcé de le vendre. La valeur du travail est complètement détruite, s'il n'est pas vendu a chaque instant. Le travail n'est susceptible ni d'accumulation, ni même d'épargne, à la différence des véritables [marchandises].
+
+[^5]: Le travail c'est la vie, et si la vie ne s'échange pas chaque jour contre des aliments, elle souffre et périt bientôt. Pour que la vie de l'homme soit une marchandise, il faut donc admettre l'esclavage."—Ed.
+
+[^6]: A "Abaisse à la fois et le prix et la rémunération du travail; il perfectionne l'ouvrier et dégrade l'homme".—Ed.
+
+[^7]: e "L'industrie est devenue une guerre et le commerce un jeu."—Ed. "Les machines à travailler le coton".—Ed.
+
+
+
+
+
+**[p. 246]**
+
+"It has squandered the lives of the men who made up its army with the same indifference as the great conquerors. Its aim was the possession of wealth, not the happiness of men." a (Buret, op. cit., p. 20.) "These interests" (that is, economic interests), "freely left to themselves must necessarily come into conflict; they have no other arbiter but war, and the decisions of war assign defeat and death to some, in order to give victory to the others It is in the conflict of opposed forces that science seeks order and equilibrium: perpetual war, according to it, is the sole means of obtaining peace; that war is called competition." (op. cit., p. 23.) "The industrial war, to be conducted with success, demands large armies which it can amass on one spot and profusely decimate. And it is neither from devotion nor from duty that the soldiers of this army bear the exertions imposed on them, but only to escape the hard necessity of hunger. They feel neither attachment nor gratitude towards their bosses, nor are these bound to their subordinates by any feeling of benevolence. They do not know them as men, but only as instruments of production which have to yield as much as possible with as little cost as possible. These populations of workers, ever more crowded together, have not even the assurance of always being employed. Industry, which has called them together, only lets them live while it needs them, and as soon as it can get rid of them it abandons them without the slightest scruple; and the workers are compelled to offer their persons and their powers for whatever price they can get. The longer, more painful and more disgusting the work they are given, the less they are paid. There are those who, with sixteen hours' work a day and unremitting exertion, scarcely buy the right not to die." (op. cit., pp. 68-69.)
+
+IIXV.ll "We are convinced as are the commissioners charged with the inquiry into the condition of the hand-loom weavers, that the large industrial towns would in a short time lose their population of workers if they were not all the time receiving from the neighbouring rural areas constant recruitments of healthy men, a constant flow of fresh blood."c (op. cit., p. 362.) IXVll
+
+PROFIT OF CAPITAL
+
+1. CAPITAL
+
+|| I, 2|What is the basis of capital, that is, of private property in the products of other men's labour?
+
+[^1]: a "Elle a prodigué la vie des hommes qui composaient son armée avec autant d'indifférence que les grands conquérants. Son but était la possession de la richesse, et non le bonheur des hommes."—Ed.
+
+[^2]: "Ces intérêts" (se. économiques), "librement abandonnés à eux-mêmes doivent nécessairement entrer en conflit; ils n'ont d'autre arbitre que la guerre, et les décisions de la guerre donnent aux uns la défaite et la mort, pour donner aux autres la victoire C'est dans le conflit des forces opposées que la science cherche l'ordre et l'équilibre: la guerre perpétuelle est selon elle le seul moyen d'obtenir la paix; cette guerre s'appelle la concurrence."—Ed.
+
+[^3]: c "Nous avons la conviction partagée par les commissaires chargés de l'enquête sur la condition des tisserands à la main, que les grandes villes industrielles perdraient, en peu de temps, leur population de travailleurs, si elles ne recevaient, à chaque instant des campagnes voisines, des recrues continuelles d'hommes sains, de sang nouveau."—Ed.
+
+
+
+
+
+**[p. 247]**
+
+"Even if capital itself does not merely amount to theft or fraud, it still requires the co-operation of legislation to sanaify inheritance." (Say, [Traité d'économie politique,] t. I, p. 136, note.)62
+
+How does one become a proprietor of productive stock? How does one become owner of the products created by means of this stock?
+
+By virtue of positive law. (Say, t. II, p. 4.) What does one acquire with capital, with the inheritance of a large fortune, for instance?
+
+"The person who [either acquires, or] succeeds to a great fortune, does not necessarily [acquire or] succeed to any political power [] The power which that possession immediately and directly conveys to him, is the power of purchasing; a certain command over all the labour, or over all the produce of labour, which is then in the market." (Wealth of Nations, by Adam Smith, Vol. I, pp. 26-27 [Gamier, t. I, p. 61].)6S
+
+Capital is thus the governing power over labour and its products. The capitalist possesses this power, not on account of his personal or human qualities, but inasmuch as he is an owner of capital. His power is the purchasing power of his capital, which nothing can withstand.
+
+Later we shall see first how the capitalist, by means of capital, exercises his governing power over labour, then, however, we shall see the governing power of capital over the capitalist himself.
+
+What is capital?
+
+Capital is stored-up labour. (2) Fonds, or stock,3 is any accumulation of products of the soil or of manufacture. Stock is called capital only when it yields to its owner a revenue or profit. (Adam Smith, op. cit., p. 243 [Gamier, t. II, p. 191].
+
+[^1]: "A certain quantity of labour stocked and stored up to be employed." (Adam Smith, op. cit., Vol. I, p. 295 [Gamier, t. II, p. 312].)
+
+[^2]: 2. THE PROFIT OF CAPITAL
+
+[^3]: The profit or gain of capital is altogether different from the wages of labour. This difference is manifested in two ways: in the first place, the profits of capital are regulated altogether by the value of the capital employed, although the labour of inspection and direction associated with different capitals may be the same. Moreover in large works the whole of this labour is committed to some principal clerk, whose salary bears no regular proportion to the ||II,2j capital of which he oversees the management. And although the labour of the proprietor is here reduced almost to nothing, he still demands profits in proportion to his capital. (Adam Smith, op. cit., Vol. I, p. 43 [Gamier, t. I, pp. 97-99].)64
+
+[^4]: a Marx uses the English word "stock".—Ed.
+
+
+
+
+
+**[p. 248]**
+
+Why does the capitalist demand this proportion between profit and capital?
+
+He would have no interest in employing the workers, unless he expected from the sale of their work something more than is necessary to replace the stock advanced by him as wages and he would have no interest to employ a great stock rather than a small one, unless his profits were to bear some proportion to the extent of his stock. (Adam Smith, op. cit., Vol. I, p. 42 [Gamier, t. I, pp. 96-97].)
+
+The capitalist thus makes a profit, first, on the wages, and secondly on the raw materials advanced by him. What proportion, then, does profit bear to capital?
+
+If it is already difficult to determine the usual average level of wages at a particular place and at a particular time, it is even more difficult to determine the profit on capitals. A change in the price of the commodities in which the capitalist deals, the good or bad fortune of his rivals and customers, a thousand other accidents to which commodities are exposed both in transit and in the warehouses — all produce a daily, almost hourly variation in profit. (Adam Smith, op. cit., Vol. I, pp. 78-79 [Garnier, t. I, pp. 179-180].)
+
+But though it is impossible to determine with precision what are the profits on capitals, some notion may be formed of them from the interest of money. Wherever a great deal can be made by the use of money, a great deal will be given for the use of it; wherever little can be made by it, little will be given. (Adam Smith, op. cit., Vol. I, p. 79 [Garnier, t. I p. 181].)
+
+The proportion which the usual market rate of interest ought to bear to the rate of clear profit, necessarily varies as profit rises or falls. Double interest is in Great Britain reckoned what the merchants call a good, moderate, reasonable profit, terms which mean no more than a common and usual profit. (Adam Smith, op. cit., Vol. I, p. 87 [Garnier. t. I, p. 198].)
+
+What is the lowest rate of profit? And what the highest}
+
+Besides all the advantages of limited competition which the capitalist may exploit in this case, he can keep the market price above the natural price by quite decorous means.
+
+[^1]: The lowest rate of ordinary profit on capital must always be something more than what is sufficient to compensate the occasional losses to which every employment of stock is exposed. It is this surplus only which is neat or clear profit. The same holds for the lowest rate of interest. (Adam Smith, op. cit., Vol. I, p. 86 [Garnier, t. I, p. 196].)
+
+[^2]: ||III,2| The highest rate to which ordinary profits can rise is that which in the price of the greater part of commodities eats up the whole of the rent of the land, and reduces the wages of labour contained in the commodity supplied to the lowest rate, the bare subsistence of the labourer during his work. The worker must always be fed in some way or other while he is required to work; rent can disappear entirely. For example: the servants of the East India Company in Bengal. (Adam Smith, op. cit., Vol. I, pp. 86-87 [Garnier, t. I, pp. 197-98].)
+
+[^3]: For one thing, by keeping secrets in trade if the market is at a great distance from those who supply it, that is, by concealing a price change, its rise above the natural
+
+
+
+
+
+**[p. 249]**
+
+level. This concealment has the effect that other capitalists do not follow him in investing their capital in this branch of industry or trade.
+
+Then again by keeping secrets in manufacture, which enable the capitalist to reduce the costs of production and supply his commodity at the same or even at lower prices than his competitors while obtaining a higher profit. (Deceiving by keeping secrets is not immoral? Dealings on the Stock Exchange.) Furthermore, where production is restricted to a particular locality (as in the case of a rare wine), and where the effective demand can never be satisfied. Finally, through monopolies exercised by individuals or companies. Monopoly price is the highest possible. (Adam Smith, op. cit., Vol. I, pp. 53-54 [Gamier, t. I, pp. 120-24].)
+
+Other fortuitous causes which can raise the profit on capital: The acquisition of new territories, or of new branches of trade, often increases the profit on capital even in a wealthy country, because they withdraw some capital from the old branches of trade, reduce competition, and cause the market to be supplied with fewer commodities, the prices of which then rise: those who deal in these commodities can then afford to borrow at a higher rate of interest. (Adam Smith, op. cit., Vol. I, p. 83 [Gamier, t. I, p. 190].)
+
+The more a commodity comes to be manufactured—the more it becomes an object of manufacture — the greater becomes that part of the price which resolves itself into wages and profit in proportion to that which resolves itself into rent. In the progress of the manufacture of a commodity, not only the number of profits increases, but every subsequent profit is greater than the foregoing; because the capital from which ||IV,2| it is derived must always be greater. The capital which employs the weavers, for example, must always be greater than that which employs the spinners; because it not only replaces that capital with its profits, but pays, besides, the wages of weavers; and the profits must always bear some proportion to the capital, (op. cit., Vol. I, p. 45 [Gamier, t. I, pp. 102-03].)
+
+Thus the advance made by human labour in converting the product of nature into the manufactured product of nature increases, not the wages of labour, but in part the number of profitable capital investments, and in part the size of every subsequent capital in comparison with the foregoing.
+
+More about the advantages which the capitalist derives from the division of labour, later.
+
+He profits doubly — first, by the division of labour; and second- ly, in general, by the advance which human labour makes on the natural product. The greater the human share in a commodity, the greater the profit of dead capital.
+
+It goes without saying that profits also rise if the means of circulation become less expensive or easier available (e.g., paper money).
+
+[^1]: In one and the same society the average rates of profit on capital are much more nearly on the same level than the wages of the different sorts of labour, (op. cit., Vol. I, p. 100 [Gamier, t. I, p. 228].) In the different employments of capital, the ordinary rate of profit varies with the certainty or uncertainty of the returns.
+
+[^2]: The ordinary profit of stock, though it rises with the risk, does not always seem to rise in proportion to it. (op. cit., Vol. I, pp. 99-100 [Gamier, t. I, pp. 226-27].)
+
+
+
+
+
+**[p. 250]**
+
+The consideration of his own private profit is the sole motive which determines the owner of any capital to employ it either in agriculture, in manufactures, or in some particular branch of the wholesale or retail trade. The different quantities of productive labour which it may put into motion, ||V,2| and the different values which it may add to the annual produce of the land and labour of his country, according as it is employed in one or other of those different ways, never enter into his thoughts. (Adam Smith, op. cit., Vol. I, p. 335 [Gamier, t. II, pp. 400-01].)
+
+The most useful employment of capital for the capitalist is that which, risks being equal, yields him the greatest profit. This employment is not always the most useful for society; the most useful employment is that which utilises the productive powers of nature. (Say, t. II, pp. 130-31.)
+
+The plans and speculations of the employers of capitals regulate and direct all the most important operations of labour, and profit is the end proposed by all those plans and projects. But the rate of profit does not, like rent and wages, rise with the prosperity and fall with the decline of the society. On the contrary, it is naturally low in rich and high in poor countries, and it is always highest in the countries which are going fastest to ruin. The interest of this class, therefore, has not the same connection with the general interest of the society as that of the other two The particular interest of the dealers in any particular branch of trade or manufactures is always in some respects different from, and frequently even in sharp opposition to, that of the public. To widen the market and to narrow the sellers' competition is always the interest of the dealer This is a class of people whose interest is never exactly the same as that of society, a class of people who have generally an interest to deceive and to oppress the public. (Adam Smith, op. cit., Vol. I, pp. 231-32 [Gamier, t. II, pp. 163-65].)
+
+Since we already know that monopoly prices are as high as possible, since the interest of the capitalists, even from the point of view commonly held by political economists, stands in hostile opposition to society, and since a rise of profit operates like compound interest on the price of the commodity (Adam Smith, op. cit., Vol. I, pp. 87-88 [Gamier, t. I, pp. 199-201]), it follows that the sole defence against the capitalists is competition, which according to the evidence of political economy acts beneficently by
+
+[^1]: 4. THE ACCUMULATION OF CAPITALS AND THE COMPETITION AMONG THE CAPITALISTS
+
+[^2]: The increase of stock, which raises wages, tends to lower the capitalists' profit, because of the competition amongst the capitalists. (Adam Smith, op. cit., Vol. I, p. 78 [Gamier, t. I, p. 179].)
+
+[^3]: If, for example, the capital which is necessary for the grocery trade of a particular town "is divided between two different grocers, their competition will tend to make both of them sell cheaper than if it were in the hands of one only; and if it were divided among twenty, ||VI,2| their competition would be just so much the greater, and the chance of their combining together, in order to raise the price, just so much the less". (Adam Smith, op. cit., Vol. I, p. 322 [Gamier, t. II, pp. 372-73].)
+
+
+
+
+
+**[p. 251]**
+
+both raising wages and lowering the prices of commodities to the advantage of the consuming public.
+
+But competition is only possible if capital multiplies, and is held in many hands. The formation of many capital investments is only possible as a result of multilateral accumulation, since capital comes into being only by accumulation; and multilateral accumula- tion necessarily turns into unilateral accumulation. Competition among capitalists increases the accumulation of capital. Accumula- tion, where private property prevails, is the concentration of capital in the hands of a few, it is in general an inevitable consequence if capital is left to follow its natural course, and it is precisely through competition that the way is cleared for this natural disposition of capital.
+
+We have been told that the profit on capital is in proportion to the size of the capital. A large capital therefore accumulates more quickly than a small capital in proportion to its size, even if we disregard for the time being deliberate competition. t VI[|
+
+IIVIII, 2| 6 5 Accordingly, the accumulation of large capital pro- ceeds much more rapidly than that of smaller capital, quite irrespective of competition. But let us follow this process further.
+
+With the increase of capital the profit on capital diminishes, because of competition. The first to suffer, therefore, is the small capitalist.
+
+The increase of capitals and a large number of capital invest- ments presuppose, further,3 a condition of advancing wealth in the country.
+
+This is the situation most dear to the heart of political economy.
+
+What about the employment of capital, then, in this condition of increased competition?
+
+[^1]: "In a country which had acquired its full complement of riches [] the ordinary rate of clear profit would be very small, so the usual [market] rate of interest which could be afforded out of it would be so low as to render it impossible for any but the very wealthiest people to live upon the interest of their money. All people of [] middling fortunes would be obliged to superintend themselves the employment of their own stocks. It would be necessary that almost every man should be a man of business, or engage in some sort of trade." (Adam Smith, op. cit., Vol. I, p. 86
+
+[^2]: [Garnier, t. I, pp. 196-97].)b
+
+[^3]: "The proportion between capital and revenue, therefore, seems everywhere to regulate the proportion between industry and idleness; wherever capital predomi- nates, industry prevails; wherever revenue, idleness." (Adam Smith, op. cit., Vol. I, p. 301 [Gamier, t. II, p. 325].)
+
+[^4]: a "Further" is not clearly decipherable in the manuscript.—Ed. After this paragraph Marx crossed out the sentence: "The less capitals are loaned at interest and the more they are thrown into manufacturing business or commerce, the stronger grows the competition between the capitalists."—Ed.
+
+
+
+
+
+**[p. 252]**
+
+"As stock increases, the quantity of stock to be lent at interest grows gradually greater and greater. As the quantity of stock to be lent at interest increases, the interest diminishes" (i) because the market price of things commonly diminishes as their quantity increases. and (ii) because with the increase of capitals in any country, "it becomes gradually more and more difficult to find within the country a profitable method of employing any new capital. There arises in consequence a competition between different capitals, the owner of one endeavouring to get possession of that employment which is occupied by another. But upon most occasions he can hope to jostle that other out of this employment by no other means but by dealing upon more reasonable terms. He must not only sell what he deals in somewhat cheaper, but in order to get it to sell, he must sometimes, too, buy it dearer. The demand for productive labour, by the increase of the funds which are destined for maintaining it, grows every day greater and greater. Labourers easily find employment, |IX, 2|jbut the owners of capitals find it difficult to get labourers to employ. Their competition raises the wages of labour and sinks the profits of stock." (Adam Smith, op. cit., Vol. I, p. 316 [Gamier, t. II, pp. 358-59].)
+
+Thus the small capitalist has the choice: (1) either to consume his capital, since he can no longer live on the interest—and thus cease to be a capitalist; or (2) to set up a business himself, sell his commodity cheaper, buy dearer than the wealthier capitalist, and pay higher wages—thus ruining himself, the market price being already very low as a result of the intense competition presup- posed. If, however, the big capitalist wants to squeeze out the smaller capitalist, he has all the advantages over him which the capitalist has as a capitalist over the worker. The larger size of his capital compensates him for the smaller profits, and he can even bear temporary losses until the smaller capitalist is ruined and he finds himself freed from this competition. In this way, he accumulates the small capitalist's profits.
+
+Furthermore: the big capitalist always buys cheaper than the small one, because he buys bigger quantities. He can therefore well afford to sell cheaper.
+
+But if a fall in the rate of interest turns the middle capitalists from rentiers into businessmen, the increase in business capital and the resulting smaller profit produce conversely a fall in the rate of interest.
+
+When, therefore, this large capital is opposed by small capitals
+
+[^1]: "When the profits which can be made by the use of a capital are [] diminished [] the price which can be paid for the use of it [] must necessarily be diminished with them." (Adam Smith, loc. cit., Vol. I, p. 316 [Gamier, t. II, p. 359].)
+
+[^2]: "As riches, improvement, and population have increased, interest has declined", and consequently the profits of capitalists, "after these [profits] are diminished, stock may not only continue to increase, but to increase much faster than before. [] A great stock though with small profits, generally increases faster than a small stock with great profits. Money, says the proverb, makes money." (op. cit., Vol. I,p. 83 [Gamier, t. I, p. 189].)
+
+
+
+with small profits, as it is under the presupposed condition of intense competition, it crushes them completely.
+
+The necessary result of this competition is a general deteriora- tion of commodities, adulteration, fake production and universal poisoning, evident in large towns.
+
+I|X,2| An important circumstance in the competition of large and small capital is, furthermore, the relation between fixed capital and circulating capital.'
+
+Circulating capital is a capital which is "employed in raising" provisions, "manufacturing, or purchasing goods, and selling them again. [] The capital employed in this manner yields no revenue or profit to its employer, while it either remains in his possession, or continues in the same shape. [] His capital is continually going from him in one shape, and returning to him in another, and it is only by means of such circulation, or successive exchanges" and transformations "that it can yield him any profit". Fixed capital consists of capital invested "in the improvement of land, in the purchase of useful machines and instruments of trade, or in such-like things". (Adam Smith, op. cit., Vol. I,pp. 243-44 [Gamier, t. II, pp. 197-98].)
+
+"Every saving in the expense of supporting the fixed capital is an improvement of the net revenue of the society. The whole capital of the undertaker of every work is necessarily divided between his fixed and his circulating capital. While his whole capital remains the same, the smaller the one part, the greater must necessarily be the other. It is the circulating capital which furnishes the materials and wages of labour, and puts industry into motion. Every saving, therefore, in the expense of maintaining the fixed capital, which does not diminish the productive powers of labour, must increase the fund which puts industry into motion." (Adam Smith, op. cit., Vol. I, p. 257 [Gamier, t. II, p. 226].)
+
+It is clear from the outset that the relation of fixed capital and circulating capital is much more favourable to the big capitalist than to the smaller capitalist. The extra fixed capital required by a very big banker as against a very small one is insignificant. Their fixed capital amounts to nothing more than the office. The equipment of the bigger landowner does not increase in propor- tion to the size of his estate. Similarly, the credit which a big capitalist enjoys compared with a smaller one means for him all the greater saving in fixed capital—that is, in the amount of ready money he must always have at hand. Finally, it is obvious that where industrial labour has reached a high level, and where therefore almost all manual labour has become factory labour, the entire capital of a small capitalist does not suffice to provide him even with the necessary fixed capital. Qn sait que les travaux de la grande culture n'occupent habituellement qu'un petit nombre de- bras.b
+
+It is generally true that the accumulation of large capital is also
+
+[^1]: a Marx uses the French terms capital fixe and capital circulant.—Ed.
+
+[^2]: As is well known, large-scale cultivation usually provides employment only for a small number of hands.—Ed.
+
+
+
+
+
+**[p. 254]**
+
+"Similarly, in the sphere of industry every manufactory and mill is already a comprehensive combination of a large material fortune with numerous and varied intellectual capacities and technical skills serving the common purpose of production Where legislation preserves landed property in large units, the surplus of a growing population flocks into trades, and it is therefore as in Great Britain in the field of industry, principally, that proletarians aggregate in great numbers. Where, however, the law permits the continuous division of the land, the number of small, debt-encumbered proprietors increases, as in France; and the continuing process of fragmentation throws them into the class of the needy and the discontented. When eventually this fragmentation and indebtedness reaches a higher degree still, big landed property once more swallows up small property, just as large-scale industry destroys small industry. And as larger estates are formed again, large numbers of propertyless workers not required for the cultivation of the soil are again driven into industry." (Schulz, Bewegung der Production, pp. 58, 59.)
+
+"Commodities of the same kind change in character as a result of changes in the method of production, and especially as a result of the use of machinery. Only by the exclusion of human power has it become possible to spin from a pound of cotton worth 3 shillings and 8 pence 350 hanks of a total length of 167 English miles (i.e., 36 German miles), and of a commercial value of 25 guineas." (op. cit., p. 62.)
+
+[^1]: "On the average the prices of cotton-goods have decreased in England during the past 45 years by eleven-twelfths, and according to Marshall's calculations the same amount of manufactured goods for which 16 shillings was still paid in 1814 is now supplied at 1 shilling and 10 pence. The greater cheapness of industrial products expands both consumption at home and the market abroad, and because of this the number of workers in cotton has not only not fallen in Great Britain after the introduction of machines but has risen from forty thousand to one and a half million. ||XII, 2| As to the earnings of industrial entrepreneurs and workers; the growing competition between the factory owners has resulted in their profits necessarily falling relative to the amount of products supplied by them. In the years 1820-33 the Manchester manufacturer's gross profit on a piece of calico fell from four shillings 1 /j pence to one shilling 9 pence. But to make up for this loss, the volume of manufacture has been correspondingly increased. The consequence of this is that separate branches of industry experience over-production to some extent, that frequent bankruptcies occur causing property to fluctuate and vacillate unstably within the class of capitalists and masters of labour, thus throwing into the proletariat some of those who have been ruined economically; and that, frequently and suddenly, close-downs or cuts in employment become necessary, the painful effects of which are always bitterly felt by the class of wage-labourers." (op. cit., p. 63.)
+
+[^2]: "To hire out one's labour is to begin one's enslavement. To hire out the ma- terials of labour is to establish one's freedom Labour is man; the materials, on the other hand, contain nothing human."a (Pecqueur, Théorie sociale, etc., pp. 411-12.)
+
+[^3]: a "Louer son travail, c'est commencer son esclavage; louer la matière du travail, c'est constituer sa liberté Le travail est l'homme, la matière au contraire n'est rien de l'homme."—Ed.
+
+
+
+"The material element, which is quite incapable of creating wealth without the other element, labour, acquires the magical virtue of being fertile for them [who own this material element] as if by their own action they had placed there this indispensable element."* (op. cit.)
+
+"Supposing that the daily labour of a worker brings him on the average 400 francs a year and that this sum suffices for every adult to live some sort of crude life, then any proprietor receiving 2,000 francs in interest or rent, from a farm, a house, etc., compels indirectly five men to work for him; an income of 100,000 francs represents the labour of 250 men, and that of 1,000,000 francs the labour of 2,500 individualsb (hence, 300 million [Louis Philippe] therefore the labour of 750,000 workers)." (op. cit., pp. 412-13.)
+
+"The human law has given owners the right to use and to abuse—that is to say, the right to do what they will with the materials of labour They are in no way obliged by law to provide work for the propertyless when required and at all times, or to pay them always an adequate wage, etc."c (loc. cit., p. 413.) "Complete freedom concerning the nature, the quantity, the quality and the expediency of production; concerning the use and the disposal of wealth; and full command over the materials of all labour. Everyone is free to exchange what belongs to him as he thinks fit, without considering anything other than his own interest as an individual.'"1 (op. cit., p. 413.)
+
+"Competition is merely the expression of the freedom to exchange, which itself is the immediate and logical consequence of the individual's right to use and abuse all the instruments of production. The right to use and abuse, freedom of exchange, and arbitrary competition — these three economic moments, which form one unit, entail the following consequences; each produces what he wishes, as he wishes, when he wishes, where he wishes, produces well or produces badly, produces too much or not enough, too soon or too late, at too high a price or too low a price; none knows whether he will sell, to whom he will sell, how he will sell, when he will sell, where he will sell. And it is the same with regard to purchases. IIXIII, 2l The producer is ignorant of needs and resources, of demand and supply. He sells when he wishes, when he can, where he wishes, to whom he wishes, at the price he wishes. And he buys in the same way. In all this he is ever the plaything of chance, the slave of the law of the strongest, of the least harassed, of the richest Whilst at one place there is scarcity, at another there is glut and waste. Whilst one producer sells a lot or at a very high price, and at an enormous
+
+[^1]: a "L'élément matière, qui ne peut rien pour la création de la richesse sans l'autre élément travail, reçoit la vertu magique d'être fécond pour eux comme s'ils y avaient mis de leur propre fait cet indispensable élément."—Ed.
+
+[^2]: b "En supposant que le travail quotidien d'un ouvrier lui rapporte en moyenne 400 fr. par an, et que cette somme suffise à chaque adulte pour vivre d'une vie grossière, tout propriétaire de 2000 fr. de rente, de fermage, de loyer, etc., force donc indirectement 5 hommes à travailler pour lui: 100000 fr. de rente représentent le travail de 250 hommes, et 1000000 le travail de 2500 individus."—Ed.
+
+[^3]: c "Les propriétaires ont reçu de la loi des hommes le droit d'user et d'abuser, c.-à-d. de faire ce qu'ils veulent de la matière de tout travail ils sont nullement obligés par la loi de fournir à propos et toujours du travail aux non-propriétaires, ni de leur payer un salaire toujours suffisant etc."—Ed.
+
+[^4]: d "Liberté entière quant à la nature, à la quantité, à la qualité, à l'opportunité de la production, à l'usage, à la consommation des richesses, à la disposition de la matière de tout travail. Chacun est libre d'échanger sa chose comme il l'entend, sans autre considération que son propre intérêt d'individu."—Ed.
+
+
+
+
+
+**[p. 256]**
+
+profit, the other sells nothing or sells at a loss The supply does not know the demand, and the demand does not know the supply. You produce, trusting to a taste, a fashion, which prevails amongst the consuming public. But by the time you are ready to deliver the commodity, the whim has already passed and has settled on some other kind of product The inevitable consequences: bankruptcies occurring constantly and universally; miscalculations, sudden ruin and unexpected fortunes, commercial crises, stoppages, periodic gluts or shortages; instability and depreciation of wages and profits, the loss or enormous waste of wealth, time and effort in the arena of fierce competition." a (op. cit., pp. 414-16.)
+
+Ricardo in his bookb (rent of landc): Nations are merely produc- tion-shops; man is a machine for consuming and producing; human life is a kind of capital; economic laws blindly rule the world. For Ricardo men are nothing, the product everything. In the 26th chapter of the French translation it says:
+
+"To an individual with a capital of £20,000 whose profits were £2,000 per annum, it would be a matter quite indifferent whether his capital would employ a hundred or a thousand men Is not the real interest of the nation similar? Provided its net real income, its rent and profits be the same, it is of no importance whether the nation consists of ten or twelve millions of inhabitants.'"1 [t. II,
+
+a "La concurrence n'exprime pas autre chose que l'échange facultatif, qui lui- même est la conséquence prochaine et logique du droit individuel d'user et d'abuser des instruments de toute production. Ces trois moments économiques, lesquels n'en font qu'un: le droit d'user et d'abuser, la liberté d'échanges et la concurence arbitraire, entraînent les conséquences suivantes: chacun produit ce qu'il veut, comme il veut, quand il veut, où il veut; produit bien ou produit mal, trop ou pas assez, trop tôt ou trop tard, trop cher ou à trop bas prix; chacun ignore s'il vendra, à qui il vendra, comment il vendra, quand il vendra, où il vendra: et il en est de même quant aux achats. Le producteur ignore les besoins et les ressources, les demandes et les offres. Il vend quand il veut, quand il peut, où il veut, à qui il veut, au prix qu'il veut. Et il achète de même. En tout cela, il est toujours le jouet du hasard, l'esclave de la loi du plus fort, du moins pressé, du plus riche Tandis que sur un point il y a disette d'une richesse, sur l'autre il y a trop-plein et gaspillage. Tandis qu'un producteur vend beaucoup ou très cher, et à bénéfice énorme, l'autre ne vend rien ou vend à perte L'offre ignore la demande, et la demande ignore l'offre. Vous produisez sur la foi d'un goût, d'une mode qui se manifeste dans le public des consommateurs; mais déjà, lorsque vous êtes prêts à livrer la marchandise, la fantaisie a passé et s'est fixée sur un autre genre de produit conséquences infaillibles la permanence et l'universalisation des ban- queroutes, les mécomptes, les ruines subites et les fortunes improvisées; les crises commerciales, les chômages, les encombrements ou les disettes périodiques; l'instabilité et l'avilissement des salaires et des profits, la déperdition ou le gaspillage énorme de richesses, de temps et d'efforts dans l'arène d'une concurrence acharnée."—Ed.
+
+[^1]: On the Principles of Political Economy, and Taxation.—Ed. c These words are in English in the manuscript.—Ed.
+
+[^2]: d "Il serait tout-à-fait indifférent pour une personne qui sur un capital de 20000 fr. ferait 2000 fr. par an de profit, que son capital employât cent hommes ou mille L'intérêt réel d'une nation n'est-il pas le même? pourvu que son revenu net et réel, et que ses fermages et ses profits soient les mêmes, qu'importe qu'elle se compose de dix ou de douze millions d'individus?"—Ed.
+
+
+
+
+
+**[p. 257]**
+
+pp. 194, 195.] "In fact, says M. Sismondi ([Nouveaux principes d'économie politique,] t. II, p. 331), nothing remains to be desired but that the King, living quite alone on the island, should by continuously turning a crank cause automatons to do all the work of England."366
+
+"The master who buys the worker's labour at such a low price that it scarcely suffices for the worker's most pressing needs is responsible neither for the inadequacy of the wage nor for the excessive duration of the labour: he himself has to submit to the law which he imposes Poverty is not so much caused by men as by the power of things." (Buret, op. cit., p. 82.) "The inhabitants of many different parts of Great Britain have not capital sufficient to improve and cultivate all their lands. The wool of the southernc
+
+counties of Scotland is, a great part of it, after a long land carriage through very bad roads, manufactured in Yorkshire, for want of capital to manufacture it at home. There are many little manufacturing towns in Great Britain, of which the inhabitants have not capital sufficient to transport the produce of their own industry to those distant markets where there is demand and consumption for it. If there are any merchants among them, ||XIV,2| they are properly only the agents of wealthier merchants who reside in some of the greater commercial cities." (Adam Smith, Wealth of Nations, Vol. I, pp. 326-27 [Gamier, t. II, p. 382].)
+
+"The annual produce of the land and labour of any nation can be increased in its value by no other means but by increasing either the number of its productive labourers, or the productive powers of those labourers who had before been employed In either case an additional capital is almost always required." (Adam Smith, op. cit., Vol. I, pp. 306-07 [Gamier, t. II, p. 338].)
+
+"As the accumulation of stock must, in the nature of things, be previous to the division of labour, so labour can be more and more subdivided in proportion only as stock is previously more and more accumulated. The quantity of materials which the same number of people can work up, increases in a great proportion as labour comes to be more and more subdivided; and as the operations of each workman are gradually reduced to a greater degree of simplicity, a variety of new machines come to be invented for facilitating and abridging those operations. As the division of labour advances, therefore, in order to give constant employment to an equal number of workmen, an equal stock of provisions, and a greater stock of materials and tools than what would have been necessary in a ruder state of things, must be accumulated beforehand. But the number of workmen in every branch of business generally increases with the division of labour in that branch, or rather it is the increase of their number which enables them to class and subdivide themselves in this manner." (Adam Smith, op. cit., Vol. I, pp. 241-42 [Gamier, t. II, pp. 193-94].)
+
+[^1]: "As the accumulation of stock is previously necessary for carrying on this great
+
+[^2]: a "En vérité, dit M. de Sismondi, il ne reste plus qu'à désirer que le roi, demeuré tout seul dans l'île, en tournant constamment une manivelle, fasse accomplir, par des automates, tout l'ouvrage de l'Angleterre."—Ed.
+
+[^3]: "Le maître, qui achète le travail de l'ouvrier à un prix si bas, qu'il suffit à peine aux besoins les plus pressants, n'est responsable ni de l'insuffisance des salaires, ni de la trop longue durée du travail: il subit lui-même la loi qu'il impose ce n'est pas tant des hommes que vient la misère, que de la puissance des choses."—Ed.
+
+[^4]: c In the manuscript: "eastern".—Ed.
+
+[^5]: "Pour augmenter la valeur du produit annuel de la terre et du travail, il n'y a pas d'autres moyens que d'augmenter, quant au nombre, les ouvriers productifs, ou d'augmenter, quant à la puissance, la faculté productive des ouvriers précédemment employés Dans l'un et dans l'autre cas il faut presque toujours un surcroît de capital."—Ed.
+
+
+
+
+
+**[p. 258]**
+
+improvement in the productive powers of labour, so that accumulation naturally leads to this improvement. The person who employs his stock in maintaining labour, necessarily wishes to employ it in such a manner as to produce as great a quantity of work as possible. He endeavours, therefore, both to make among his workmen the most proper distribution of employment, and to furnish them with the best machines []. His abilities in both these respects jp CV, 2| are generally in proportion to the extent of his stock, or to the number of people whom it can employ. The quantity of industry, therefore, not only increases in every country with the increase of the stock which employs it, but, in consequence of that increase, the same quantity of industry produces a much greater quantity of work." (Adam Smith, op. cit., Vol. I, p. 242 [Gamier, t. II, pp. 194-95].)
+
+Hence over-production.
+
+"More comprehensive combinations of productive forces in industry and trade by uniting more numerous and more diverse human and natural powers in larger-scale enterprises. Already here and there, closer association of the chief branches of production. Thus, big manufacturers will try to acquire also large estates in order to become independent of others for at least a part of the raw materials required for their industry; or they will go into trade in conjunction with their industrial enterprises, not only to sell their own manufactures, but also to purchase other kinds of products and to sell these to their workers. In England, where a single factory owner sometimes employs ten to twelve thousand workers it is already not uncommon to find such combinations of various branches of production controlled by one brain, such smaller states or provinces within the state. Thus, the mine owners in the Birmingham area have recently taken over the whole process of iron production, which was previously distributed among various entrepreneurs and owners. (See "Der bergmännische Distrikt bei Birmingham", Deutsche Vierteljahrs-Schri/t No. 3, 1838.) Finally in the large joint-stock enterprises which have become so numerous, we see far-reaching combinations of the financial resources of many participants with the scientific and technical knowledge and skills of others to whom the carrying-out of the work is handed over. The capitalists are thereby enabled to apply their savings in more diverse ways and perhaps even to employ them simultaneously in agriculture, industry and commerce. As a conse- quence their interest becomes more comprehensive, ||XVI,2| and the contradictions between agricultural, industrial, and commercial interests are reduced and disap- pear. But this increased possibility of applying capital profitably in the most diverse ways cannot but intensify the antagonism between the propertied and the non-propertied classes." (Schulz, op. cit., pp. 40-41.)
+
+The enormous profit which the landlords of houses make out of poverty. House rent stands in inverse proportion to industrial poverty.
+
+So does the interest obtained from the vices of the ruined proletarians. (Prostitution, drunkenness, pawnbroking.)
+
+The accumulation of capital increases and the competition between capitalists decreases, when capital and landed property are united in the same hand, also when capital is enabled by its size to combine different branches of production.
+
+Say's net and gross revenue. l XVlll
+
+[^1]: Indifference towards men. Smith's twenty lottery-tickets.67
+
+
+
+R E N T O F LAND
+
+111, 31 Landlords' right has its origin in robbery. (Say, t. I, p. 136, note.) The landlords, like all other men, love to reap where they never sowed, and demand a rent even for the natural produce of the earth. (Adam Smith, op. cit., Vol. I, p. 44 [Gamier, t. I, p. 99].)
+
+"The rent of land, it may be thought, is frequently no more than a reasonable profit or interest for the stock laid out by the landlord upon its improvement. This, no doubt, may be partly the case upon some occasions The landlord demands" (1) "a rent even for unimproved land, and the supposed interest or profit upon the expense of improvement is generally an addition to this original rent." (2) "Those improvements, besides, are not always made by the stock of the landlord, but sometimes by that of the tenant. When the lease comes to be renewed, however, the landlord commonly demands the same augmentation of rent as if they had been all made by his own." (3) "He sometimes demands rent for what is altogether incapable of human improvement." (Adam Smith, op. cit., Vol. I, p. 131 [Gamier, t. I, pp. 300-01].)
+
+Smith cites as an instance of the last case kelp,3
+
+"a species of seaweed, which, when burnt, yields an alkaline salt, useful for making glass, soap, etc. It grows in several parts of Great Britain, particularly in Scotland, upon such rocks only as lie within the high-water mark, which are twice every day covered with the sea, and of which the produce, therefore, was never augmented by human industry. The landlord, however, whose estate is bounded by a kelp shore of this kind, demands a rent for it as much as for his corn fields. The sea in the neighbourhood of the Islands of Shetland is more than commonly abundant in fish, which make a great part of the subsistence of their inhabitants. IIII, 3| But in order to profit by the produce of the water they must have a habitation upon the neighbouring land. The rent of the landlord is in proportion, not to what the farmer can make by the land, but to what he can make both by the land and by the water." (Adam Smith, op. cit., Vol. I, p. 131 [Gamier, t. I, pp. 301-02].)
+
+[^1]: "This rent may be considered as the produce of those powers of nature, the use of which the landlord lends to the farmer. It is greater or smaller according to the supposed extent of those powers, or in other words, according to the supposed natural or improved fertility of the land. It is the work of nature which remains after deducting or compensating everything which can be regarded as the work of man." (Adam Smith, op. cit., Vol. I, pp. 324-25 [Gamier, t. II, pp. 377-78].)
+
+[^2]: "The rent of land, therefore, considered as the price paid for the use of the land, is naturally a monopoly price. It is not at all proportioned to what the landlord may have laid out upon the improvement of the land, or to what he can afford to take; but to what the farmer can afford to give." (Adam Smith, op. cit., p. 131 [Gamier, t. I, p. 302].)
+
+[^3]: Of the three original classes, that of the landlords is the one "whose revenue costs them neither labour nor care, but comes to them, as it were, of its own accord, and independent of any plan or project0 of their own". (Adam Smith, op. cit., Vol. I, p. 230 [Gamier, t. II, p. 161].)
+
+[^4]: a Adam Smith uses the general term "kelp". Marx writes "Salzkraut (Seekrapp, Salicorne)" which indicates species of saltwort (Salsola) or glasswort (Salicornia).— Ed. In the manuscript: "Scotland".— Ed. c In the manuscript Einsicht (understanding) instead of Absicht (purpose, intention, project).— Ed.
+
+
+
+
+
+**[p. 260]**
+
+Another factor in its determination is situation.
+
+"The rent of land not only varies with its fertility, whatever be its produce, but with its situation, whatever be its fertility." (Adam Smith, op. cit., Vol. I, p. 133 [Gamier, t. I, p. 306].)
+
+"The produce of land, mines, and fisheries, when their natural fertility is equal, is in proportion to the extent and proper ||III,3| application of the capitals employed about them. When the capitals are equal and equally well applied, it is in proportion to their natural fertility." (op. cit., Vol. I, p. 249 [Gamier, t. II, p. 210].)
+
+These propositions of Smith are important, because, given equal costs of production and capital of equal size, they reduce the rent of land to the greater or lesser fertility of the soil. Thereby showing clearly the perversion of concepts in political economy, which turns the fertility of the land into an attribute of the landlord.
+
+Now, however, let us consider the rent of land as it is formed in real life.
+
+The rent of land is established as a result of the struggle between tenant and landlord. We find that the hostile antagonism of interests, the struggle, the war is recognised throughout political economy as the basis of social organisation.
+
+Let us see now what the relations are between landlord and tenant.
+
+[^1]: "In adjusting the terms of the lease, the landlord endeavours to leave him no greater share of the produce than what is sufficient to keep up the stock from which he furnishes the seed, pays the labour, and purchases and maintains the cattle and other instruments of husbandry, together with the ordinary profits of farming stock in the neighbourhood. This is evidently the smallest share with which the tenant can content himself without being a loser, and the landlord seldom means to leave him any more. Whatever part of the produce, or, what is the same thing, whatever part of its price is over and above this share, he naturally endeavours to reserve to himself as the rent of his land, which is evidently the highest the tenant can afford to pay in the actual circumstances of the land.||IV,3j [] This portion, however, may still be considered as the natural rent of land, or the rent for which it is naturally meant that land should for the most part be let." (Adam Smith, op. cit., Vol. I, pp. 130-31 [Gamier, t. I, pp. 299-30Ö].)
+
+[^2]: "The landlords," says Say, "operate a certain kind of monopoly against the tenants. The demand for their commodity, site and soil, can go on expanding indefinitely; but there is only a given, limited amount of their commodity The bargain struck between landlord and tenant is always advantageous to the former in the greatest possible degree Besides the advantage he derives from the nature of the case, he derives a further advantage from his position, his larger fortune and greater credit and standing. But the first by itself suffices to enable him and him alone to profit from the favourable circumstances of the land. The opening of a canal, or a road; the increase of population and of the prosperity of a district, always raises the rent Indeed, the tenant himself may improve the ground at his own expense; but he only derives the profit from this capital for the duration of
+
+
+
+
+
+**[p. 261]**
+
+his lease, with the expiry of which it remains with the proprietor of the land; henceforth it is the latter who reaps the interest thereon, without having made the outlay, for there is now a proportionate increase in the rent." (Say, t. II, pp. 142-43.)
+
+"Rent, considered as the price paid for the use of land, is naturally the highest which the tenant can afford to pay in the actual circumstances of the land." (Adam Smith, op. cit., Vol. I, p. 130 [Gamier, t. I, p. 299].)
+
+"The rent of an estate above ground commonly amounts to what is supposed to be a third of the gross produce; and it is generally a rent certain and independent of the occasional variations ||V,3| in the crop." (Adam Smith, op. cit., Vol. I, p. 153 [Gamier, t. I, p. 351].) This rent "is seldom less than a fourth of the whole produce", (op. cit., Vol. I, p. 325 [Garnier, t. Il, p. 378].)
+
+Rent cannot be paid on all commodities. For instance, in many districts3 no rent is paid for stones.
+
+"Such parts only of the produce of land can commonly be brought to market of which the ordinary price is sufficient to replace the stock which must be employed in bringing them thither, together with its ordinary profits. If the ordinary price is more than this, the surplus part of it will naturally go to the rent of the land. If it is not more, though the commodity may be brought to market, it can afford no rent to the landlord. Whether the price is or is not more depends upon the demand." (Adam Smith, op. cit., Vol. I, p. 132 [Gamier, t. I, pp. 302-03].)
+
+"Rent, it is to be observed, therefore, enters into the composition of the price of commodities in a different way from wages and profit. High or low wages and profit are the causes of high or low price; high or low rent is the effect of it." (Adam Smith, loc. cit., Vol. I, p. 132 [Gamier, t. I, pp. 303-04].)
+
+Food belongs to the products which always yield a rent.
+
+[^1]: As men, like all other animals, naturally multiply in proportion to the means of their subsistence, food is always, more or less, in demand. It can always purchase or command a greater or smaller ||VI,3l quantity of labour, and somebody can always be found who is willing to do something in order to obtain it. The quantity of labour, indeed, which it can purchase is not always equal to what it could maintain, if managed in the most economical manner, on account of the high wages which are sometimes given to labour. But it can always purchase such a quantity of labour as it can maintain, according to the rate at which the sort of labour is commonly maintained in the neighbourhood.
+
+[^2]: "But land, in almost any situation, produces a greater quantity of food than what is sufficient to maintain all the labour necessary for bringing itb to market [] The surplus, too, is always more than sufficient to replace the stock which employed that labour, together with its profits. Something, therefore, always remains for a rent to the landlord." (Adam Smith, op. cit., Vol. I, pp. 132-33 [Gamier, t. I, pp. 305-06].)
+
+[^3]: "Food is in this manner not only the original source of rent, but every other part of the produce of land which afterwards affords rent derives that part of its value from the improvement of the powers of labour in producing food by means of the improvement and cultivation of land." (Adam Smith, op. cit., Vol. I, p. 150 [Gamier, t. I, p. 345].)
+
+[^4]: "Human food seems to be the only produce of land which always and
+
+[^5]: a In the manuscript Gegenständen (objects) instead of Gegen (districts).—Ed. "It" refers to food, the manuscript however has Arbeit (labour).—Ed.
+
+
+
+
+
+**[p. 262]**
+
+"Countries are populous not in proportion to the number of people whom their produce can clothe and lodge, but in proportion to that of those whom it can feed." (Adam Smith, op. cit., Vol. I, p. 149 [Gamier, t. I, p. 342].)
+
+"After food, clothing and lodging are the two great wants of mankind." They usually yield a rent, but not inevitably, (op. cit., Vol. I, p. 147 [Gamier, t. I, pp. 337-38].) I VI li
+
+IIVIII,3|68 Let us now see how the landlord exploits everything from which society benefits.
+
+(1) The rent of land increases with population. (Adam Smith, op. cit., Vol. I, p. 146 [Gamier, t. I, p. 335].)
+
+(2) We have already learnt from Say how the rent of land increases with railways, etc., with the improvement, safety, and multiplication of the means of communication.
+
+(3) "Every improvement in the circumstances of the society tends either directly or indirectly to raise the real rent of land, to increase the real wealth of the landlord, his power of purchasing the labour, or the produce of the labour of other people.
+
+"The extension of improvement and cultivation tends to raise it directly. The landlord's share of the produce necessarily increases with the increase of the produce.
+
+"That rise in the real price of those parts of the rude produce of land [] the rise in the price of cattle, for example, tends too to raise the rent of land directly, and in a still greater proportion. The real value of the landlord's share, his real command of the labour of other people, not only rises with the real value of the produce, but the proportion of his share to the whole produce rises with it. That produce, after the rise in its real price, requires no more labour to collect it than before. A smaller proportion of it will, therefore, be sufficient to replace, with the ordinary profit, the stock which employs that labour. A greater proportion of it must, consequently, belong to the landlord." (Adam Smith, op. cit., Vol. I, pp. 228-29 [Gamier, t. II, pp. 157-59].)
+
+IIIX,3l The greater demand for raw produce, and therefore the rise in value, may in part result from the increase of population and from the increase of their needs. But every new invention, every new application in manufacture of a previously unused or little-used raw material, augments rent. Thus, for example, there was a tremendous rise in the rent of coal mines with the advent of the railways, steamships, etc.
+
+Besides this advantage which the landlord derives from man- ufacture, discoveries, and labour, there is yet another, as we shall presently see.
+
+[^1]: (4) "All those improvements in the productive powers of labour, which tend directly to reduce the real price of manufactures, tend indirectly to raise the real rent of land. The landlord exchanges that part of his rude produce, which is over and above his own consumption, or what comes to the same thing, the price of that part of it, for manufactured produce. Whatever reduces the real price of the latter,
+
+
+
+
+
+**[p. 263]**
+
+But it is silly to conclude, as Smith does, that since the landlord exploits every benefit which comes to society l|X,3| the interest of the landlord is always identical with that of society, (op. cit., Vol. I, p. 230 [Gamier, t. II, p. 161].) In the economic system, under the rule of private property, the interest which an individual has in society is in precisely inverse proportion to the interest society has in him—just as the interest of the usurer in the spendthrift is by no means identical with the interest of the spendthrift.
+
+We shall mention only in passing the landlord's obsession with monopoly directed against the landed property of foreign coun- tries, from which the Corn Laws,69 for instance, originate. Likewise, we shall here pass over medieval serfdom, the slavery in the col- onies, and the miserable condition of the country folk, the day- labourers, in Great Britain. Let us confine ourselves to the propo- sitions of political economy itself.
+
+(1) The landlord being interested in the welfare of society means, according to the principles of political economy, that he is interested in the growth of its population and manufacture, in the expansion of its needs—in short, in the increase of wealth; and this increase of wealth is, as we have already seen, identical with the increase of poverty and slavery. The relation between increasing house rent and increasing poverty is an example of the landlord's interest in society, for the ground rent, the interest obtained from the land on which the house stands, goes up with the rent of the house.
+
+(2) According to the political economists themselves, the land- lord's interest is inimically opposed to the interest of the tenant farmer—and thus already to a significant section of society.
+
+IIXI,3| (3) As the landlord can demand all the more rent from the tenant farmer the less wages the farmer pays, and as the farmer forces down wages all the lower the more rent the landlord demands, it follows that the interest of the landlord is just as hostile to that of the farm workers as is that of the manufacturers to their workers. He likewise forces down wages to the minimum.
+
+(4) Since a real reduction in the price of manufactured products raises the rent of land, the landowner has a direct interest in lowering the wages of industrial workers, in competition amongst the capitalists, in over-production, in all the misery associated with industrial production.
+
+
+
+**[p. 264]**
+
+In general the relationship of large and small landed property is like that of big and small capital. But in addition, there are special circumstances which lead inevitably to the accumulation of large landed property and to the absorption of small property by it.
+
+||XII,3I (1) Nowhere does the relative number of workers and implements decrease more with increases in the size of the stock than in landed property. Likewise, the possibility of all-round exploitation, of economising production costs, and of effective division of labour, increases nowhere more with the size of the stock than in landed property. However small a field may be, it requires for its working a certain irreducible minimum of imple- ments (plough, saw, etc.), whilst the size of a piece of landed property can be reduced far below this minimum.
+
+(2) Big landed property accumulates to itself the interest on the capital which the tenant farmer has employed to improve the land. Small landed property has to employ its own capital, and therefore does not get this profit at all.
+
+(3) While every social improvement benefits the big estate, it harms small property, because it increases its need for ready cash.
+
+(4) Two important laws concerning this competition remain to be considered:
+
+Ultimately, only the big estate can produce such food as cattle, etc. Therefore it regulates the rent of other land and can force it down to a minimum.
+
+The small landed proprietor working on his own land stands then to the big landowner in the same relation as an artisan possessing his own tool to the factory owner. Small property in land has become a mere instrument of labour. HXVI.ll70 Rent entirely disappears for the small proprietor; there remains to him at the most the interest on his capital, and his wages. For rent can be driven down by competition till it is nothing more than the interest on capital not invested by the proprietor.
+
+(ß) In addition, we have already learnt that with equal fertility
+
+[^1]: (ce) The rent of the cultivated3 land, of which the produce is human food, regulates the rent of the greater part of other cultivated land. (Adam Smith, op. cit., Vol. I, p. 144 [Gamier, t. I, p. 331].)
+
+[^2]: The manuscript has "produced" instead of "cultivated".— Ed.
+
+
+
+
+
+**[p. 265]**
+
+(Y) "A mine of any kind may be said to be either fertile or barren, according as the quantity of mineral which can be brought from it by a certain quantity of labour is greater or less than what can be brought by an equal quantity from the greater part of other mines of the same kind." (Adam Smith, op. cit., Vol. I, p. 151 [Gamier, t. I, pp. 345-46].)
+
+"The most fertile coal-mine, too, regulates the price of coals" at all the other mines in its neighbourhood. Both the proprietor and the undertaker of the work find, the one that he can get a greater rent, the other that he can get a greater profit, by somewhat underselling all their neighbours. Their neighbours are soon obliged to sell at the same price, though they cannot so well afford it, and though it always diminishes, and sometimes takes away altogether both their rent and their profit. Some works are abandoned altogether; others can afford no rent, and can be wrought only by the proprietor." (Adam Smith, op. cit., Vol. I, pp. 152-53 [Gamier, t. I, p. 350].)
+
+"After the discovery of the mines of Peru, the silver mines of Europe were, the greater part of them, abandoned This was the case, too, with the mines of Cuba and St. Domingo, and even with the ancient mines of Peru, after the discovery of those of Potosi." (op. cit., Vol. I, p. 154 [Gamier, t. I, p. 353].)
+
+What Smith here says of mines applies more or less to landed property generally:
+
+From this relation of rent of land to interest on money it follows that rent must fall more and more, so that eventually only the wealthiest people can live on rent. Hence the evergreater competi- tion between landowners who do not lease their land to tenants. Ruin of some of these; further accumulation of large landed property. • IIXVII,2I This competition has the further consequence that a large part of landed property falls into the hands of the capitalists and that capitalists thus become simultaneously landowners, just as the smaller landowners are on the whole already nothing more than capitalists. Similarly, a section of large landowners become at the same time industrialists.
+
+[^1]: (8) "The ordinary market price of land, it is to be observed, depends everywhere upon the ordinary market rate of interest If the rent of land should fall short of the interest of money by a greater difference, nobody would buy land, which would soon reduce its ordinary price. On the contrary, if the advantages should much more than compensate the difference, everybody would buy land, which again would soon raise its ordinary price." (op. cit., Vol. I, p. 320 [Gamier, t. II, pp. 367-68].)
+
+[^2]: a The manuscript has "mine" instead of "coals".— Ed.
+
+[^3]: 10—482
+
+
+
+
+
+**[p. 266]**
+
+The domination of the land as an alien power over men is already inherent in feudal landed property. The serf is the adjunct of the land. Likewise, the lord of an entailed estate, the first-born son, belongs to the land. It inherits him. Indeed, the dominion of private property begins with property in land—that is its basis. But in feudal landed property the lord at least appears as the king of the estate. Similarly, there still exists the semblance of a more intimate connection between the proprietor and the land than that of mere material wealth. The estate is individualised with its lord: it has his rank, is baronial or ducal with him, has his privileges, his jurisdiction, his political position, etc. It appears as the inorganic body of its lord. Hence the proverb nulle terre sans maître, which expresses the fusion of nobility and landed property. Similarly, the rule of landed property does not appear directly as the rule of mere capital. For those belonging to it, the estate is more like their fatherland. It is a constricted sort of nationality.
+
+IIXVIII,21 In the same way, feudal landed property gives its name to its lord, as does a kingdom to its king. His family history, the history of his house, etc.—all this individualises the estate for him and makes it literally his house, personifies it. Similarly those working on the estate have not the position of day-labourers; but they are in part themselves his property, as are serfs; and in part they are bound to him by ties of respect, allegiance, and duty. His relation to them is therefore directly political, and has likewise a human, intimate side. Customs, character, etc., vary from one estate to another and seem to be one with the land to which they belong; whereas later, it is only his purse and not his character, his individuality, which connects a man with an estate. Finally, the
+
+
+
+**[p. 267]**
+
+It is necessary that this appearance be abolished—that landed property, the root of private property, be dragged completely into the movement of private property and that it become a commodi- ty; that the rule of the proprietor appear as the undisguised rule of private property, of capital, freed of all political tincture; that the relationship between proprietor and worker be reduced to the economic relationship of exploiter and exploited; that all [.,.]* personal relationship between the proprietor and his property cease, property becoming merely objective, material wealth; that the marriage of convenience should take the place of the marriage of honour with the land; and that the land should likewise sink to the status of a commercial value, like man. It is essential that that which is the root of landed property—filthy self-interest—make its appearance, too, in its cynical form. It is essential that the immovable monopoly turn into the mobile and restless monopoly, into competition; and that the idle enjoyment of the products of other people's blood and sweat turn into a bustling commerce in the same commodity. Lastly, it is essential that in this competition landed property, in the form of capital, manifest its dominion over both the working class and the proprietors themselves who are either being ruined or raised by the laws governing the movement of capital. The medieval proverb nulle terre sans seigneur is thereby replaced by that other proverb, l'argent n'a pas de maître, wherein is expressed the complete domination of dead matter over man.
+
+||XIX,2| (2) Concerning the argument of division or non-division of landed property, the following is to be observed.
+
+The division of landed property negates the large-scale monopoly of property in land—abolishes it; but only by generalising this monopoly. It does not abolish the source of monopoly» private property. It attacks the existing form, but not the essence, of monopoly. The consequence is that it falls victim to the laws of private property. For the division of landed property corresponds to the movement of competition in the sphere of industry. In addition to the economic disadvantages of such a dividing-up of the instruments of labour, and the dispersal of labour (to be clearly distinguished from the division of labour: in separated
+
+[^1]: " A word in the manuscript cannot be deciphered.— Ed.
+
+[^2]: 10*
+
+
+
+
+
+**[p. 268]**
+
+Therefore, where the division of landed property takes place, there remains nothing for it but to return to monopoly in a still more malignant form, or to negate, to abolish the division of landed property itself. To do that, however, is not to return to feudal ownership, but to abolish private property in the soil altogether. The first abolition of monopoly is always its generalisa- tion, the broadening of its existence. The abolition of monopoly, once it has come to exist in its utmost breadth and inclusiveness, is its total annihilation. Association, applied to land, shares the economic advantage of large-scale landed property, and first" brings to realisation the original tendency inherent in [land] division, namely, equality. In the same way association also re-establishes, now on a rational basis, no longer mediated by serfdom, overlordship and the silly mysticism of property, the intimate ties of man with the earth, since the earth ceases to be an object of huckstering, and through free labour and free enjoy- ment becomes once more, a true personal property of man. A great advantage of the division of landed property is that the masses, which can no longer resign themselves to servitude, perish through property in a different way than in industry.
+
+As for large landed property, its defenders have always, sophis- tically, identified the economic advantages offered by large-scale agriculture with large-scale landed property, as if it were not precisely as a result of the abolition of property that this advantage, for one thing, would receive its IIXX,2| greatest possible extension, and, for another, only then would be of social benefit. In the same way, they have attacked the huckstering spirit of small landed property, as if large landed property did not contain huckstering latent within it, even in its feudal form—not to speak of the modern English form, which combines the landlord's feudalism with the tenant farmer's huckstering and industry.
+
+Just as large landed property can return the reproach of monopoly levelled against it by partitioned land, since partitioned land is also based on the monopoly of private property, so can partitioned landed property likewise return to large landed prop- erty the reproach of partition, since partition also prevails there, though in a rigid and frozen form. Indeed, private property rests
+
+[^1]: In the manuscript the word "first" (erst) cannot be clearly deciphered.— Ed.
+
+
+
+
+
+**[p. 269]**
+
+For large landed property, as in England, drives the overwhelm- ing majority of the population into the arms of industry and reduces its own workers to utter wretchedness. Thus, it engenders and enlarges the power of its enemy, capital, industry, by throwing poor people and an entire activity of the country on to the other side. It makes the majority of the people of the country industrial and thus opponents of large landed property. Where industry has attained to great power, as in England at the present time, it progressively forces from large landed property its monopoly against foreign countries" and throws it into competition with landed property abroad. For under the sway of industry landed property could keep its feudal grandeur secure only by means of monopolies against foreign countries, thereby protecting itself against, the general laws of trade, which are incompatible with its feudal character. Once thrown into competition, landed property obeys the laws of competition, like every other commodity sub- jected to competition. It begins thus to fluctuate, to decrease and to increase, to fly from one hand to another; and no law can keep it any longer in a few predestined hands. ||XXI,2|The immediate consequence is the splitting up of the land amongst many hands, and in any case subjection to the power of industrial capitals.
+
+Finally, large landed property which has been forcibly preserved in this way and which has begotten by its side a tremendous industry leads to crisis even more quickly than the partitioning of land, in comparison with which the power of industry remains constantly of second rank.
+
+Large landed property, as we see in England, has already cast off its feudal character and adopted an industrial character insofar as it is aiming to make as much money as possible. To the owner it yields the utmost possible rent, to the tenant farmer the utmost possible profit on his capital. The workers on the land, in consequence, have already been reduced to the minimum, and the class of tenant farmers already represents within landed property the power of industry and capital. As a result of foreign competi- tion, rent in most cases can no longer form an independent income. A large number of landowners are forced to displace
+
+[^1]: a Originally it was "against the monopoly of foreign countries", then Marx crossed out "the monopoly of".— Ed.
+
+
+
+
+
+**[p. 270]**
+
+Landed property had to develop in each of these two ways so as to experience in both its necessary downfall, just as industry both in the form of monopoly and in that of competition had to ruin itself so as to learn to believe in man. IXXI11
+
+[ESTRANGED LABOUR]
+
+IIXXIII We have proceeded from the premises of political economy. We have accepted its language and its laws. We presupposed private property, the separation of labour, capital and land, and of wages, profit of capital and rent of land—likewise division of labour, competition, the concept of exchange-value, etc. On the basis of political economy itself, in its own words, we have shown that the worker sinks to the level of a commodity and becomes indeed the most wretched of commodities; that the wretchedness of the worker is in inverse proportion to the power and magnitude of his production; that the necessary result of competition is the accumulation of capital in a few hands, and thus the restoration of monopoly in a more terrible form; and that finally the distinction between capitalist and land rentier, like that between the tiller of the soil and the factory worker, disappears and that the whole of society must fall apart into the two classes—the property owners and the propertyless workers.
+
+Political economy starts with the fact of private property; it does not explain it to us. It expresses in general, abstract formulas the material process through which private property actually passes, and these formulas it then takes for laws. It does not comprehend these
+
+Here one word in the manuscript cannot be deciphered.—Ed.
+
+
+
+**[p. 271]**
+
+laws, i.e., it does not demonstrate how they arise from the very nature of private property. Political economy throws no light on the cause of the division between labour and capital, and between capital and land. When, for example, it defines the relationship of wages to profit, it takes the interest of the capitalists to be the ultimate cause, i.e., it takes for granted what it is supposed to explain. Similarly, competition comes in everywhere. It is explained from external circumstances. As to how far these external and apparently accidental circumstances are but the expression of a necessary course of development, political economy teaches us nothing. We have seen how exchange itself appears to it as an accidental fact. The only wheels which political economy sets in motion are greed and the war amongst the greedy—competition.*
+
+Precisely because political economy does not grasp the way the movement is connected, it was possible to oppose, for instance, the doctrine of competition to the doctrine of monopoly, the doctrine of the freedom of the crafts to the doctrine of the guild, the doctrine of the division of landed property to the doctrine of the big estate— for competition, freedom of the crafts and the division of landed property were explained and comprehended only as accidental, premeditated and violent consequences of monopoly, of the guild system, and of feudal property, not as their necessary, inevitable and natural consequences.
+
+Now, therefore, we have to grasp the intrinsic connection between private property, avarice, the separation of labour, capital and landed property; the connection of exchange and competition, of value and the devaluation of men, of monopoly and competition, etc.— we have to grasp this whole estrangement connected with the money system.
+
+Do not let us go back to a fictitious primordial condition as the political economist does, when he tries to explain. Such a primordial condition explains nothing; it merely pushes the question away into a grey nebulous distance. The economist assumes in the form of a fact, of an event, what he is supposed to deduce—namely, the necessary relationship between two things—between, for example, division of labour and exchange. Thus the theologian explains the origin of evil by the fall of man; that is, he assumes as a fact, in historical form, what has to be explained.
+
+We proceed from an actual economic fact. The worker becomes all the poorer the more wealth he produces,
+
+[^1]: a After the paragraph the following sentence is crossed out in the manuscript: "We now have to examine the nature of this material movement of property."—Ed.
+
+
+
+
+
+**[p. 272]**
+
+This fact expresses merely that the object which labour pro- duces—labour's product—confronts it as something alien, as a power independent of the producer. The product of labour is labour which has been embodied in an object, which has become material: it is the objectification of labour. Labour's realisation is its objectifica- tion. Under these economic conditions this realisation of labour appears as loss of realisation for the workers71; objectification as loss of the object and bondage to it; appropriation as estrangement, as alienation.''2
+
+So much does labour's realisation appear as loss of realisation that the worker loses realisation to the point of starving to death. So much does objectification appear as loss of the object that the worker is robbed of the objects most necessary not only for his life but for his work. Indeed, labour itself becomes an object which he can obtain only with the greatest effort and with the most irregular interrup- tions. So much does the appropriation of the object appear as estrangement that the more objects the worker produces the less he can possess and the more he falls under the sway of his product, capital.
+
+All these consequences are implied in the statement that the wor- ker is related to the product of his labour as to an alien object. For on this premise it is clear that the more the worker spends himself, the more powerful becomes the alien world of objects which he creates over and against himself, the poorer he himself—his inner world— becomes, the less belongs to him as his own. It is the same in religion. The more man puts into God, the less he retains in himself. The worker puts his life into the object; but now his life no longer belongs to him but to the object. Hence, the greater this activity, the more the worker lacks objects. Whatever the product of his labour is, he is not. Therefore the greater this product, the less is he himself. The alienation of the worker in his product means not only that his labour becomes an object, an external existence, but that it exists outside him, independently, as something alien to him, and that it becomes a power on its own confronting him. It means that the life which he has conferred on the object confronts him as something hostile and alien.
+
+The worker can create nothing without nature, without the sensuous external world. It is the material on which his labour is realised, in which it is active, from which and by means of which it produces.
+
+But just as nature provides labour with [the] means of life in the sense that labour cannot live without objects on which to operate, on the other hand, it also provides the means of life in the more restricted sense, i.e., the means for the physical subsistence of the worker himself.
+
+Thus the more the worker by his labour appropriates the external world, sensuous nature, the more he deprives himself of means of life in two respects: first, in that the sensuous external world more and more ceases to be an object belonging to his labour—to be his labour's means of life; and secondly, in that it more and more ceases to be means of life in the immediate sense, means for the physical subsistence of the worker.
+
+In both respects, therefore, the worker becomes a servant of his object, first, in that he receives an object of labour, i.e., in that he receives work; and secondly, in that he receives means of subsistence. This enables him to exist, first, as a worker; and, second, as a physical subject. The height of this servitude is that it is only as a worker that he can maintain himself as a physical subject, and that it is only as a Physical subject that he is a worker.
+
+(According to the economic laws the estrangement of the worker in his object is expressed thus: the more the worker produces, the less he has to consume; the more values he creates, the more valueless, the more unworthy he becomes; the better formed his product, the more deformed becomes the worker; the more civilised his object, the more barbarous becomes the worker; the more powerful labour becomes, the more powerless becomes the worker; the more ingenious labour becomes, the less ingenious becomes the worker and the more he becomes nature's servant.)
+
+Political economy conceals the estrangement inherent in the nature of labour by not considering the direct relationship between the worker (labour) and production. It is true that labour produces wonderful things for the rich — but for the worker it produces privation. It produces palaces — but for the worker, hovels. It produces beau- ty— but for the worker, deformity. It replaces labour by machines, but it throws one section of the workers back to a barbarous type of labour, and it turns the other section into a machine. It produces intelligence — but for the worker, stupidity, cretinism.
+
+
+
+**[p. 274]**
+
+The direct relationship of labour to its products is the relationship of the worker to the objects of his production. The relationship of the man of means to the objects of production and to production itself is only a consequence of this first relationship — and confirms it. We shall consider this other aspect later. When we ask, then, what is the essential relationship of labour we are asking about the relationship of the worker to production.
+
+Till now we have been considering the estrangement; the alienation of the worker only in one of its aspects, i.e., the worker's relationship to the products of his labour. But the estrangement is manifested not only in the result but in the act of production, within the producing activity itself. How could the worker come to face the product of his activity as a stranger, were it not that in the very act of production he was estranging himself from himself? The product is after all but the summary of the activity, of production. If then the product of labour is alienation, production itself must be active alienation, the alienation of activity, the activity of alienation. In the estrangement of the object of labour is merely summarised the estrangement, the alienation, in the activity of labour itself.
+
+What, then, constitutes the alienation of labour?
+
+First, the fact that labour is external to the worker, i.e., it does not belong to his intrinsic nature; that in his work, therefore, he does not affirm himself but denies himself, does not feel content but unhappy, does not develop freely his physical and mental energy but mortifies his body and ruins his mind. The worker therefore only feels himself outside his work, and in his work feels outside himself. He feels at home when he is not working, and when he is working he does not feel at home. His labour is therefore not voluntary, but coerced; it is forced labour. It is therefore not the satisfaction of a need; it is merely a means to satisfy needs external to it. Its alien character emerges clearly in the fact that as soon as no physical or other compulsion exists, labour is shunned like the plague. External labour, labour in which man alienates himself, is a labour of self-sacrifice, of mortification. Lastly, the external character of labour for the worker appears in the fact that it is not his own, but someone else's, that it does not belong to him, that in it he belongs, not to himself, but to another. Just as in religion the spontaneous activity of the human imagination, of the human brain and the human heart, operates on the individual independently of him—that is, operates as an alien, divine or diabolical activity—so is the worker's activity not his spontaneous activity. It belongs to another; it is the loss of his self.
+
+As a result, therefore, man (the worker) only feels himself freely
+
+
+
+**[p. 275]**
+
+active in his animal functions—eating, drinking, procreating, or at most in his dwelling and in dressing-up, etc.; and in his human functions he no longer feels himself to be anything but an animal. What is animal becomes human and what is human becomes animal.
+
+Certainly eating, drinking, procreating, etc., are also genuinely human functions. But taken abstractly, separated from the sphere of all other human activity and turned into sole and ultimate ends, they are animal functions.
+
+We have considered the act of estranging practical human activity, labour, in two of its aspects. (1) The relation of the worker to the product of labour as an alien object exercising power over him. This relation is at the same time the relation to the sensuous external world, to the objects of nature, as an alien world inimically opposed to him. (2) The relation of labour to the act of production within the labour process. This relation is the relation of the worker to his own activity as an alien activity not belonging to him; it is activity as suffering, strength as weakness, begetting as emasculating, the worker's own physical and mental energy, his personal life—for what is life but activity?—as an activity which is turned against him, independent of him and not belonging to him. Here we have self-estrangement, as previously we had the estrangement of the thing.
+
+IIXXIVI We have still a third aspect of estranged labour to deduce from the two already considered.
+
+Man is a species-being,73 not only because in practice and in theory he adopts the species (his own as well as those of other things) as his object, but—and this is only another way of expressing it—also because he treats himself as the actual, living species; because he treats himself as a universal and therefore a free being.
+
+The life of the species, both in man and in animals, consists physically in the fact that man (like the animal) lives on inorganic nature; and the more universal man (or the animal) is, the more universal is the sphere of inorganic nature on which he lives. Just as plants, animals, stones, air, light, etc., constitute theoretically a part of human consciousness, partly as objects of natural science, partly as objects of art—his spiritual inorganic nature, spiritual nourishment which he must first prepare to make palatable and digestible—so also in the realm of practice they constitute a part of human life and human activity. Physically man lives only on these products of nature, whether they appear in the form of food, heating, clothes, a dwelling, etc. The universality of man appears in practice precisely in the universality which makes all nature his inorganic body—both inasmuch as nature is (1) his direct means of life, and (2) the
+
+
+
+**[p. 276]**
+
+material, the object, and the instrument of his life activity. Nature is man's inorganic body—nature, that is, insofar as it is not itself human body. Man lives on nature—means that nature is his body, with which he must remain in continuous interchange if he is not to die. That man's physical and spiritual life is linked to nature means simply that nature is linked to itself, for man is a part of nature.
+
+In estranging from man (1) nature, and (2) himself, his own active functions, his life activity, estranged labour estranges the species from man. It changes for him the life of the species into a means of individual life. First it estranges the life of the species and individual life, and secondly it makes individual life in its abstract form the purpose of the life of the species, likewise in its abstract and estranged form.
+
+For labour, life activity, productive life itself, appears to man in the first place merely as a means of satisfying a need—the need to maintain physical existence. Yet the productive life is the life of the species. It is life-engendering life. The whole character of a species — its species-character—is contained in the character of its life activity; and free, conscious activity is man's species-character. Life itself appears only as a means to life.
+
+The animal is immediately one with its life activity. It does not distinguish itself from it. It is its life activity. Man makes his life activity itself the object of his will and of his consciousness. He has conscious life activity. It is not a determination with which he directly merges. Conscious life activity distinguishes man immediately from animal life activity. It is just because of this that he is a species-being. Or it is only because he is a species-being that he is a conscious being, i.e., that his own life is an object for him. Only because of that is his activity free activity. Estranged labour reverses this relationship, so that it is just because man is a conscious being that he makes his life activity, his essential being, a mere means to his existence.
+
+In creating a world of objects by his practical activity, in his work upon inorganic nature, man proves himself a conscious species-being, i.e., as a being that treats the species as its own essential being, or that treats itself as a species-being. Admittedly animals also produce. They build themselves nests, dwellings, like the bees, beavers, ants, etc. But an animal only produces what it immediately needs for itself or its young. It produces one-sidedly, whilst man produces universally. It produces only under the dominion of immediate physical need, whilst man produces even when he is free from physical need and only truly produces in freedom therefrom. An animal produces only itself, whilst man reproduces the whole of nature. An animal's product belongs immediately to its physical
+
+
+
+**[p. 277]**
+
+body, whilst man freely confronts his product. An animal forms ob- jects only in accordance with the standard and the need of the species to which it belongs, whilst man knows how to produce in accordance with the standard of every species, and knows how to apply everywhere the inherent standard to the object. Man therefore also forms objects in accordance with the laws of beauty.
+
+It is just in his work upon the objective world, therefore, that man really proves himself to be a species-being. This production is his active species-life. Through this production, nature appears as his work and his reality. The object of labour is, therefore, the objectification of man's species-life: for he duplicates himself not only, as in consciousness, intellectually, but also actively, in reality, and therefore he sees himself in a world that he has created. In tearing away from man the object of his production, therefore, estranged labour tears from him his species-life, his real objectivity as a member of the species, and transforms his advantage over animals into the disadvantage that his inorganic body, nature, is taken away from him.
+
+Similarly, in degrading spontaneous, free activity to a means, estranged labour makes man's species-life a means to his physical existence.
+
+The consciousness which man has of his species is thus trans- formed by estrangement in such a way that species[-life] becomes for him a means.
+
+Estranged labour turns thus: (3) Man's species-being, both nature and his spiritual species- property, into a being alien to him, into a means for his individual existence. It estranges from man his own body, as well as external nature and his spiritual aspect, his human aspect.
+
+(4) An immediate consequence of the fact that man is estranged from the product of his labour, from his life activity, from his species-being is the estrangement of man from man. When man confronts himself, he confronts the other man. What applies to a man's relation to his work, to the product of his labour and to himself, also holds of a man's relation to the other man, and to the other man's labour and object of labour.
+
+In fact, the proposition that man's species-nature is estranged from him means that one man is estranged from the other, as each of them is from man's essential nature.
+
+The estrangement of man, and in fact every relationship in which man [stands] to himself, is realised and expressed only in the relationship in which a man stands to other men.
+
+
+
+**[p. 278]**
+
+11XXVI We took our departure from a fact of political economy—the estrangement of the worker and his product. We have formulated this fact in conceptual terms as estranged, alienated labour. We have analysed this concept—hence analysing merely a fact of political economy.
+
+Let us now see, further, how the concept of estranged, alienated labour must express and present itself in real life.
+
+If the product of labour is alien to me, if it confronts me as an alien power, to whom, then, does it belong?
+
+If my own activity does not belong to me, if it is an alien, a coerced activity, to whom, then, does it belong?
+
+To a being other than myself. Who is this being?
+
+The gods? To be sure, in the earliest times the principal produc- tion (for example, the building of temples, etc., in Egypt, India and Mexico) appears to be in the service of the gods, and the product belongs to the gods. However, the gods on their own were never the lords of labour. No more was nature. And what a contradiction it would be if, the more man subjugated nature by his labour and the more the miracles of the gods were rendered superfluous by the miracles of industry, the more man were to renounce the joy of production and the enjoyment of the product to please these powers.
+
+The alien being, to whom labour and the product of labour belongs, in whose service labour is done and for whose benefit the product of labour is provided, can only be man himself.
+
+If the product of labour does not belong to the worker, if it confronts him as an alien power, then this can only be because it belongs to some other man than the worker. If the worker's activity is a torment to him, to another it must give satisfaction and pleasure. Not the gods, not nature, but only man himself can be this alien power over man.
+
+We must bear in mind the previous proposition that man's relation to himself only becomes for him objective and actual through his relation to the other man. Thus, if the product of his labour, his labour objectified, is for him an alien, hostile, powerful object independent of him, then his position towards it is such that someone else is master of this object, someone who is alien, hostile, powerful, and independent of him. If he treats his own activity as an unfree activity, then he treats it as an activity
+
+performed in the service, under the dominion, the coercion, and the yoke of another man.
+
+Every self-estrangement of man, from himself and from na- ture, appears in the relation in which he places himself and nature to men other than and differentiated from himself. For this reason religious self-estrangement necessarily appears in the relationship of the layman to the priest, or again to a mediator, etc., since we are here dealing with the intellectual world. In the real practical world self-estrangement can only become manifest through the real practical relationship to other men. The medium through which estrangement takes place is itself practical. Thus through estranged labour man not only creates his relationship to the object and to the act of production as to powers" that are alien and hostile to him; he also creates the relationship in which other men stand to his production and to his product, and the relationship in which he stands to these other men. Just as he creates his own production as the loss of his reality, as his punishment; his own product as a loss, as a product not belonging to him; so he creates the domination of the person who does not produce over production and over the product. Just as he estranges his own activity from himself, so he confers upon the stranger an activity which is not his own.
+
+We have until now considered this relationship only from the standpoint of the worker and later we shall be considering it also from the standpoint of the non-worker.
+
+Through estranged, alienated labour, then, the worker pro- duces the relationship to this labour of a man alien to labour and standing outside it. The relationship of the worker to labour creates the relation to it of the capitalist (or whatever one chooses to call the master of labour). Private property is thus the pro- duct, the result, the necessary consequence, of alienated labour, of the external relation of the worker to nature and to him- self.
+
+Private property thus results by analysis from the concept of alienated labour, i.e., of alienated man, of estranged labour, of estranged life, of estranged man.
+
+True, it is as a result of the movement of private property that we have obtained the concept of alienated labour (of alienated life) in political economy. But analysis of this concept shows that though private property appears to be the reason, the cause of alienated labour, it is rather its consequence, just as the gods are originally not
+
+[^1]: a In the manuscript Menschen (men) instead of Mächte (powers).— Ed.
+
+
+
+
+
+**[p. 280]**
+
+Only at the culmination of the development of private property does this, its secret, appear again, namely, that on the one hand it is the product of alienated labour, and that on the other it is the means by which labour alienates itself, the realisation of this alienation.
+
+This exposition immediately sheds light on various hitherto unsolved conflicts.
+
+(1) Political economy starts from labour as the real soul of production; yet to labour it gives nothing, and to private property everything. Confronting this contradiction, Proudhon has decided in favour of labour against private property.74 We understand, however, that this apparent contradiction is the contradiction of estranged labour with itself, and that political economy has merely formulated the laws of estranged labour.
+
+We also understand, therefore, that wages and private property are identical. Indeed, where the product, as the object of labour, pays for labour itself, there the wage is but a necessary consequence of labour's estrangement. Likewise, in the wage of labour, labour does not appear as an end in itself but as the servant of the wage. We shall develop this point later, and meanwhile will only draw some con- IIXXVII elusions.75
+
+An enforced increase of wages (disregarding all other difficulties, including the fact that it would only be by force, too, that such an increase, being an anomaly, could be maintained) would therefore be nothing but better payment for the slave, and would not win either for the worker or for labour their human status and dignity.
+
+Indeed, even the equality of wages, as demanded by Proudhon, only transforms the relationship of the present-day worker to his labour into the relationship of all men to labour. Society is then conceived as an abstract capitalist.
+
+Wages are a direct consequence of estranged labour, and estranged labour is the direct cause of private property. The downfall of the one must therefore involve the downfall of the other.
+
+(2) From the relationship of estranged labour to private property it follows further that the emancipation of society from private property, etc., from servitude, is expressed in the political form of the emancipation of the workers; not that their emancipation alone is at stake, but because the emancipation of the workers contains universal human emancipation—and it contains this, because the whole of human servitude is involved in the relation of the worker to production, and all relations of servitude are but modifications and consequences of this relation.
+
+
+
+**[p. 281]**
+
+Just as we have derived the concept of private property from the concept of estranged, alienated labour by analysis, so we can develop every category of political economy with the help of these two factors; and we shall find again in each category, e.g., trade, competition, capital, money, only a particular and developed expressionof these first elements.
+
+Before considering this phenomenon, however, let us try to solve two other problems.
+
+(1) To define the general nature of private property, as it has arisen as a result of estranged labour, in its relation to truly human and social property.
+
+(2) We have accepted the estrangement of labour, its alienation, as a fact, and we have analysed this fact. How, we now ask, does man come to alienate, to estrange, his labour} How is this estrangement rooted in the nature of human development? We have already gone a long way to the solution of this problem by transforming the question of the origin of private property into the question of the relation of alienated labour to the course of humanity's development. For when one speaks of private property, one thinks of dealing with something external to man. When one speaks of labour, one is directly dealing with man himself. This new formulation of the question already contains its solution.
+
+As to (1): The general nature of private property and its relation to truly human property.
+
+Alienated labour has resolved itself for us into two components which depend on one another, or which are but different expressions of one and the same relationship. Appropriation appears as estrangement, as alienation; and alienation appears as appropriation, estrangement as truly becoming a citizen.7a
+
+We have considered the one side—alienated labour in relation to the worker himself, i.e., the relation of alienated labour to itself. The product, the necessary outcome of this relationship, as we have seen, is the property relation of the non-worker to the worker and to labour. Private property, as the material, summary expression of alienated labour, embraces both relations—the relation of the worker to labour and to the product of his labour and to the non-worker, and the relation of the non- worker to the worker and to the product of his labour.
+
+Having seen that in relation to the worker who appropriates nature by means of his labour, this appropriation appears as es- trangement, his own spontaneous activity as activity for another and as activity of another, vitality as a sacrifice of life, production of the object as loss of the object to an alien power, to an alien person—we shall now consider the relation to the worker, to
+
+
+
+**[p. 282]**
+
+First it has to be noted that everything which appears in the worker as an activity of alienation, of estrangement, appears in the non-worker as a state of alienation, of estrangement.
+
+Secondly, that the worker's real, practical attitude in production and to the product (as a state of mind) appears in the non-worker confronting him as a theoretical attitude.
+
+11XXVII | Thirdly, the non-worker does everything against the worker which the worker does against himself; but he does not do against himself what he does against the worker.
+
+Let us look more closely at these three relations.3 | XXVII ||
+
+[^1]: a At this point the first manuscript breaks off unfinished.— Ed.
+
+
+
+[Second Manuscript]
+
+[ANTITHESIS OF CAPITAL AND LABOUR. LANDED PROPERTY AND CAPITAL]
+
+[] IIXLI forms the interest on his capital.2 The worker is the subjective manifestation of the fact that capital is man wholly lost to himself, just as capital is the objective manifestation of the fact that labour is man lost to himself. But the worker has the misfortune to be a living capital, and therefore an indigent capital, one which loses its interest, and hence its livelihood, every moment it is not working. The value of the worker as capital rises according to demand and supply, and physically too his existence, his life, was and is looked upon as a supply of a commodity like any other. The worker produces capital, capital produces him—hence he pro- duces himself, and man as worker, as a commodity, is the product of this entire cycle. To the man who is nothing more than a worker—and to him as a worker—his human qualities only exist insofar as they exist for capital alien to him. Because man and capital are alien, foreign to each other, however, and thus stand in an indifferent, external and accidental relationship to each other, it is inevitable that this foreignness should also appear as some- thing real. As soon, therefore, as it occurs to capital (whether from necessity or caprice) no longer to be for the worker, he himself is no longer for himself: he has no work, hence no wages, and since he has no existence as a human being but only as a worker, he can go and bury himself, starve to death, etc. The worker exists as a worker only when he exists for himself as capital; and he exists as capital only when some capital exists for him. The existence of
+
+[^1]: a With these words page XL of the second manuscript begins; the preceding pages have not been preserved.— Ed.
+
+
+
+
+
+**[p. 284]**
+
+capital is his existence, his life; as it determines the tenor of his life in a manner indifferent to him.
+
+Political economy, therefore, does not recognise the unemployed worker, the workingman, insofar as he happens to be outside this labour relationship. The rascal, swindler, beggar, the unemployed, the starving, wretched and criminal workingman—these are fig- ures who do not exist for political economy but only for other eyes, those of the doctor, the judge, the grave-digger, and bum-bailiff, etc.; such figures are spectres outside its domain. For it, therefore, the worker's needs are but the one need—to maintain him whilst he is working and insofar as may be necessary to prevent the race of labourers from [dying] out. The wages of labour have thus exactly the same significance as the maintenance and servicing of any other productive instrument, or as the consumption of capital in general, required for its reproduction with interest, like the oil which is applied to wheels to keep them turning. Wages, therefore, belong to capital's and the capitalist's necessary costs, and must not exceed the bounds of this necessity. It was therefore quite logical for the English factory owners, before the Amendment Bill of 1834,a to deduct from the wages of the worker the public charity which he was receiving out of the Poor Rate and to consider this to be an integral part of wages."
+
+Production does not simply produce man as a commodity, the human commodity, man in the role of commodity; it produces him in keeping with this role as a mentally and physically dehumanised being.— Immorality, deformity, and dulling of the workers and the capitalists.— Its product is the self-conscious and self-acting commodity the human commodity Great advance of Ricardo, Mill, etc., on Smith and Say, to declare the existence of the human being—the greater or lesser human productivity of the commodi- ty—to be indifferent and even harmful. Not how many workers are maintained by a given capital, but rather how much interest it brings in, the sum-total of the annual savings, is said to be the true purpose of production.
+
+It was likewise a great and consistent advance of modern ||XLI| English political economy, that, whilst elevating labour to the position of its sole principle, it should at the same time expound with complete clarity the inverse relation between wages and interest on capital, and the fact that the capitalist could normally only gain by pressing down
+
+[^1]: a See this volume, pp. 194-95.—Ed.
+
+
+
+wages, and vice versa. Not the defrauding of the consumer, but the capitalist and the worker taking advantage of each other, is shown to be the normal relationship.
+
+The relations of private property contain latent within them the relation of private property as labour, the relation of private property as capital, and the mutual relation of these two to one another. There is the production of human activity as labour—that is, as an activity quite alien to itself, to man and to nature, and therefore to consciousness and the expression of life — the abstract existence of man as a mere workman who may therefore daily fall from his filled void into the absolute void—into his social, and therefore actual, non-existence. On the other hand, there is the production of the object of human activity as capital—in which all the natural and social characteristic of the object is extinguished; in which private property has lost its natural and social quality (and therefore every political and social illusion, and is not associated with any apparently human relations); in which the selfsame capital remains the same in the most diverse natural and social manifestations, totally indifferent to its real content. This contradiction, driven to the limit, is of necessity the limit, the culmination, and the downfall of the whole private-property relationship.
+
+It is therefore another great achievement of modern English political economy to have declared rent of land to be the difference in the interest yielded by the worst and the best land under cultivation; to have [exposed]3 the landowner's romantic illu- sions— his alleged social importance and the identity of his interest with the interest of society, a view still maintained by Adam Smith after the Physiocrats; and to [have] anticipated and prepared the movement of the real world which will transform the landowner into an ordinary, prosaic capitalist, and thus simplify and sharpen the contradiction [between capital and labour] and hasten its resolution. Land as land, and rent as rent, have lost their distinction of rank and become insignificant capital and interest—or rather, capital and interest that signify only money.
+
+The distinction between capital and land, between profit and rent, and between both and wages, and industry, and agriculture, and immovable and movable private property — this distinction is not rooted in the nature of things, but is a historical distinction, a fixed historical moment in the formation and development of the contradiction between capital and labour. In industry, etc., as opposed to immovable landed property, is only expressed the way in which [industry] came into being and the contradiction to agriculture
+
+[^1]: a The manuscript is damaged here.—Ed.
+
+
+
+
+
+**[p. 286]**
+
+in which industry developed. This distinction only continues to exist as a special sort of work — as an essential, important and life-embracing distinction — so long as industry (town life) develops operand against landed property (aristocratic feudal life) and itself continues to bear the feudal character of its opposite in the form of monopoly, craft, guild, corporation, etc., within which labour still has a seemingly social significance, still the significance of the real community, and has not yet reached the stage of indifference to its content, of complete being-for-self,78 i. e., of abstraction from all other being, and hence has not yet become liberated capital.
+
+IIXLIII But liberated industry, industry constituted for itself as such, and liberated capital, are the necessary development of labour. The power of industry over its opposite is at once revealed in the emergence of agriculture as a real industry, while previously it left most of the work to the soil and to the slave of the soil, through whom the land cultivated itself. With the transformation of the slave into a free worker — i. e., into a hireling—the landlord himself is trans- formed into a captain of industry, into a capitalist — a transforma- tion which takes place at first through the intermediacy of the tenant farmer. The tenant farmer, however, is the landowner's representa- tive—the landowner's revealed secret: it is only through him that the landowner has his economic existence—his existence as a private proprietor — for the rent of his land only exists due to the competition between the farmers.
+
+Thus, in the person of the tenant farmer the landlord has already become in essence a common capitalist. And this must come to pass, too, in actual fact: the capitalist engaged in agriculture — the tenant — must become a landlord, or vice versa. The tenant's industrial hucksterism is the landowner's industrial hucksterism, for the being of the former postulates the being of the latter.
+
+But mindful of their contrasting origin, of their line of de- scent, the landowner knows the capitalist as his insolent, liberated, enriched slave of yesterday and sees himself as a capitalist who is threatened by him. The capitalist knows the landowner as the idle, cruel, egotistical master of yesterday; he knows that he injures him as a capitalist, but that it is to industry that he owes all his present social significance, his possessions and his pleasures; he sees in him a contradiction to free industry and to free capital — to capital independent of every natural limitation. This contradiction is extremely bitter, and each side tells the truth about the other. One need only read the attacks of immovable on movable property and vice versa to obtain a clear picture of their respective worthlessness. The landowner lays stress on the noble lineage of his property, on
+
+
+
+**[p. 287]**
+
+feudal souvenirs or reminiscences, the poetry of recollection, on his romantic disposition, on his political importance, etc.; and when he talks economics, it is only agriculture that he holds to be produc- tive. At the same time he depicts his adversary as a sly, hawking, carping, deceitful, greedy, mercenary, rebellious, heartless and spir- itless person who is estranged from the community and freely trades it away, who breeds, nourishes and cherishes competition, and with it pauperism, crime, and the dissolution of all social bonds, an extorting, pimping, servile, smooth, flattering, fleecing, dried-up rogue without honour, principles, poetry, substance, or anything else. (Amongst others see the Physiocrat Bergasse, whom Camille Desmoulins flays in his journal, Révolutions de France et de Brabant19; see von Vincke, Lancizolle, Haller, Leo, Kosegarten* and also Sismondi.)
+
+Movable property, for its part, points to the miracles of industry and progress. It is the child of modern times, whose legitimate, native-born son it is. It pities its adversary as a simpleton, unenlightened about his own nature (and in this it is completely right), who wants to replace moral capital and free labour by brute, immoral violence and serfdom. It depicts him as a Don Quixote, who under the guise of bluntness, respectability, the general interest, and stability, conceals incapacity for progress, greedy self-indulgence, selfishness, sectional interest, and evil intent. It declares him an artful monopolist; it pours cold water on his reminiscences, his poetry, and his romanticism by a historical and sarcastic enumeration of the baseness, cruelty, degradation, pros- titution, infamy, anarchy and rebellion, of which romantic castles were the workshops.
+
+|j XLIII|It claims to have obtained political freedom for everybody; to have loosed the chains which fettered civil society; to have linked together different worlds; to have created trade promoting friend- ship between the peoples; to have created pure morality and a pleasant culture; to have given the people civilised needs in place of their crude wants, and the means of satisfying them. Meanwhile,
+
+[^1]: * See on the other hand the garrulous, old-Hegelian theologian Fun*« who tells, after Herr Leo, with tears in his eyes how a slave had refused, when serfdom was abolished, to cease being the property of the gentry. See also the patriotic visions of Justus Moser, which distinguish themselves by the fact that they never for a moment []* abandon the respectable, petty-bourgeois "home-baked", ordinary, narrow hori- zon of the philistine, and which nevertheless remain pure fancy. This contradiction has given them such an appeal to the German heart.— Note by Marx.
+
+[^2]: a A few words cannot be deciphered here.—
+
+
+
+
+
+**[p. 288]**
+
+it claims, the landowner—this idle, parasitic grain-profiteer—raises the price of the people's basic necessities and so forces the capital- ist to raise wages without being able to increase productivity,3
+
+thus impeding [the growth of] the nation's annual income, the accumulation of capital, and therefore the possibility of providing work for the people and wealth for the country, eventually cancelling it, thus producing a general decline—whilst he parasitically exploits every advantage of modern civilisation without doing the least thing for it, and without even abating in the slightest his feudal prejudices. Finally, let him—for whom the cultivation of the land and the land itself exist only as a source of money, which comes to him as a present—let him just take a look at his tenant farmer and say whether he himself is not a downright, fantastic, sly scoundrel who in his heart and in actual fact has for a long time belonged to free industry and to lovely trade, however much he may protest and prattle about historical memories and ethical or political goals. Everything which he can really advance to justify himself is true only of the cultivator of the land (the capitalist and the labourers), of whom the landowner is rather the enemy. Thus he gives evidence against himself. [Movable property claims that] without capital landed property is dead, worthless matter; that its civilised victory has discovered and made human labour the source of wealth in place of the dead thing. (See Paul Louis Courier, Saint-Simon, Ganilh, Ri- cardo, Mill, Mc Culloch and Destutt de Tracy and Michel Chevalier.)
+
+The real course of development (to be inserted at this point) results in the necessary victory of the capitalist over the land- owner— that is to say, of developed over undeveloped, immature private property — just as in general, movement must triumph over immobility; open, self-conscious baseness over hidden, un- conscious baseness; cupidity over self-indulgence; the avowedly restless, adroit self-interest of enlightenment over the parochial, worldly-wise, respectable, idle and fantastic self-interest of superstition; and money over the other forms of private property.
+
+Those states which sense something of the danger attaching to fully developed free industry, to fully developed pure morality and to fully developed philanthropic trade, try, but in vain, to hold in check the capitalisation of landed property.
+
+Landed property in its distinction from capital is private proper- ty— capital—still afflicted with local and political prejudices; it is capital which has not yet extricated itself from its entanglement with the world and found the form proper to itself — capital not
+
+[^1]: "Productivity" has been used here to render Produktionskraft.—Ed.
+
+
+
+yet fully developed. It must achieve its abstract, that is, its pure, expression in the course of its cosmogony.
+
+The character of private property is expressed by labour, capital, and the relations between these two. The movement through which these constituents have to pass is:
+
+First. Unmediated or mediated unity of the two. Capital and labour are at first still united. Then, though separated and estranged, they reciprocally develop and promote each other as positive conditions.
+
+[Second.] The two in opposition, mutually excluding each other. The worker knows the capitalist as his own non-existence, and vice versa: each tries to rob the other of his existence.
+
+[Third.] Opposition of each to itself. Capital=stored-up labour=labour. As such it splits into capital itself and its interest, and this latter again into interest and profit. The capitalist is completely sacrificed. He falls into the working class, whilst the worker (but only exceptionally) becomes a capitalist. Labour as a moment of capital—its costs. Thus the wages of labour—a sacrifice of capital.
+
+Splitting of labour into labour itself and the wages of labour. The worker himself a capital, a commodity.
+
+Clash of mutual contradictions. |XLIII||
+
+[Third Manuscript]
+
+[PRIVATE PROPERTY AND LABOUR. POLITICAL ECONOMY AS A PRODUCT OF THE MOVEMENT
+
+OF PRIVATE PROPERTY]
+
+IUI Re p. XXXVIa The subjective essence of private property — pri- vate property as activity for itself,82 as subject, as person—is labour. It is therefore evident that only the political economy which acknowl- edged labour as its principle—Adam Smith—and which therefore no longer looked upon private property as a mere condition external to man—that it is this political economy which has to be regarded on the one hand as a product of the real energy and the real movement of private property (it is a movement of private property become independent for itself in consciousness—the modern industry as Self—as a product of modern industry—and on the other hand, as a force which has quickened and glorified the energy and development of modern industry and made it a power in the realm of consciousness.
+
+To this enlightened political economy, which has discov- ered— within private property — the subjective essence of wealth, the adherents of the monetary and mercantile system, who look upon private property only as an objective substance confronting men, seem therefore to be fetishists, Catholics. Engels was therefore right to call Adam Smith the Luther of Political Economy.h Just as Luther recognised religion—faith—as the substance of the external world and in consequence stood opposed to Catholic paganism — just as he superseded external religiosity by making religiosity the inner substance of man—just as he negated the priests outside the layman because he transplanted the priest into laymen's hearts, just so with
+
+[^1]: a This refers to the missing part of the second manuscript.—Ed. b Cf. Frederick Engels, "Outlines of a Critique of Political Economy" (see this volume, p. 422).—Ed.
+
+
+
+
+
+**[p. 291]**
+
+wealth: wealth as something outside man and independent of him, and therefore as something to be maintained and asserted only in an external fashion, is done away with; that is, this external, mindless ob- jectivity of wealth is done away with, with private property being incorporated in man himself and with man himself being recognised as its essence. But as a result man is brought within the orbit of private property, just as with Luther he is brought within the orbit of religion. Under the semblance of recognising man, the political economy whose principle is labour rather carries to its logical conclu- sion the denial of man, since man himself no longer stands in an external relation of tension to the external substance of private property, but has himself become this tense essence of private prop- erty. What was previously being external to oneself—man's actual externalisation—has merely become the act of externalising— the process of alienating. This political economy begins by seem- ing to acknowledge man (his independence, spontaneity, etc.); then, locating private property in man's own being, it can no longer be conditioned by the local, national or other character- istics of private property as of something existing outside itself. This political economy, consequently, displays a cosmopolitan, univer- sal energy which overthrows every restriction and bond so as to establish itself instead as the sole politics, the sole universality, the sole limit and sole bond. Hence it must throw aside this hypocrisy in the course of its further development and come out in its complete cynicism. And this it does — untroubled by all the apparent contradictions in which it becomes involved as a result of this theory — by developing the idea of labour much more one-sidedly, and therefore more sharply and more consistently, as the sole essence of wealth; by proving the implications of this theory to be anti-human in character, in contrast to the other, original approach. Finally, by dealing the death-blow to rent—that last, individual, natural mode of private property and source of wealth existing independently of the movement of labour, that expression of feudal property, an expression which has already become wholly economic in charactei and therefore incapable of resisting political economy. (The Ricardo school.) There is not merely a relative growth in the cynicism of political economy from Smith through Say to Ricardo, Mill, etc., inasmuch as the implications of industry appear more developed and more contradictory in the eyes of the last-named; these later economists also advance in a positive sense constantly and conscious- ly further than their predecessors in their estrangement from man. They do so, however, only because their science develops more consistently and truthfully. Because they make private property in its
+
+
+
+**[p. 292]**
+
+active form the subject, thus simultaneously turning man into the essence — and at the same time turning man as non-essentiality into the essence — the contradiction of reality corresponds completely to the contradictory being which they accept as their principle. Far from refuting it, the ruptured ||IIl world of industry confirms their self-ruptured principle. Their principle is, after all, the principle of this rupture.
+
+The physiocratic doctrine of Dr. Quesnay forms the transition from the mercantile system to Adam Smith. Physiocracy represents directly the decomposition of feudal property in economic terms, but it therefore just as directly represents its economic metamorphosis and restoration, save that now its language is no longer feudal but economic. All wealth is resolved into land and cultivation (agricul- ture). Land is not yet capital: it is still a special mode of its existence, the validity of which is supposed to lie in, and to derive from, its natural peculiarity. Yet land is a general natural element, whilst the mercantile system admits the existence of wealth only in the form of precious metal. Thus the object of wealth—its matter—has straight- way obtained the highest degree of universality within the bounds of nature, insofar as even as nature, it is immediate objective wealth. And land only exists for man through labour, through agriculture.
+
+Thus the subjective essence of wealth has already been trans- ferred to labour. But at the same time agriculture is the only productive labour. Hence, labour is not yet grasped in its generality and abstraction: it is still bound to a particular natural element as its matter, and it is therefore only recognised in a particular mode of existence determined by nature. It is therefore still only a specific, particular alienation of man, just as its product is likewise con- ceived nearly [as] a specific form of wealth—due more to nature than to labour itself. The land is here still recognised as a phenomenon of nature independent of man—not yet as capital, i.e., as an aspect of labour itself. Labour appears, rather, as an aspect of the land. But since the fetishism of the old external wealth, of wealth existing only as an object, has been reduced to a very simple natural element, and since its essence — even if only partially and in a particular form — has been recognised within its subjective existence, the necessary step forward has been made in revealing the general nature of wealth and hence in the raising up of labour in its total absoluteness (i.e., its abstraction) as the principle. It is argued against physiocracy that agriculture, from the economic point of view—that is to say, from the only valid point of view—does not differ from any other industry; and that the essence of wealth, therefore, is not a specific form of labour bound
+
+
+
+**[p. 293]**
+
+Physiocracy denies particular, external, merely objective wealth by declaring labour to be the essence of wealth. But for physiocracy labour is at first only the subjective essence of landed property. (It takes its departure from the type of property which historically appears as the dominant and acknowledged type.) It turns only landed property into alienated man. It annuls its feudal character by declaring industry (agriculture) as its essence. But it disavows the world of industry and acknowledges the feudal system by declar- ing agriculture to be the only industry.
+
+It is clear that if the subjective essence of industry is now grasped (of industry in opposition to landed property, i.e., of industry constituting itself as industry), this essence includes within itself its opposite. For just as industry incorporates annulled landed prop- erty, the subjective essence of industry at the same time incorpo- rates the subjective essence of landed property.
+
+Just as landed property is the first form of private property, with industry at first confronting it historically merely as a special kind of property — or, rather, as landed property's liberated slave — so this process repeats itself in the scientific analysis of the subjective essence of private property, labour. Labour appears at first only as agricultural labour; but then asserts itself as labour in general.
+
+||III| All wealth has become industrial wealth, the wealth of labour; and industry is accomplished labour, just as the factory system is the perfected essence of industry, that is of labour, and just as industrial capital is the accomplished objective form of private property.
+
+We can now see how it is only at this point that private property can complete its dominion over man and become, in its most general form, a world-historical power.
+
+[PRIVATE PROPERTY AND COMMUNISM]
+
+Re p. XXXIX." The antithesis between lack of property and property, so long as it is not comprehended as the antithesis of labour and capital, still remains an indifferent antithesis, not
+
+[^1]: a This refers to the missing part of the second manuscript.— Ed.
+
+
+
+
+
+**[p. 294]**
+
+Re the same page. The transcendence of self-estrangement follows the same course as self-estrangement. Private property is first considered only in its objective aspect—but nevertheless with labour as its essence. Its form of existence is therefore capital, which is to be annulled "as such" (Proudhon). Or a particular form of labour—labour levelled down, fragmented, and therefore unfree—is conceived as the source of private property's pernicious- ness and of its existence in estrangement from men. For instance, Fourier, who, like the Physiocrats, also conceives agricultural labour to be at least the exemplary type, whereas Saint-Simon declares in contrast that industrial labour as such is the essence, and according- ly aspires to the exclusive rule of the industrialists and the improvement of the workers' condition. Finally, communism is the positive expression of annulled private property — at first as univer- sal private property. By embracing this relation as a whole, communism is:
+
+(1) In its first form only a generalisation and consummation of it [of this relation]. As such it appears in a twofold form: on the one hand, the dominion of material property bulks so large that it wants to destroy everything which is not capable of being possessed by all as private property. It wants to disregard talent, etc., in an arbitrary manner. For it the sole purpose of life and existence is direct, physical possession. The category of the worker is not done away with, but extended to all men. The relationship of private property persists as the relationship of the community to the world of things. Finally, this movement of opposing universal private property to private property finds expression in the brutish form of opposing to marriage (certainly a form of exclusive private property) the community of women, in which a woman becomes a piece of communal and common property. It may be said that this idea of the community of women gives away the secret of this as yet completely crude and thoughtless communism.83 Just as
+
+
+
+**[p. 295]**
+
+woman passes from marriage to general prostitution,* so the entire world of wealth (that is, of man's objective substance) passes from the relationship of exclusive marriage with the owner of private property to a state of universal prostitution with the community. This type of communism—since it negates the person- ality of man in every sphere—is but the logical expression of private property, which is this negation. General envy constituting itself as a power is the disguise in which greed re-establishes itself and satisfies itself, only in another way. The thought of every piece of private property as such is at least turned against wealthier private property in the form of envy and the urge to reduce things to a common level, so that this envy and urge even constitute the essence of competition. Crude communism* is only the culmination of this envy and of this levelling-down proceeding from the preconceived minimum. It has a definite, limited, standard. How little this annulment of private property is really an appro- priation is in fact proved by the abstract negation of the entire world of culture and civilisation, the regression to the unnatural Ill Vt simplicity of the poor and crude man who has few needs and who has not only failed to go beyond private property, but has not yet even reached it.
+
+The community is only a community of labour, and equality of wages paid out by communal capital—by the community as the universal capitalist. Both sides of the relationship are raised to an imagined universality—labour as the category in which every person is placed, and capital as the acknowledged universality and power of the community.
+
+In the approach to woman as the spoil and handmaid of communal lust is expressed the infinite degradation in which man exists for himself, for the secret of this approach has its unambigu- ous, decisive, plain and undisguised expression in the relation of man to woman and in the manner in which the direct and natural species-relationship is conceived. The direct, natural, and neces- sary relation of person to person is the relation of man to woman. In this natural species-relationship man's relation to nature is im- mediately his relation to man, just as his relation to man is immediately his relation to nature—his own natural destination. In
+
+[^1]: * Prostitution is only a specific expression of the general prostitution of the labourer, and since it is a relationship in which falls not the prostitute alone, but also the one who prostitutes—and the latter's abomination is still greater—the capitalist, etc., also comes under this head.—Note by Marx.
+
+[^2]: a The manuscript has "Kommunist".—Ed.
+
+
+
+
+
+**[p. 296]**
+
+The first positive annulment of private property—crude communism—is thus merely a manifestation of the vileness of private property, which wants to set itself up as the positive community system.
+
+(2) Communism (a) still political in nature—democratic or despotic; ((£) with the abolition of the state, yet still incomplete, and being still affected by private property, i. e., by the estrange- ment of man. In both forms communism already is aware of being reintegration or return of man to himself, the transcen- dence of human self-estrangement; but since it has not yet grasped the positive essence of private property, and just as little the human nature of need, it remains captive to it and infected by it. It has, indeed, grasped its concept, but not its essence.
+
+(3) Communism as the positive transcendence of private property^ human self-estrangement, and therefore as the real appropriation of the human essence by and for man; communism therefore as the complete return of man to himself as a social (i. e., human) being—a return accomplished consciously and embracing the entire wealth of previous development. This communism, as fully developed naturalism, equals humanism, and as fully developed humanism equals naturalism; it is the genuine resolution of the conflict between man and nature and between man and man — the true resolution of the strife between existence and essence, between objectification and self-confirmation, between freedom and necessity, between the individual and the species. Communism
+
+
+
+**[p. 297]**
+
+is the riddle of history solved, and it knows itself to be this solution.
+
+IIVl The entire movement of history, just as its [communism's] actual act of genesis—the birth act of its empirical existence—is, therefore, also for its thinking consciousness the comprehended and known process of its becoming. Whereas the still immature commun- ism seeks an historical proof for itself—a proof in the realm of what already exists—among disconnected historical phenomena opposed to private property, tearing single phases from the historical process and focusing attention on them as proofs of its historical pedigree (a hobby-horse ridden hard especially by Cabet, Villegardelle, etc.). By so doing it simply makes clear that by far the greater part of this process contradicts its own claim, and that, if it has ever existed, precisely its being in the past refutes its pretension to reality.
+
+It is easy to see that the entire revolutionary movement necessarily finds both its empirical and its theoretical basis in the movement of private property—more precisely, in that of the economy.
+
+This material, immediately perceptible private property is the material perceptible expression of estranged human life. Its move- ment—production and consumption—is the perceptible revelation of the movement of all production until now, i. e., the realisation or the reality of man. Religion, family, state, law, morality, science, art, etc., are only particular modes of production, and fall under its general law. The positive transcendence of private property, as the appropriation of human life, is therefore the positive transcen- dence of all estrangement—that is to say, the return of man from religion, family, state, etc., to his human, i. e., social, existence. Religious estrangement as such occurs only in the realm of consciousness, of man's inner life, but economic estrangement is that of real life; its transcendence therefore embraces both aspects. It is evident that the initial stage of the movement amongst the various peoples depends on whether the true recognised life of the people manifests itself more in consciousness or in the external world — is more ideal or real. Communism begins from the outset (Owen) with atheism; but atheism is at first far from being communism; indeed, that atheism is still mostly an abstraction.
+
+The philanthropy of atheism is therefore at first only philosophi- cal, abstract philanthropy, and that of communism is at once real and directly bent on action.
+
+We have seen how on the assumption of positively annulled private property man produces man—himself and the other man:
+
+[^1]: I 1—482
+
+
+
+
+
+**[p. 298]**
+
+IIVII Social activity and social enjoyment exist by no means only in the form of some directly communal activity and directly communal enjoyment, although communal activity and communal enjoyment—i. e., activity and enjoyment which are manifested and affirmed in actual direct association with other men—will occur wherever such a direct expression of sociability stems from the true character of the activity's content and is appropriate to the nature of the enjoyment.
+
+But also when I am active scientifically, etc.—an activity which I can seldom perform in direct community with others—then my activity is social, because I perform it as a man. Not only is the material of my activity given to me as a social product (as is even the language in which the thinker is active): my own existence is social activity, and therefore that which I make of myself, I make of myself for society and with the consciousness of myself as a social being.
+
+My general consciousness is only the theoretical shape of that of which the living shape is the real community, the social fabric, although at the present day general consciousness is an abstraction from real life and as such confronts it with hostility. The activity of
+
+[^1]: a This word is crossed out in the manuscript.—Ed.
+
+
+
+
+
+**[p. 299]**
+
+my general consciousness, as an activity, is therefore also my theoretical existence as a social being.
+
+Above all we must avoid postulating "society" again as an abstraction vis-à-vis the individual. The individual is the social being. His manifestations of life—even if they may not appear in the direct form of communal manifestations of life carried out in association with others—are therefore an expression and confir- mation of social life. Man's individual and species-life are not different, however much—and this is inevitable—the mode of existence of the individual is a more particular or more general mode of the life of the species, or the life of the species is a more particular or more general individual life.
+
+In his consciousness of species man confirms his real social life and simply repeats his real existence in thought, just as conversely the being of the species confirms itself in species consciousness and exists for itself in its generality as a thinking being.
+
+Man, much as he may therefore be a particular individual (and it is precisely his particularity which makes him an individual, and a real individual social being), is just as much the totality—the ideal totality—the subjective existence of imagined and experienced society for itself; just as he exists also in the real world both as awareness and real enjoyment of social existence, and as a totality of human manifestation of life.
+
+Thinking and being are thus certainly distinct, but at the same time they are in unity with each other.
+
+Death seems to be a harsh victory of the species over the particular individual and to contradict their unity. But the particu- lar individual is only a particular species-being, and as such mortal.
+
+((4)a Just as private property is only the perceptible expression of the fact that man becomes objective for himself and at the same time becomes to himself a strange and inhuman object; just as it expresses the fact that the manifestation of his life is the alienation of his life, that his realisation is his loss of reality, is an alien reality: so, the positive transcendence of private property—i. e., the perceptible appropriation for and by man of the human essence and of human life, of objective man, of human achieve- ments—should not be conceived merely in the sense of immediate, one-sided enjoyment, merely in the sense of possessing, of having. Man appropriates his comprehensive essence in a comprehensive manner, that is to say, as a whole man. Each of his human relations to the world—seeing, hearing, smelling, tasting, feeling, thinking,
+
+[^1]: a In the manuscript: "5".—Ed.
+
+[^2]: 11*
+
+
+
+
+
+**[p. 300]**
+
+Private property has made us so stupid and one-sided that an object is only ours when we have it—when it exists for us as capital, or when it is directly possessed, eaten, drunk, worn, inhabited, etc.,—in short, when it is used by us. Although private property itself again conceives all these direct realisations of possession only as means of life, and the life which they serve as means is the life of private property—labour and conversion into capital.
+
+In the place of all physical and mental senses there has therefore come the sheer estrangement of all these senses, the sense of having. The human being had to be reduced to this absolute poverty in order that he might yield his inner wealth to the outer world. (On the category of "having", see Hess* in the Einundzwanzig Bogen.)
+
+The abolition of private property is therefore the complete emancipation of all human senses and qualities, but it is this emancipation precisely because these senses and attributes have become, subjectively and objectively, human. The eye has become a human eye, just as its object has become a social, human object—an object made by man for man. The senses have therefore become directly in their practice theoreticians. They relate themselves to the thing for the sake of the thing, but the thing itself is an objective human relation to itself and to man,** and vice versa. Need or enjoyment has consequently lost its egotistical nature, and nature has iost its mere utility by use becoming human use.
+
+In the same way, the senses and enjoyment of other men have become my own appropriation. Besides these direct organs, there- fore, social organs develop in the form of society; thus, for
+
+[^1]: * For this reason it is just as highly varied as the determinations of human essence and activities.—Note by Marx.
+
+[^2]: ** In practice I can relate myself to a thing humanly only if the thing relates itself humanly to the human being.—Note by Marx.
+
+[^3]: a Moses Hess, "Philosophie der Tat".—Ed.
+
+
+
+
+
+**[p. 301]**
+
+instance, activity in direct association with others, etc., has become an organ for expressing my own life, and a mode of appropriating human life.
+
+It is obvious that the human eye enjoys things in a way different from the crude, non-human eye; the human ear different from the crude ear, etc.
+
+We have seen that man does not lose himself in his object only when the object becomes for him a human object or objective man. This is possible only when the object becomes for him a social object, he himself for himself a social being, just as society becomes a being for him in this object.
+
+On the one hand, therefore, it is only when the objective world becomes everywhere for man in society the world of man's essential powers—human reality, and for that reason the reality of his own essential powers—that all objects become for him the objectifi- cation of himself, become objects which confirm and realise his individuality, become his objects: that is, man himself becomes the object. The manner in which they become his depends on the nature of the objects and on the nature of the essential power corresponding to it; for it is precisely the determinate nature of this relationship which shapes the particular, real mode of affirmation. To the eye an object comes to be other than it is to the ear, and the object of the eye is another object than the object of the ear. The specific character of each essential power is precisely its specific essence, and therefore also the specific mode of its objectification, of its objectively actual, living being. Thus man is affirmed in the objective world not only in the act of thinking, ||VIII| but with all his senses.
+
+On the other hand, let us look at this in its subjective aspect. Just as only music awakens in man the sense of music, and just as the most beautiful music has no sense for the unmusical ear—is [no] object for it, because my object can only be the confirmation of one of my essential powers—it can therefore only exist for me insofar as my essential power exists for itself as a subjective capacity; because the meaning of an object for me goes only'so far as my sense goes (has only a meaning for a sense corresponding to that object)—for this reason the senses of the social man differ from those of the non-social man. Only through the objectively un- folded richness of man's essential being is the richness of subjec- tive human sensibility (a musical ear, an eye for beauty of form—in short, senses capable of human gratification, senses affirming themselves as essential powers of man) either cultivated or brought into being. For not only the five senses but also the
+
+
+
+**[p. 302]**
+
+so-called mental senses, the practical senses (will, love, etc.), in a word, human sense, the human nature of the senses, comes to be by virtue of its object, by virtue of humanised nature. The forming of the five senses is a labour of the entire history of the world down to the present. The sense caught up in crude practical need has only a restricted sense.) For the starving man, it is not the human form of food that exists, but only its abstract existence as food. It could just as well be there in its crudest form, and it would be impossible to say wherein this feeding activity differs from that of animals. The eare-burdened, poverty-stricken man has no sense for the finest play; the dealer in minerals sees only the commercial value but not the beauty and the specific character of the mineral: he has no mineralogical sense. Thus, the objectifica- tion of the human essence, both in its theoretical and practical aspects, is required to make man's' sense human, as well as to create the human sense corresponding to the entire wealth of human and natural substance.
+
+<Just as through the movement of private property, of its wealth as well as its poverty—of its material and spiritual wealth and poverty—the budding society finds at hand all the material for this development, so established society produces man in this entire richness of his being—produces the rich man profoundly endowed with all the senses—as its enduring reality.)
+
+We see how subjectivity and objectivity, spirituality and material- ity, activity and suffering, lose their antithetical character, and thus their existence as such antitheses only within the framework of society; (we see how the resolution of the theoretical antitheses is only possible in a practical way, by virtue of the practical energy of man. Their resolution is therefore by no means merely a problem of understanding, but a real problem of life, which philosophy could not solve precisely because it conceived this problem as merely a theoretical one.
+
+We see how the history of industry and the established objective existence of industry are the open book of man's essential powers, the perceptibly existing human psychology. Hitherto this was not con- ceived in its connection with man's essential being, but only in an external relation of utility, because, moving in the realm of estrangement, people could only think of man's general mode of being—religion or history in its abstract-general character as politics, art, literature, etc.—IIIXI as the reality of man's essential powers and man's species-activity. We have before us the objectified essential powers of man in the form of sensuous, alien, useful objects, in the form of estrangement, displayed in ordinary material industry
+
+(which can be conceived either as a part of that general move- ment, or that movement can be conceived as a particular part of industry, since all human activity hitherto has been labour—that is, industry—activity estranged from itself).
+
+A psychology for which this book, the part of history existing in the most perceptible and accessible form, remains a closed book, cannot become a genuine, comprehensive and real science.) What indeed are we to think of a science which airily abstracts from this large part of human labour and which fails to feel its own incompleteness, while such a wealth of human endeavour, unfolded before it, means nothing more to it than, perhaps, "what can be expressed in one word—"need", "vulgar need"}
+
+The natural sciences have developed an enormous activity and have accumulated an ever-growing mass of material. Philosophy, however, has remained just as alien to them as they remain to philosophy. Their momentary unity was only a chimerical illusion. The will was there, but the power was lacking. Historiography itself pays regard to natural science only occasionally, as a factor of enlightenment, utility, and of some special great discoveries. But natural science has invaded and transformed human life all the more practically through the medium of industry; and has pre- pared human emancipation, although its immediate effect had to be the furthering of the dehumanisation of man. Industry is the actual, historical relationship of nature, and therefore of natural science, to man. If, therefore, industry is conceived as the exoteric revelation of man's essential powers, we also gain an understanding of the human essence of nature or the natural essence of man. In consequence, natural science will lose its abstractly material—or rather, its idealistic—tendency, and will become the basis of human science, as it has already become—albeit in an estranged form—the basis of actual human life, and to assume one basis for life and a different basis for science is as a matter of course a lie. <The nature which develops in human history—the genesis of human society—is man's real nature; hence nature as it develops through industry, even though in an estranged form, is true anthropobgical nature.)
+
+Sense-perception (see Feuerbach) must be the basis of all science. Only when it proceeds from sense-perception in the twofold form of sensuous consciousness and sensuous need—that is, only when science proceeds from nature—is it true science. All history is the history of preparing and developing "man" to become the object of sensuous consciousness, and turning the requirements of "man as man" into his needs. History itself is a real part of natural
+
+
+
+**[p. 304]**
+
+history—of nature developing into man. Natural science will in time incorporate into itself the science of man, just as the science of man will incorporate into itself natural science: there will be one science.
+
+II X| Man is the immediate object of natural science; for immediate, sensuous nature for man is, immediately, human sensu- ousness (the expressions are identical)—presented immediately in the form of the other man sensuously present for him. Indeed, his own sense-perception first exists as human sensuousness for himself through the other man. But nature is the immediate object of the science of man: the first object of man—man—is nature, sensuousness; and the particular human sensuous essential powers can only find their self-understanding in the science of the natural world in general, just as they can find their objective realisation only in natural objects. The element of thought itself—the element of thought's living expression—language—is of a sensu- ous nature. The social reality of nature, and human natural science, or the natural science of man, are identical terms.
+
+<It will be seen how in place of the wealth and poverty of political economy come the rich human being and the rich human need. The rich human being is simultaneously the human being in need of a totality of human manifestations of life—the man in whom his own realisation exists as an inner necessity, as need. Not only wealth, but likewise the poverty of man—under the assumption of socialism85—receives in equal measure a human and therefore social significance. Poverty is the passive bond which causes the human being to experience the need of the greatest wealth—the other human being. The dominion of the objective being in me, the sensuous outburst of my life activity, is passion, which thus becomes here the activity of my being.)
+
+(5) A being only considers himself independent when he stands on his own feet; and he only stands on his own feet when he owes his existence to himself. A man who lives by the grace of another regards himself as a dependent being. But I live completely by the grace of another if I owe him not only the maintenance of my life, but if he has, moreover, created my life—if he is the source of my life. When it is not of my own creation, my life has necessarily a source of this kind outside of it. The Creation is therefore an idea very difficult to dislodge from popular consciousness. The fact that nature and man exist on their own account is incomprehensible to it, because it contradicts everything tangible in practical life.
+
+The creation of the earth has received a mighty blow from geognosy— i. e., from the science which presents the formation of the
+
+earth, the development of the earth, as a process, as a self-genera- tion. Generatio aequivoca is the only practical refutation of the theory of creation.86
+
+Now it is certainly easy to say to the single individual what Aristotle has already said: You have been begotten by your father and your mother; therefore in you the mating of two human beings—a species-act of human beings—has produced the human being. You see, therefore, that even physically man owes his existence to man. Therefore you must not only keep sight of the one aspect—the infinite progression which leads you further to inquire: Who begot my father? Who his grandfather? etc. You must also hold on to the circular movement sensuously perceptible in that progress by which man repeats himself in procreation, man thus always remaining the subject. You will reply, however: I grant you this circular movement; now grant me the progress which drives me ever further until I ask: Who begot the first man, and nature as a whole? I can only answer you: Your question is itself a product of abstraction. Ask yourself how you arrived at that question. Ask yourself whether your question is not posed from a standpoint to which I cannot reply, because it is wrongly put. Ask yourself whether that progress as such exists for a reasonable mind. When you ask about the creation of nature and man, you are abstracting, in so doing, from man and nature. You postulate them as non-existent, and yet you want me to prove them to you as existing. Now I say to you: Give up your abstraction and you will also give up your question. Or if you want to hold on to your abstraction, then be consistent, and if you think of man and nature as non-existent, ||XI| then think of yourself as non-existent, for you too are surely nature and man. Don't think, don't ask me, for as soon as you think and ask, your abstraction from the existence of nature and man has no meaning. Or are you such an egotist that you conceive everything as nothing, and yet want yourself to exist?
+
+You can reply: I do not want to postulate the nothingness of nature, etc. I ask you about its genesis, just as I ask the anatomist about.the formation of bones, etc.
+
+But since for the socialist man the entire so-called history of the world is nothing but the creation of man through human labour, nothing but the emergence of nature for man, so he has the visible, irrefutable proof of his birth through himself, of his genesis. Since the real existence of man and nature has become evident in practice, through sense experience, because man has thus become evident for man as the being of nature, and nature for man as the being of man, the question about an alien being, about a being above nature and
+
+
+
+**[p. 306]**
+
+man—a question which implies the admission of the unreality of nature and of man—has become impossible in practice. Atheism, as the denial of this unreality, has no longer any meaning, for atheism is a negation of God, and postulates the existence of man through this negation; but socialism as socialism no longer stands in any need of such a mediation. It proceeds from the theoretically and practically sensuous consciousness of man and of nature as the essence. Socialism is man's positive self-consciousness, no longer mediated through the abolition of religion, just as real life is man's positive reality, no longer mediated through the abolition of private property, through commu- nism. Communism is the position as the negation of the negation, and is hence the actual phase necessary for the next stage of histor- ical development in the process of human emancipation and rehabilitation. Communism is the necessary form and the dynamic principle of the immediate future, but communism as such is not the goal of human development, the form of human society.87 IXIII
+
+[HUMAN REQUIREMENTS AND DIVISION
+
+OF LABOUR UNDER THE RULE
+
+OF PRIVATE PROPERTY]
+
+[[XIVj88 (7) We have seen what significance, given socialism, the wealth of human needs acquires, and what significance, therefore, both a new mode of production and a new object of production obtain: a new manifestation of the forces of human nature and a new enrichment of human nature. Under private property their signifi- cance is reversed: every person speculates on creating a new need in another, so as to drive him to fresh sacrifice, to place him in a new dependence and to seduce him into a new mode of enjoyment and therefore economic ruin. Each tries to establish over the other an alien power, so as thereby to find satisfaction of his own selfish need. The increase in the quantity of objects is therefore accompanied by an extension of the realm of the alien powers to which man is subjected, and every new product represents a new potentiality of mutual swindling and mutual plundering. Man becomes ever poorer as man, his need for money becomes ever greater if he wants to master the hostile power. The power of his money declines in inverse proportion to the increase in the volume of production: that is, his neediness grows as the power of money increases.
+
+
+
+**[p. 307]**
+
+The need for money is therefore the true need produced by the economic system, and it is the only need which the latter produces. The quantity of money becomes to an ever greater degree its sole effective quality. Just as it reduces everything to its abstract form, so it reduces itself in the course of. its own movement to quantitative being. Excess and intemperance come to be its true norm.
+
+Subjectively, this appears partly in the fact that the extension of products and needs becomes a contriving and ever-calculating subservience to inhuman, sophisticated, unnatural and imaginary appetites. Private property does not know how to change crude need into human need. Its idealism is fantasy, caprice and whim; and no eunuch flatters his despot more basely or uses more despicable means to stimulate his dulled capacity for pleasure in order to sneak a favour for himself than does the industrial eunuch—the producer—in order to sneak for himself a few pieces of silver, in order to charm the golden birds out of the pockets of his dearly beloved neighbours in Christ. He puts himself at the service of the other's most depraved fancies, plays the pimp between him and his need, excites in him morbid appetites, lies in wait for each of his weaknesses—all so that he can then demand the cash for this service of love. (Every product is a bait with which to seduce away the other's very being, his money; every real and possible need is a weakness which will lead the fly to the glue-pot. General exploitation of communal human nature, just as every imperfection in man, is a bond with heaven—an avenue giving the priest access to his heart; every need is an opportunity to approach one's neighbour under the guise of the utmost amiability and to say to him: Dear friend, I give you what you need, but you know the conditio sine qua non; you know the ink in which you have to sign yourself over to me; in providing for your pleasure, I fleece you.)
+
+This estrangement manifests itself in part in that the sophistication of needs and of the means [of their satisfaction] on the one side produces a bestial barbarisation, a complete, crude, abstract simplicity of need, on the other; or rather in that it merely reproduces itself in its opposite. Even the need for fresh air ceases to be a need for the worker. Man returns to a cave dwelling, which is now, however, contaminated with the pestilential breath of civilisa- tion, and which he continues to occupy only precariously, it being for him an alien habitation which can be withdrawn from him any day—a place from which, if he does IIXVI not pay, he can be thrown out any day. For this mortuary he has to pay. A dwelling in the light, which Prometheus in Aeschylus designated as one of the greatest boons, by means of which he made the savage into a human
+
+
+
+**[p. 308]**
+
+being,3 ceases to exist for the worker. Light, air, etc.—the simplest animal cleanliness—ceases to be a need for man. Filth, this stagnation and putrefaction of man—the sewage of civilisation (speaking quite literally)—comes to be the element of life for him. Utter, unnatural depravation, putrefied nature, comes to be his life-element. None of his senses exist any longer, and [each has ceased to function] not only in its human fashion, but in an inhuman fashion, so that it does not exist even in an animal fashion. The crudest methods (and instruments) of human labour are coming back: the treadmill of the Roman slaves, for instance, is the means of production, the means of existence, of many English workers. It is not only that man has no human needs—even his animal needs cease to exist. The Irishman no longer knows any need now but the need to eat, and indeed only the need to eat potatoes—and scabby potatoes at that, the worst kind of potatoes. But in each of their industrial towns England and France have already a little Ireland. The savage and the animal have at least the need to hunt, to roam, etc.—the need of companionship. The simplification of the machine, of labour is used to make a worker out of the human being still in the making, the completely im- mature human being, the child—whilst the worker has become a neglected child. The machine accommodates itself to the weakness of the human being in order to make the weak human being into a machine.
+
+(How the multiplication of needs and of the means [of their satisfaction] breeds the absence of needs and of means is demon- strated by the political economist (and by the capitalist: in general it is always empirical businessmen we are talking about when we refer to political economists, [who represent] their scientific creed and form of existence) as follows:
+
+(1) By reducing the worker's need to the barest and most miserable level of physical subsistence, and by reducing his activity to the most abstract mechanical movement; thus he says: Man has no other need either of activity or of enjoyment. For he declares that this life, too, is human life and existence.
+
+(2) By counting the most meagre form of life (existence) as the standard, indeed, as the general standard—general because it is applicable to the mass of men. He turns the worker into an insensible being lacking all needs, just as he changes his activity into a pure abstraction from all activity. To him, therefore, every luxury of the worker seems to be reprehensible, and everything that goes beyond the most abstract need—be it in the realm of passive enjoyment, or a
+
+[^1]: a Aeschylus, Prometheus Bound.— Ed.
+
+
+
+
+
+**[p. 309]**
+
+manifestation of activity—seems to him a luxury. Political economy, this science of wealth, is therefore simultaneously the science of renunciation, of want, of saving—and it actually reaches the point where it spares man the need of either fresh air or physical exercise. This science of marvellous industry is simultaneously the science of asceticism, and its true ideal is the ascetic but extortionate miser and the ascetic but productive slave. Its moral ideal is the worker who takes part of his wages to the savings-bank, and it has even found ready-made a servile art which embodies this pet idea: it has been presented, bathed in sentimentality, on the stage. Thus political economy—de- spite its wordly and voluptuous appearance—is a true moral science, the most moral of all the sciences. Self-renunciation, the renunciation of life and of all human needs, is its principal thesis. The less you eat, drink and buy books; the less you go to the theatre, the dance hall, the public house; the less you think, love, theorise, sing, paint, fence, etc., the more you save—the greater becomes your treasure which neither moths nor rust will devour — your- capital. The less you are, the less you express your own life, the more you have, i.e., the greater is your alienated life, the greater is the store of your estranged being. Everything |[XVI) which the political economist takes from you in life and in humanity, he replaces for you in money and in wealth; and all the things which you cannot do, your money can do. It can eat and drink, go to the dance hall and the theatre; it can travel, it can appropriate art, learning, the treasures of the past, political power—all this it can appropriate for you—it can buy all this: it is true endowment. Yet being all this, it wants to do nothing but create itself, buy itself; for everything else is after all its servant, and when I have the master I have the servant and do not need his servant. All passions and all activity must therefore be submerged in avarice. The worker may only have enough for him to want to live, and may only want to live in order to have that. >
+
+It is true that a controversy now arises in the field of political economy. The one side (Lauderdale, Malthus, etc.) recommends luxury and execrates thrift. The other (Say, Ricardo, etc.) recom- mends thrift and execrates luxury. But the former admits that it wants luxury in order to produce labour (i. e., absolute thrift); and the latter admits that it recommends thrift in order to produce wealth (i. e., luxury). The Lauderdale-Malthus school has the romantic notion that avarice alone ought not to determine the consumption of the rich, and it contradicts its own laws in advancing extravagance as a direct means of enrichment. Against it, therefore, the other side very earnestly and circumstantially proves
+
+
+
+**[p. 310]**
+
+that I do not increase but reduce my possessions by being extrava- gant. The Say-Ricardo school is hypocritical in not admitting that it is precisely whim and caprice which determine production. It forgets the "refined needs"; it forgets that there would be no production without consumption; it forgets that as a result of competition production can only become more extensive and luxurious. It forgets that, according to its views, a thing's value is determined by use, and that use is determined by fashion. It wishes to see only "useful things" produced, but it forgets that production of too many useful things produces too large a useless population. Both sides forget that extravagance and thrift, luxury and privation, wealth and poverty are equal.
+
+And you must not only stint the gratification of your immediate senses, as by stinting yourself of food, etc.: you must also spare yourself all sharing of general interests, all sympathy, all trust, etc., if you want to be economical, if you do not want to be ruined by illusions.
+
+( You must make everything that is yours saleable, i. e., useful. If I ask the political economist: Do I obey economic laws if I extract money by offering my body for sale, by surrendering it to another's lust? (The factory workers in France call the prostitution of their wives and daughters the nth working hour, which is literally correct.)—Or am I not acting in keeping with political economy if I sell my friend to the Moroccans? (And the direct sale of men in the form of a trade in conscripts, etc., takes place in all civilised countries.)—Then the political economist replies to me: You do not transgress my laws; but see what Cousin Ethics and Cousin Religion have to say about it. My political economic ethics and religion have nothing to reproach you with, but—But whom am I now to believe, political economy or ethics?—The ethics of political economy is acquisition, work, thrift, sobriety—but political economy promises to satisfy my needs.—The political economy of ethics is the opulence of a good conscience, of virtue, etc.; but how can I live virtuously if I do not live? And how can I have a good conscience if I do not know anything? It stems from the very nature of estrangement that each sphere applies to me a different and opposite yardstick—ethics one and political economy another; for each is a specific estrangement of man and) II XVIII focuses attention on a particular field of estranged essential activity, and each stands in an estranged relation to the other. Thus M. Michel Chevalier reproaches Ricardo with having ignored ethics.3 But
+
+[^1]: Cf. Michel Chevalier, Des intérêts matériels en France.—Ed.
+
+
+
+
+
+**[p. 311]**
+
+Ricardo is allowing political economy to speak its own language, and if it does not speak ethically, this is not Ricardo's fault. M. Chevalier takes no account of political economy insofar as he moralises, but he really and necessarily ignores ethics insofar as he practises political economy. The relationship of political economy to ethics, if it is other than an arbitrary, contin- gent and therefore unfounded and unscientific relationship, if it is not being posited for the sake of appearance but is meant to be essential, can only be the relationship of the laws of political economy to ethics. If there is no such connection, or if the contrary is rather the case, can Ricardo help it? Moreover, the opposition between political economy and ethics is only an apparent opposition and just as much no opposition as it is an opposition. All that happens is that political economy expresses moral laws in its own way.
+
+< Frugality as the principle of political economy is most brilliantly shown in its theory of population. There are too many people. Even the existence of men is a pure luxury; and if the worker is "ethical", he will be sparing in procreation. (Mill suggests public acclaim for those who prove themselves continent in their sexual relations, and public rebuke for those who sin against such barrenness of marriage3 Is this not ethics, the teaching of asceticism?) The production of people appears as public destitu- tion.)
+
+The meaning which production has in relation to the rich is seen revealed in the meaning which it has for the poor. Looking upwards the manifestation is always refined, veiled, ambigu- ous— outward appearance; downwards, it is rough, straightfor- ward, frank — the real thing. The worker's crude need is a far greater source of gain than the refined need of the rich. The cellar dwellings in London bring more to those who let them than do the palaces; that is to say, with reference to the landlord they constitute greater wealth, and thus (to speak the language of political economy) greater social wealth.
+
+Industry speculates on the refinement of needs, it speculates however just as much on their crudeness, but on their artificially produced crudeness, whose true enjoyment, therefore, is self- stupefaction— this illusory satisfaction of need — this civilisation contained within the crude barbarism of need. The English gin
+
+[^1]: a James Mill, Elements of Political Economy, London, 1821, p. 44 (Marx quotes from the French edition, Elément d'économie politique. Trad. par. J. T. Parisot, Paris, 1823. p. 59).—Ed.
+
+
+
+
+
+**[p. 312]**
+
+shops are therefore the symbolical representations of private property. Their luxury reveals the true relation of industrial luxury and wealth to man. They are therefore rightly the only Sunday pleasures of the people which the English police treats at least mildly. |XVII11
+
+11XVIII |89 We have already seen how the political economist establishes the unity of labour and capital in a variety of ways: (1) Capital is accumulated labour. (2) The purpose of capital within production—partly, reproduction of capital with profit, partly, capital as raw material (material of labour), and partly, as an automatically working instrument (the machine is capital directly equated with labour)—is productive labour. (3) The worker is a capital. (4) Wages belong to costs of capital. (5) In relation to the worker, labour is the reproduction of his life-capital. (6) In relation to the capitalist, labour is an aspect of his capital's activity.
+
+Finally, (7) the political economist postulates the original unity of capital and labour as the unity of the capitalist and the worker; this is the original state of paradise. The way in which these two aspects, IIXIX | as two persons, confront each other is for the political economist an accidental event, and hence only to be explained by reference to external factors. (See Mill.3)
+
+The nations which are still dazzled by the sensuous glitter of precious metals, and are therefore still fetish-worshippers of metal money, are not yet fully developed money-nations. Contrast of France and England.
+
+The extent to which the solution of theoretical riddles is the task of practice and effected through practice, the extent to which true practice is the condrtion of a real and positive theory, is shown, for example, in fetishism. The sensuous consciousness of the fetish-worshipper is different from that of the Greek, because his sensuous existence is different. The abstract enmity between sense and spirit is necessary so long as the human feeling for nature, the human sense of nature, and therefore also the natural sense of man, are not yet produced by man's own labour.
+
+Equality is nothing but a translation of the German "Ich = Ich"b90 into the French, i.e., political, form. Equality as the basis of communism is its political justification, and it is the same as when the German justifies it by conceiving man as universal self-consciousness. Naturally, the transcendence of the estrangement
+
+[^1]: a James Mill, Elements of Political Economy, p. 45 sqq. (Parisot, p. 60 sqq.).— Ed. The English equivalent of ich is "I".— Ed.
+
+
+
+always proceeds from that form of the estrangement which is the dominant power: in Germany, self-consciousness; in France, equality, because it is politics; in England, real, material, practical need taking only itself as its standard. It is from this standpoint that Proudhon is to be criticised and appreciated.
+
+If we characterise communism itself because of its character as negation of the negation, as the appropriation of the human essence through the intermediary of the negation of private property—as being not yet the true, self-originating position but rather a position originating from private property []" in old-Ger- man fashion—in the way of Hegel's phenomenology—[] finished as a conquered moment and [] one might be satisfied by it, in his consciousness [] of the human being only by real [] transcen- dence of his thought now as before [], since with him b therefore the real estrangement of the life of man remains, and remains all the more, the more one is conscious of it as such, hence it [the negation of this estrangement] can be accomplished solely by bringing about communism.
+
+In order to abolish the idea of private property, the idea of communism is quite sufficient. It takes actual communist action to abolish actual private property. History will lead to it; and this movement, which in theory we already know to be a self- transcending movement, will constitute in actual fact a very rough and protracted process. But we must regard it as a real advance to have at the outset gained a consciousness of the limited character as well as of the goal of this historical movement—and a consciousness which reaches out beyond it.
+
+When communist artisans associate with one another, theory, propaganda, etc., is their first end. But at the same time, as a result of this association, they acquire a new need — the need for society —and what appears as a means becomes an end. In this practical process the most splendid results are to be observed whenever French socialist workers0 are seen together. Such things as smoking, drinking, eating, etc., are no longer means of contact or means that bring them together. Association, society and conversation, which again has association as its end, are enough for them; the brotherhood of man is no mere phrase with them, but a fact of life, and the nobility of man shines upon us from their work-hardened bodies.
+
+[^1]: a A part of this section of the manuscript is torn off.—Ed.
+
+[^2]: Or maybe "it"— the German pronoun ihm can be either.—Ed. c In the manuscript: ouvriers.—Ed.
+
+
+
+
+
+**[p. 314]**
+
+IIXXI (When political economy claims that demand and supply always balance each other, it immediately forgets that according to its own claim (theory of population) the supply of people always exceeds the demand, and that, therefore, in the essential result of the whole production process—the existence of man—the disparity between demand and supply gets its most striking expression.
+
+The extent to which money, which appears as a means, constitutes true power and the sole end—the extent to which in general the means which turns me into a being, which gives me possession of the alien objective being, is an end in itself can be clearly seen from the fact that landed property, wherever land is the source of life, and horse and sword, wherever these are the true means of life, are also acknowledged as the true political powers in life. In the Middle Ages a social estate is emancipated as soon as it is allowed to carry the sword. Amongst nomadic peoples it is the horse which makes me a free man and a participant in the life of the community.
+
+We have said above that man is regressing to the cave dwelling, etc.— but he is regressing to it in an estranged, malignant form. The savage in his cave—a natural element which freely offers itself for his use and protection — feels himself no more a stranger, or rather feels as much at home as a fish in water. But the cellar dwelling of the poor man is a hostile element, "a dwelling which remains an alien power and only gives itself up to him insofar as he gives up to it his own blood and sweat" — a dwelling which he cannot regard as his own hearth—where he might at last exclaim: "Here I am at home"—but where instead he finds himself in someone else's house, in the house of a stranger who always watches him and throws him out if he does not pay his rent. He is also aware of the contrast in quality between his dwelling and a human dwelling that stands in the other world, in the heaven of wealth.
+
+Estrangement is manifested not only in the fact that my means of life belong to someone else, that which I desire is the inaccessible possession of another, but also in the fact that everything is itself something different from itself—that my activity is something else and that, finally (and this applies also to the capitalist), all is under [the sway]3 of inhuman power.
+
+There is a form of inactive, extravagant wealth given over wholly to pleasure, the enjoyer of which on the one hand behaves
+
+[^1]: a The manuscript is damaged here.—Ed.
+
+
+
+as a mere ephemeral individual frantically spending himself to no purpose, and also regards the slave-labour of others (human sweat and blood) as the prey of his cupidity. He therefore knows man himself, and hence also his own self, as a sacrificed and futile being. With such wealth contempt of man makes its appearance, partly as arrogance and as squandering of what can give suste- nance to a hundred human lives, and partly as the infamous illusion that his own unbridled extravagance and ceaseless, unpro- ductive consumption is the condition of the other's labour and therefore of his subsistence. He regards the realisation of the essential powers of man only as the realisation of his own excesses, his whims and capricious, bizarre notions. This wealth which, on the other hand, again knows wealth as a mere means, as something that is good for nothing but to be annihilated and which is therefore at once slave and master, at once magnanimous and base, capricious, presumptuous, conceited, refined, cultured and witty—this wealth has not yet experienced wealth as an utterly alien power over itself: it sees in it, rather, only its own power, and [notla wealth but enjoyment [is its final]" aim.
+
+This []b IIXXI| and the glittering illusion about the nature of wealth, blinded by sensuous appearances, is confronted by the working, sober, prosaic, economical industrialist who is quite enlight- ened about the nature of wealth, and who, while providing a wider sphere for the other's sell-indulgence and paying fulsome flatteries to him in his products (for his products are just so many base compliments to the appetites of the spendthrift), knows how to appropriate for himself in the only useful way the other's waning power. If, therefore, industrial wealth appears at first to be the result of extravagant, fantastic wealth, yet its motion, the motion inherent in it, ousts the latter also in an active way. For the fall in the rate of interest is a necessary consequence and result of industrial development. The extravagant rentier's means therefore dwindle day by day in inverse proportion to the increasing possibilities and pitfalls of pleasure. Consequently, he must either consume his capital, thus ruining himself, or must become an industrial capitalist On the other hand, there is a direct, constant rise in the rent of land as a result of the course of industrial development; nevertheless, as we have already seen, there must come a time when landed property, like every other
+
+[^1]: a The manuscript is damaged here.—Ed.
+
+[^2]: A part of this page of the manuscript is ripped off, about three lines are missing.—Ed.
+
+
+
+
+
+**[p. 316]**
+
+kind of property, is bound to fall within the category of profitably self-reproducing capital3—and this in fact results from the same industrial development. Thus the squandering landowner, too, must either consume his capital, and thus be ruined, or himself become the farmer of his own estate—an agricultural industrialist.
+
+The diminution in the interest on money, which Proudhon regards as the annulling of capital and as a tendency to socialise capital, is therefore in fact rather only a symptom of the total victory of working capital over squandering wealth—i. e., the transformation of all private property into industrial capital. It is a total victory of private property over all those of its qualities which are still in appearance human, and the complete subjection of the owner of private property to the essence of private proper- ty— labour. To be sure, the industrial capitalist also takes his pleasures. He does not by any means return to the unnatural simplicity of need; but his pleasure is only a side- issue— recreation — something subordinated to production; at the same time it is a calculated and, therefore, itself an economical pleasure. For he debits it to his capital's expense account, and what is squandered on his pleasure must therefore amount to no more than will be replaced with profit through the reproduction of capital. Pleasure is therefore subsumed under capital, and the pleasure-taking individual under the capital-accumulating indi- vidual, whilst formerly the contrary was the case. The decrease in the interest rate is therefore a symptom of the annulment of capital only inasmuch as it is a symptom of the growing domination of capital—of the estrangement which is growing and therefore hastening to its annulment. This is indeed the only way in which that which exists affirms its opposite. )
+
+The quarrel between the political economists about luxury and thrift is, therefore, only the quarrel between that political economy which has achieved clarity about the nature of wealth, and that political economy which is still afflicted with romantic, anti- industrial memories. Neither side, however, knows how to reduce the subject of the controversy to its simple terms, and neither therefore can make short work of the other. IXXIII
+
+11XXXIV I91 Moreover, rent of land qua rent of land has been overthrown, since, contrary to the argument of the Physiocrats which maintains that the landowner is the only true producer,
+
+[^1]: a See this volume, pp. 265-70.—Ed.
+
+
+
+
+
+**[p. 317]**
+
+modern political economy has proved that the landowner as such is rather the only completely unproductive rentier. According to this theory, agriculture is the business of the capitalist, who invests his capital in it provided he can expect the usual profit. T h e claim of the Physiocrats—that landed property, as the sole productive property, should alone pay state taxes and therefore should alone approve them and participate in the affairs of state—is trans- formed into the opposite position that the tax on the rent of land is the only tax on unproductive income, and is therefore the only tax not detrimental to national production. It goes without saying that from this point of view also the political privilege of landowners no longer follows from their position as principal tax-payers.
+
+Everything which Proudhon conceives as a movement of labour against capital is only the movement of labour in the determina- tion of capital, of industrial capital, against capital not consumed as capital, i. e., not consumed industrially. And this movement is proceeding along its triumphant r o a d — t h e road to the victory of industrial capital. It is clear, therefore, that only when labour is grasped as the essence of private property, can the economic process as such be analysed in its real concreteness.
+
+The division of labour is the economic expression of the social character of labour within the estrangement. Or, since labour is only an expression of human activity within alienation, of the manifes- tation of life as the alienation of life, the division of labour, too, is therefore nothing else but the estranged, alienated positing of h u m a n activity as a real activity of the species or as activity of man as a species-being.
+
+As for the essence of the division of labour—and of course the division of labour had to be conceived as a major driving force in the production of wealth as soon as labour was recognised as the essence of private property—i.e., as for the estranged and alienated form of human activity as an activity of the species—the political economists are very vague and self-contradictory about it.
+
+[^1]: Society, as it appears to the political economist, is civil society92 in which every individual is a totality of needs and only 11XXXVI exists for the other person, as the other exists for him, insofar as each becomes a means for the other. T h e political economist reduces everything (just as does politics in its Rights of Man) to man, i. e., to the individual whom he strips of all determinateness so as to class him as capitalist or worker.
+
+[^2]: Adam Smith: "This division of labour [] is not originally the effect of any human wisdom []. It is the necessary, [] slow and gradual consequence of [] the
+
+
+
+
+
+**[p. 318]**
+
+propensity to truck, barter, and exchange one thing for another. [] This propensity" to trade is probably a "necessary consequence of the use of reason and of speech []. It is common to all men, and to be found in no other race of animals." The animal, when it is grown up, is entirely independent. "Man has almost constant occasion for the help of others, and it is in vain for him to expect it from their benevolence only. He will be more likely to prevail if he can appeal to their personal interest, and show them that it-is for their own advantage to do for him what he requires of them. [] We address ourselves, not to their humanity but to their self-love, and never talk to them of our own necessities but of their advantages. []
+
+"As it is by treaty, by barter, and by purchase that we obtain from one another the greater part of those mutual good offices which we stand in need of, so it is this same (rucking disposition which originally gives occasion to the division of labour. In a tribe of hunters or shepherds a particular person makes bows and arrows, for example, with more readiness and dexterity than any other. He frequently exchanges them for cattle or for venison with his companions; and he finds at last that he can in this manner get more cattle and venison than if he himself went to the field to catch them. From a regard to his own interest, therefore, the making of bows, etc., grows to be his chief business []
+
+"The difference of natural talents in different men [] is not [] so much the cause as the effect of the division of labour Without the disposition to truck [] and exchange, every man must have procured to himself every necessary and conveniency of life [] All must have had [] the same work to do, and there could have been no such difference of employment as could alone give occasion to any great difference of talents.
+
+[^1]: "As it is this disposition which forms that difference of talents ['] among men [] so it is this same disposition which renders that difference useful. Many tribes of animals [] of the same species derive from nature a much more remarkable distinction of genius, than what, antecedent to custom and education, appears to take place among men. By nature a philosopher is not in talent and in intelligence half so different from a street porter, as a mastiff is from a greyhound, or a greyhound from a spaniel, or this last from a shepherd's dog. Those different tribes of animals, however, though all of the same species, are of scarce any use to one another. The mastiff cannot add to the advantages of his strength 11XXXVII by making use of the swiftness of the greyhound, etc. The effects of these different talents or grades of intelligence, for want of the power or disposition to barter and exchange, cannot be brought into a common stock, and do not in the least contribute to the better accommodation and conveniency of the species. Each animal is still obliged to support and defend itself, separately and independently, and derives no sort of advantage from that variety of talents with which nature has distinguished its fellows. Among men, on the contrary, the most dissimilar geniuses are of use to one another; the different produces of their respective talents, by the general disposition to truck, barter, and exchange, being brought, as it were, into a common stock, where every man may purchase whatever part of the produce of other men's industry he has occasion for. []
+
+[^2]: "As it is the power of exchanging that gives occasion to the division of la- bour, so the extent of this division must always be limited by the extent of that power, or, in other words, by the extent of the market. When the market is very small, no person can have any encouragement to dedicate himself entirely to one employ- ment, for want of the power to exchange all that surplus part of the produce of his own labour, which is over and above his own consumption, for such parts of the produce of other men's labour as he has occasion for"
+
+
+
+
+
+**[p. 319]**
+
+In an advanced State of society "every man thus lives by exchanging and becomes in some measure a merchant, and the society itself grows to be what is properly a commercial society". (See Destutt de Tracy [,Elémens d'idéologie, Paris, 1826, pp. 68 and 78]: "Society is a series of reciprocal exchanges; commerce contains the whole essence of society.") The accumulation of capitals mounts with the division of labour, and vice versa."
+
+So much for Adam Smith.3
+
+"If every family produced all that it consumed, society could keep going although no exchange of any sort took place; without being fundamental, exchange is indispensable in our advanced state of society. The division of labour is a skilful deployment of man's powers; it increases society's production—its power and its pleasures—but it curtails, reduces the ability of every person taken individually. Production cannot take place without exchange."
+
+Thus J. B. Say.b
+
+"The powers inherent in man are his intelligence and his physical capacity for work. Those which arise from the condition of society consist of the capacity to divide up labour and to distribute different jobs amongst different people and the power to exchange mutual services and the products which constitute these means. The motive which impels a man to give his services to another is self-interest—he requires a reward for the services rendered. The right of exclusive private property is indispensable to the establishment of exchange amongst men." "Exchange and division of labour reciprocally condition each other."
+
+Thus Skarbek.c
+
+Mill presents developed exchange—trade—as a consequence of the division of labour.
+
+[^1]: "The agency of man can be traced to very simple elements. He can, in fact, do nothing more than produce motion. He can move things towards one another, and he can separate them from one another: || XXXVII] the properties of matter perform all the rest." "In the employment of labour and machinery, it is often found that the effects can be increased by skilful distribution, by separating all those operations which have any tendency to impede one another, and by bringing together all those operations which can be made in any way to aid one another. As men in general cannot perform many different operations with the same quickness and dexterity with which they can by practice learn to perform a few, it is always an advantage to limit as much as possible the number of operations imposed upon each. For dividing labour, and distributing the powers of men and machinery, to the greatest advantage, it is in most cases necessary to operate upon a large scale; in other words, to produce the commodities in greater masses. It is this advantage which gives existence to the great manufactories; a few of which, placed in the most convenient situations, frequently supply not one country, but many countries, with as much as they desire of the commodity produced."
+
+[^2]: a Adam Smith, Wealth of Nations, Book I, Chs. II-IV, pp. 12-25. (Gamier, t. 1, I. I, Chs. II-IV, pp. 29-46), quoted with omissions and alterations.—Ed.
+
+[^3]: Jean-Baptiste Say, Traité d'économie politique, Paris, 1817, t. I, pp. 300, 76-77; t. II, p. 6.—Ed.
+
+[^4]: Frédéric Skarbek, Théorie des richesses sociales, Paris, 1829, t. I, pp. 25-27, 75 and 121-32.—Ed.
+
+
+
+
+
+**[p. 320]**
+
+Thus Mill." The whole of modern political economy agrees, however, that division of labour and wealth of production, division of labour and accumulation of capital, mutually determine each other; just as it agrees that only private property which is at liberty to follow its own course can produce the most useful and comprehensive division of labour.
+
+Adam Smith's argument can be summarised as follows: Division of labour bestows on labour infinite productive capacity. It stems from the propensity to exchange and barter, a specifically human propensity which is probably not accidental, but is conditioned by the use of reason and speech. The motive of those who engage in exchange is not humanity but egoism. The diversity of human talents is more the effect than the cause of the division of labour, i.e., of exchange. Besides, it is only the latter which makes such diversity useful. The particular attributes of the different breeds within a species of animal are by nature much more marked than the degrees of difference in human aptitude and activity. But because animals are unable to engage in exchange, no individual animal benefits from the difference in the attributes of animals of the same species but of different breeds. Animals are unable to combine the different attributes of their species, and are unable to contribute anything to the common advantage and comfort of the species. It is otherwise with men, amongst whom the most dissimilar talents and forms of activity are of use to one another, because they can bring their different products together into a commor stock, from which each can purchase. As the division of labour springs from the propensity to exchange, so it grows and is limited by the extent of exchange—by the extent of the market. In advanced conditions, every man is a merchant, and society is a commercial society.
+
+Say regards exchange as accidental and not fundamental. Society could exist without it. It becomes indispensable in the advanced state of society. Yet production cannot take place without it. Division of labour is a convenient, useful means—a skilful deployment of human powers for social wealth; but it reduces the ability of each person taken individually. The last remark is a step forward on the part of Say.
+
+Skarbek distinguishes the individual powers inherent in man— intelligence and the physical capacity for work—from the
+
+[^1]: a James Mill, Elements of Political Economy, pp. 5-6 and 8-9 (Parisot, pp. 7, 11-12).— Ed.
+
+
+
+
+
+**[p. 321]**
+
+powers derived from society—exchange and division of labour, which mutually condition one another. But the necessary premise of exchange is private property. Skarbek here expresses in an objective form what Smith, Say, Ricardo, etc., say when they designate egoism and self-interest as the basis of exchange, and buying and selling as the essential and adequate form of exchange.
+
+Mill presents trade as the consequence of the division of labour. With him human activity is reduced to mechanical motion. Division of labour and use of machinery promote wealth of production. Each person must be entrusted with as small a sphere of operations as possible. Division of labour and use of machinery, in their turn, imply large-scale production of wealth, and hence of products. This is the reason for large manufactories.
+
+11XXXVIIII The examination of division of labour and exchange is of extreme interest, because these are perceptibly alienated expres- sions of human activity and essential power as a species activity and species power.
+
+• To assert that division of labour and exchange rest on private property is nothing but asserting that labour is the essence of private property—an assertion which the political economist cannot prove and which we wish to prove for him. Precisely in the fact that division of labour and exchange are aspects of private property lies the twofold proof, on the one hand that human life required private property for its realisation, and on the other hand that it now requires the supersession of private property.
+
+Division of labour and exchange are the two phenomena which lead the political economist to boast of the social character of his science, while in the same breath he gives unconscious expression to the contradiction in his science — the motivation of society by unsocial, particular interests.
+
+The factors we have to consider are: Firstly, the propensity to exchange—the basis of which is found in egoism—is regarded as the cause or reciprocal effect of the division of labour. Say regards exchange as not fundamental to the nature of society. Wealth—production — is explained by division of labour and exchange. The impoverishment of individual activity, and its loss of character as a result of the division of labour, are admitted. Exchange and division of labour are acknowledged as the sources of the great diversity of human talents—a diversity which in its turn becomes useful as a result of exchange. Skarbek divides man's essential powers of production — or productive powers—into two parts: (1) those which are individual and inherent in him — his intelligence and his special disposition, or capacity, for work; and
+
+
+
+**[p. 322]**
+
+(2) those derived from society and not from the actual individu- al— division of labour and exchange.
+
+Furthermore, the division of labour is limited by the market. Human labour is simple mechanical motion: the main work is done by the material properties of the objects. The fewest possible operations must be apportioned to any one individual. Splitting up of labour and concentration of capital; the insignificance of individual production and the production of wealth in large quantities. Meaning of free private property within the division of labour. IXXXVIII||\
+
+[ T H E POWER O F MONEY]
+
+IIXLII93 If man's feelings, passions, etc., are not merely an- thropological phenomena in the [narrower]15 sense, but truly ontological94 affirmations of being (of nature), and if they are only really affirmed because their object exists for them as a sensual object, then it is clear that:
+
+(1) They have by no means merely one mode of affirmation, but rather that the distinct character of their existence, of their life, is constituted by the distinct mode of their affirmation. In what manner the object exists for them, is the characteristic mode of their gratification.
+
+(2) Wherever the sensuous affirmation is the direct annulment of the object in its independent form (as in eating, drinking, working up of the object, etc.), this is the affirmation of the object.
+
+(3) Insofar as man, and hence also his feeling, etc., is human, the affirmation of the object by another is likewise his own gratification.
+
+(4) Only through developed industry—i.e., through the me- dium of private property—does the ontological essence of human passion come into being, in its totality as well as in its humanity; the science of man is therefore itself a product of man's own practical activity.
+
+(5) The meaning of private property—apart from its estrange- ment—is the existence of essential objects for man, both as objects of enjoyment and as objects of activity.
+
+[^1]: a That part of the third manuscript which serves as a supplement to p. XXXIX of the second manuscript breaks off at this point on the left side of p. XXXVIII. The right-hand side of p. XXXVIII is empty. Then follows the "Introduction" (pp. XXXIX-XL) and the passage on money (pp. XLI-XLIII).— Ed.
+
+[^2]: This word cannot be clearly deciphered in the manuscript.—Ed.
+
+
+
+
+
+**[p. 323]**
+
+By possessing the property of buying everything, by possessing the property of appropriating all objects, money is thus the object of eminent possession. The universality of its property is the omnipo- tence of its being. It is therefore regarded as omnipotent Money is the procurer between man's need and the object, between his life and his means of life. But that which mediates my life for me, also mediates the existence of other people for me. For me it is the other person.
+
+"What, man! confound it, hands and feet And head and backside, all are yours! And what we take while life is sweet, Is that to be declared not ours?
+
+Six stallions, say, I can afford, Is not their strength my property? I tear along, a sporting lord, As if their legs belonged to me."
+
+Goethe: Faust (Mephistopheles)3
+
+Shakespeare in Timon of Athens:
+
+"Gold? Yellow, glittering, precious gold? No, Gods, I am no idle votarist! Thus much of this will make black white, foul fair, Wrong right, base noble, old young, coward valiant. Why, this Will lug your priests and servants from your sides, Pluck stout men's pillows from below their heads: This yellow slave Will knit and break religions, bless the accursed; Make the hoar leprosy adored, place thieves And give them title, knee and approbation With senators on the bench: This is it That makes the wappen'd widow wed again; She, whom the spital-house and ulcerous sores Would cast the gorge at, this embalms and spices To the April day again. Come, damned earth, Thou common whore of mankind, that put'st odds Among the rout of nations."
+
+And also later:
+
+[^1]: "O thou sweet king-killer, and dear divorce Twixt natural son and sire! thou bright défiler Of Hymen's purest bed! thou valiant Mars! Thou ever young, fresh, loved and delicate wooer, Whose blush doth thaw the consecrated snow That lies on Dian's lap! Thou visible God\
+
+[^2]: a Goethe, Faust, Part 1, Faust's Study; (the English translation is taken from Goethe's Faust, Part 1, translated by Philip Wayne, Penguin, 1949, p. 91).— Ed.
+
+
+
+Shakespeare excellently depicts the real nature of money. To understand him, let us begin, first of all, by expounding the passage from Goethe.
+
+That which is for me through the medium of money—that for which I can pay (i. e., which money can buy)—that am I myself, the possessor of the money. The extent of the power of money is the extent of my power. Money's properties are my — the posses- sor's— properties and essential powers. Thus, what I am and am capable of is by no means determined by my individuality. I am ugly, but I can buy for myself the most beautifuloi women. Therefore I am not ugly, for the effect of ugliness—its deterrent power—is nullified by money. I, according to my individual characteristics, am lame, but money furnishes me with twenty-four feet. Therefore I am not lame. I am bad, dishonest, unscrupulous, stupid; but money is honoured, and hence its possessor. Money is the supreme good, therefore its possessor is good. Money, besides, saves me the trouble of being dishonest: I am therefore presumed honest. I am brainless, but money is the real brain of all things and how then should its possessor be brainless? Besides, he can buy clever people for himself, and is he who hasb power over the clever not more clever than the clever? Do not I, who thanks to money am capable of aü that the human heart longs for, possess all human capacities? Does not my money, therefore, transform all my incapacities into their contrary?
+
+If money is the bond binding me to human life, binding society to me, connecting me with nature and man, is not money the bond of all bonds'? Can it not dissolve and bind all ties? Is it not, therefore, also the universal agent of separation? It is the coin that really separates as well as the real binding agent—the []c chemical power of society.
+
+Shakespeare stresses especially two properties of money: (1) It is the visible divinity—the transformation of all human and natural properties into their contraries, the universal confounding and distorting of things: impossibilities are soldered together by it.
+
+(2) It is the common whore, the common procurer of people and nations.
+
+[^1]: a Shakespeare, Timon of Athens, Act IV, Scène 3. (Marx quotes the Schlegel-Tieck translation.) — Ed.
+
+[^2]: In the manuscript: "is".— Ed. In the manuscript one word cannot be deciphered.— Ed.
+
+
+
+That which I am unable to do as a man, and of which therefore all my individual essential powers are incapable, I am able to do by means of money. Money thus turns each of these powers into something which in itself it is not—turns it, that is, into its contrary.
+
+If I long for a particular dish or want to take the mail-coach because I am not strong enough to go by foot, money fetches me the dish and the mail-coach: that is, it converts my wishes from something in the realm of imagination, translates them from their meditated, imagined or desired existence into their sensuous, actual existence—from imagination to life, from imagined being into real being. In effecting this mediation, [money] is the truly cre- ative power.
+
+No doubt the demand also exists for him who has no money, but his demand is a mere thing of the imagination without effect or existence for me, for a third party, for the [others], [ | XLIII | and which therefore remains even for me unreal and objectless. The difference between effective demand based on money and ineffec- tive demand based on my need, my passion, my wish, etc., is the difference between being and thinking, between the idea which mere- ly exists within me and the idea which exists as a real object outside of me.
+
+If I have no money for travel, I have no need—that is, no real and realisable need — to travel. If I have the vocation for study but no money for it, I have no vocation for study—that is, no effective, no true vocation. On the other hand, if I have really no vocation for study but have the will and the money for it, I have an effective vocation for it. Money as the external, universal medium and faculty (not springing from man as man or from human society as society) for turning an image into reality and reality into a mere image, transforms the real essential powers of man and nature into what are merely abstract notions and therefore imperfections and tormenting chimeras, just as it transforms real imperfections and chimeras—essen- tial powers which are really impotent, which exist only in the imagination of the individual—into real essential powers and faculties. In the light of this characteristic alone, money is thus the general distorting of individualities which turns them into their opposite and confers contradictory attributes upon their attributes.
+
+Money, then, appears as this distorting power both against the individual and against the bonds of society, etc., which claim to be
+
+
+
+**[p. 326]**
+
+Since money, as the existing and active concept of value, confounds and confuses all things, it is the general confounding and confusing of all things—the world upside-down—the confounding and confusing of all natural and human qualities.
+
+He who can buy bravery is brave, though he be a coward. As money is not exchanged for any one specific quality, for any one specific thing, or for any particular human essential power, but for the entire objective world of man and nature, from the standpoint of its possessor it therefore serves to exchange every quality for every other, even contradictory, quality and object: it is the fraternisation of impossibilities. It makes contradictions embrace.
+
+Assume man to be man and his relationship to the world to be a human one: then you can exchange love only for love, trust for trust, etc. If you want to enjoy art, you must be an artistically cultivated person; if you want to exercise influence over other people, you must be a person with a stimulating and encouraging effect on other people. Every one of your relations to man and to nature must be a specific expression, corresponding to the object of your will, of your real individual life. If you love without evoking love in return — that is, if your loving as loving does not produce reciprocal love; if through a living expression of yourself as a loving person you do not make yourself a beloved one, then your love is impotent—a misfortune. ||XLIII|
+
+11XI | (6) This is perhaps the place at which, by way of explanation and justification, we might offer some considerations in regard to the Hegelian dialectic generally and especially its exposition in the
+
+Phänomenologie and Logik* and also, lastly, the relation [to it] of the modern critical movement.95
+
+So powerful was modern German criticism's preoccupation with the past—so completely was its development entangled with the
+
+[^1]: [CRITIQUE OF T H E HEGELIAN DIALECTIC AND PHILOSOPHY AS A WHOLE]
+
+[^2]: a Georg Wilhelm Friedrich Hegel, Phänomenologie des Geistes and Wissenschaft der Logik.—Ed.
+
+
+
+
+
+**[p. 327]**
+
+"As though in positing the world, self-consciousness does not posit that which is different [from itself] and in what it is creating it does not create itself, since it in turn annuls the difference between what it has created and itself, since it itself has being only in creating13 and in the movement—as though its purpose were not this movement?" etc.; or again: "They" (the French materialists) "have not yet been able to see that it is only as the movement of self-consciousness that the movement of the universe has actually come to be for itself, and achieved unity with itself." [Pp. 113, 114-15.]
+
+Such expressions do not even show any verbal divergence from the Hegelian approach, but on the contrary repeat it word for word.
+
+11XII | How little consciousness there was in relation to the Hegelian dialectic during the act of criticism (Bauer, the Synop- tiker), and how little this consciousness came into being even after the act of material criticism, is proved by Bauer when, in his Die gute Sache der Freiheit, he dismisses the brash question put by Herr Gruppe—"What about logic now?" — by referring him to future critics.90
+
+But even now — now that Feuerbach both in his "Thesen" in the Anekdotac and, in detail, in the Philosophie der Zukunft has in principle overthrown the old dialectic and philosophy; now that that school of criticism, on the other hand, which was incapable of accomplishing this, has all the same seen it accomplished and has proclaimed itself pure, resolute, absolute criticism that has come into the clear with itself; now that this criticism, in its spiritual
+
+[^1]: a Bruno Bauer, Kritik der evangelischen Geschichte der Synoptiker.—Ed.
+
+[^2]: In the manuscript: "in movement".— Ed. c Ludwig Feuerbach, "Vorläufige Thesen zur Reformation der Philosophie" in Anekdota zur neuesten deutschen Philosophie und Publicistik.—Ed.
+
+
+
+
+
+**[p. 328]**
+
+Feuerbach is the only one who has a serious, critical attitude to the Hegelian dialectic and who has made genuine discoveries in this field. He is in fact the true conqueror of the old philosophy. The extent of his achievement, and the unpretentious simplicity with which he, Feuerbach, gives it to the world, stand in striking contrast to the opposite attitude [of the others].
+
+Feuerbach's great achievement is: (1) The proof that philosophy is nothing else but religion rendered into thought and expounded by thought, i. e., another form and manner of existence of the estrangement of the essence of man; hence equally to be condemned;
+
+(2) The establishment of true materialism and of real science, by making the social relationship of "man to man" the basic principle of the theory;
+
+(3) His opposing to the negation of the negation, which claims to be the absolute positive, the self-supporting positive, positively based on itself.
+
+[^1]: a Certificate of poverty.— Ed. This refers to the Allgemeine Literatur-Zeitung.—Ed.
+
+
+
+
+
+**[p. 329]**
+
+Hegel sets out from the estrangement of substance (in logic, from the infinite, the abstractly universal)—from the absolute and fixed abstraction; which means, put in a popular way, that he sets out from religion and theology.
+
+Secondly, he annuls the infinite, and posits the actual, sensuous, real, finite, particular (philosophy, annulment of religion and theology).
+
+Thirdly, he again annuls the positive and restores the abstrac- tion, the infinite—restoration of religion and theology.
+
+Feuerbach thus conceives the negation of the negation on/31 a s a
+
+contradiction of philosophy with itself—as the philosophy which affirms theology (the transcendent, etc.) after having denied it, and which it therefore affirms in opposition to itself.
+
+The positive position or self-affirmation and self-confirmation contained in the negation of the negation is taken to be a position which is not yet sure of itself, which is therefore burdened with its opposite, which is doubtful of itself and therefore in need of proof, and which, therefore, is not a position demonstrating itself by its existence—not an acknowledged ||XIII| position; hence it is directly and immediately confronted by the position of sense- certainty based on itself.*
+
+But because Hegel has conceived the negation of the negation, from the point of view of the positive relation inherent in it, as the true and only positive, and from the point of view of the negative relation inherent in it as the only true act and spontaneous activity of all being, he has only fqu_nd the abstract, logical, speculative expression for the movement of history, which is not yet the real history of man as a given subject, but only the act of creation, the history of the origin of man.
+
+We shall explain both the abstract form of this process and the difference between this process as it is in Hegel in contrast to modern criticism, in contrast to the same process in Feuerbach's
+
+Wesen des Christentums, or rather the critical form of this in- Hegel still uncritical process.
+
+Let us take a look at the Hegelian system. One must begin with Hegel's Phänomenologie, the true point of origin and the secret of the Hegelian philosophy.
+
+[^1]: * Feuerbach also defines the negation of the negation, the definite concept, as thinking surpassing itself in thinking and as thinking wanting to be directly awareness, nature, reality.— Note by Marx.
+
+[^2]: 12—482
+
+
+
+
+
+**[p. 330]**
+
+II. Self-consciousness. The truth of certainty of self, (a) Indepen- dence and dependence of self-consciousness; lordship and bond- age, (b) Freedom of self-consciousness. Stoicism, scepticism, the unhappy consciousness.
+
+III. Reason. Reason's certainty and reason's truth, (a) Observa- tion as a process of reason. Observation of nature and of self-consciousness, (b) Realisation of rational self-consciousness through its own activity. Pleasure and necessity. The law of the heart and the insanity of self-conceit. Virtue and the course of the world, (c) The individuality which is real in and for itself. The spiritual animal kingdom and the deception or the real fact. Reason as lawgiver. Reason which tests laws.
+
+B. Mind. I. True mind; ethics. II. Mind in self-estrangement, culture. III. Mind certain of itself, morality.
+
+C. Religion. Natural religion; religion of art; revealed religion. D. Absolute Knowledge. Hegel's Enzyklopädie,3 beginning as it does with logic, with pure speculative thought, and ending with absolute knowledge—with the self-conscious, self-comprehending philosophic or absolute (i. e., superhuman) abstract mind—is in its entirety nothing but the display, the self-objectification, of the essence of the philosophic mind, and the philosophic mind is nothing but the estranged mind of the world thinking within its self-estrangement—i. e., com- prehending itself abstractly.
+
+Logic— mind's coin of the realm, the speculative or mental value of man and nature — its essence which has grown totally indifferent to all real determinateness, and hence unreal—is alienated thinking, and therefore thinking which abstracts from nature and from real man: abstract thinking.
+
+Then: The externality of this abstract thinking nature, as it is for this abstract thinking. Nature is external to it—its self-loss; and it apprehends nature also in an external fashion, as abstract thought, but as alienated abstract thinking. Finally, mind, this thinking
+
+[^1]: a Georg Wilhelm Friedrich Hegel, Encyclopädie der philosophischen Wissenschaften im Grundrisse.—Ed.
+
+
+
+
+
+**[p. 331]**
+
+There is a double error in Hegel. The first emerges most clearly in the Phänomenologie, the birth-place of the Hegelian philosophy. When, for instance, wealth, state power, etc., are understood by Hegel as entities estranged from the human being, this only happens in their form as thoughts They are thought-entities, and therefore merely an estrangement of pure, i. e., abstract, philosophical thinking. The whole process therefore ends with absolute knowledge. It is precisely abstract thought from which these objects are estranged and which they confront with their presumption of reality. The philosopher—who is himself an abstract form of estranged man — takes himself as the criterion of the estranged world. The whole history of the alienation process and the whole process of the retraction of the alienation is therefore nothing but the history of the production of abstract (i. e., absolute) ||XVII|98 thought—of logical, speculative thought. The estrangement, which therefore forms the real interest of this alienation and of the transcendence of this alienation, is the opposition of in itself and for itself, of consciousness and self-consciousness, of object and subject—that is to say, it is the opposition between abstract thinking and sensuous reality or real sensuousness within thought itself. All other oppositions and movements of these oppositions are but the semblance, the cloak, the exoteric shape of these oppositions which alone matter, and which constitute the meaning of these other, profane oppositions. It is not the fact that the human being objectifies himself inhumanly, in opposition to himself, but the fact that he objectifies himself in distinction from and in opposition to abstract thinking, that constitutes the posited essence of the estrangement and the thing to be superseded.
+
+[ | XVIII | The appropriation of man's essential powers, which have become objects—indeed, alien objects—is thus in the first place only an appropriation occurring in consciousness, in pure thought, i. e., in abstraction: it is the appropriation of these objects as thoughts and as movements of thought. Consequently, despite its thoroughly negative and critical appearance and despite the genuine criticism contained in it, which often anticipates far later
+
+[^1]: 12*
+
+
+
+
+
+**[p. 332]**
+
+In the second place: the vindication of the objective world for man — for example, the realisation that sensuous consciousness is not an abstractly sensuous consciousness but a humanly sensuous consciousness, that religion, wealth, etc., are but the estranged world of human objectification, of man's essential powers put to work and that they are therefore but the path to the true human world—this appropriation or the insight into this process appears in Hegel therefore in this form, that sense, religion, state power, etc., are spiritual entities; for only mind is the true essence of man, and thé true form of mind is thinking mind, the logical, specula- tive mind. The human character of nature and of the nature created by history—man's products—appears in the form that they are products of abstract mind and as such, therefore, phases of mind—thought-entities. The Phänomenologie is, therefore, a hidden, mystifying and still uncertain criticism; but inasmuch as it depicts man's estrangement, even though man appears only as mind, there lie concealed in it all the elements of criticism, already prepared and elaborated in a manner often rising far above the Hegelian standpoint. The "unhappy consciousness", the "honest conscious- ness", the struggle of the "noble and base consciousness", etc., etc.— these separate sections contain, but still in an estranged form, the critical elements of whole spheres such as religion, the state, civil life, etc. Just as entities, objects, appear as thought- entities, so the subject is always consciousness or self-consciousness; or rather the object appears only as abstract consciousness, man only as self-consciousness: the distinct forms of estrangement which make their appearance are, therefore, only various forms of conscious- ness and self-consciousness. Just as in itself abstract consciousness (the form in which the object is conceived) is merely a moment of distinction of self-consciousness, what appears as the result of the movement is the identity of self-consciousness with conscious- ness— absolute knowledge—the movement of abstract thought no longer directed outwards but proceeding now only within its own self: that is to say, the dialectic of pure thought is the result. | XVIII11
+
+IIXXIIII" The outstanding achievement of Hegel's Phäno- menologie /«nd of its final outcome, the dialectic of negativity as the moving and generating principle, is thus first that Hegel conceives the self-creation of man as a process, conceives objectifi-
+
+
+
+**[p. 333]**
+
+cation as loss of the object, as alienation and as transcendence of this alienation; that he thus grasps the essence of labour and comprehends objective m a n — t r u e , because real man—as the outcome of man's own labour. T h e real, active orientation of man to himself as a species-being, or his manifestation as a real species- being (i. e., as a human being), is only possible if he really brings out all his species-powers—something which in turn is only possible through the co-operative action of all of mankind, only as. the result of history—and treats these powers as objects: and this, to begin with, is again only possible in the form of estrangement.
+
+We shall now demonstrate in detail Hegel's one-sidedness and limitations as they are displayed in the final chapter of the Phänomenologie, "Absolute Knowledge"—a chapter which contains the condensed spirit of the Phänomenologie, the relationship of the Phänomenologie to speculative dialectic, and also Hegel's conscious- ness concerning both and their relationship to one another.
+
+Let us provisionally say just this much in advance: Hegel's standpoint is that of modern political economy.100 He grasps labour as the essence of m a n — a s man's essence which stands the test: he sees only the positive, not the negative side of labour. Labour is man's coming-to-be for himself within alienation, or as alienated man. T h e only labour which Hegel knows and recognises is abstractly mental labour. Therefore, that which constitutes the essence of philosophy—the alienation of man who knows himself, or alienated science thinking itself—Hegel grasps as its essence; and in con- tradistinction to previous philosophy he is therefore able to combine its separate aspects, and to present his philosophy as the philosophy. What the other philosophers did—that they grasped separate phases of nature and of human life as phases of self-consciousness, namely, of abstract self-consciousness—is known to Hegel as the doings of philosophy. Hence his science is absolute.
+
+Let us now turn to our subject. "Absolute Knowledge". The last chapter of the "Phänomenologie". The main point is that the object of consciousness is nothing else but self-consciousness, or that the object is only objectified self- consciousness— self-consciousness as object. (Positing of man=self- consciousness.)
+
+The issue, therefore, is to surmount the object of consciousness. Objectivity as such is regarded as an estranged human relationship which does not correspond to the essence of man, to self- consciousness. T h e reappropriation of the objective essence of man, produced within the orbit of estrangement as something alien,
+
+
+
+**[p. 334]**
+
+therefore denotes not only the. annulment of estrangement, but of objectivity as well. Man, that is to say, is regarded as a non-objective, spiritual being.
+
+The movement of surmounting the object of consciousness is now described by Hegel in the following way:
+
+The object reveals itself not merely as returning into the self—this is according to Hegel the one-sided way of apprehending this movement, the grasping of only one side. Man is equated with self. The self, however, is only the abstractly conceived man—man created by abstraction. Man is selfish. His eye, his ear, etc., are selfish. In him every one of his essential powers has the quality of selfhood. But it is quite false to say on that account " s elf- consciousness has eyes, ears, essential powers". Self-consciousness is rather a quality of human nature, of the human eye, etc.; it is not human nature that is a quality of ||XXIV| self-consciousness.
+
+The self-abstracted entity, fixed for itself, is man as abstract egoist—egoism raised in its pure abstraction to the level of thought. (We shall return to this point later.)
+
+For Hegel the human being—man—equals self-consciousness. All estrangement of the human being is therefore nothing but estrange- ment of self-consciousness. The estrangement of self-consciousness is not regarded as an expression—reflected in the realm of knowl- edge and thought—of the real estrangement of the human being. Instead, the actual estrangement—that which appears real—is according to its innermost, hidden nature (which is only brought to light by philosophy) nothing but the manifestation of the estrange- ment of the real human essence, of self-consciousness. The science which comprehends this is therefore called phenomenology. All reappropriation of the estranged objective essence appears, there- fore, as incorporation into self-consciousness: The man who takes hold of his essential being is merely the self-consciousness which takes hold of objective essences. Return of the object into the self is therefore the reappropriation of the object.
+
+Expressed in all its aspects, the surmounting of the object of consciousness means:
+
+(1) That the object as such presents itself to consciousness as something vanishing.
+
+(2) That it is the alienation of self-consciousness which posits thinghood.101
+
+(3) That this alienation has not merely a negative but a positive significance.
+
+(4) That it has this meaning not merely for us or intrinsically, but for self-consciousness itself.
+
+
+
+**[p. 335]**
+
+(5) For self-consciousness, the negative of the object, or its annul- ling of itself, has positive significance—or it knows this futility of the object—because of the fact that it alienates itself, for in this alienation it posits itself as object, or, for the sake of the indivisible unity of being-for-self, posits the object as itself.
+
+(6) On the other hand, this contains likewise the other moment, that self-consciousness has also just as much superseded this alienation and objectivity and resumed them into itself, being thus at home in its other-being as such.
+
+(7) This is the movement of consciousness and this is therefore the totality of its moments.
+
+(8) Consciousness must similarly be related to the object in the totality of its determinations and have comprehended it in terms of each of them. This totality of its determinations makes the object intrinsically a spiritual being; and it becomes so in truth for consciousness through the apprehending of each one of the determinations as self or through what was called above the spiritual attitude to them.102
+
+As to (1): That the object as such presents itself to consciousness as something vanishing—this is the above-mentioned return of the object into the self.
+
+As to (2): The alienation of self-consciousness posits thinghood. Because man equals self-consciousness, his alienated, objective essence, or thinghood, equals alienated self-consciousness, and thinghood is thus posited through this alienation (thinghood being that which is an object for man and an object for him is really only that which is to him an essential object, therefore his objective essence. And since it is not real man, nor therefore nature—man being human nature—who as such is made the subject, but only the abstraction of man, self- consciousness, so thinghood cannot be anything but alienated self- consciousness). It is only to be expected that a living, natural being equipped and endowed with objective (i.e., material) essential powers should of his essence have real natural objects; and that his self-alienation should lead to the positing of a real, objective world, but within the framework of externality, and, therefore, an over- whelming world not belonging to his own essential being. There is nothing incomprehensible or mysterious in this. It would be mysterious, rather, if it were otherwise. But it is equally clear that a self-consciousness by its alienation can posit only thinghood, i.e., only an abstract thing, a thing of abstraction and not a real thing. It is 11XXVI |103 clear, further, that thinghood is therefore utterly without any independence, any essentiality vis-à-vis self-consciousness; that on the contrary it is a mere creature—something posited by
+
+
+
+**[p. 336]**
+
+self-consciousness. And what is posited, instead of confirming itself, is but confirmation of the act of positing which for a moment fixes its energy as the product, and gives it the semblance—but only for a moment—of an independent, real substance.
+
+Whenever real, corporeal man, man with his feet firmly on the solid ground, man exhaling and inhaling all the forces of nature, posits his real, objective essential powers as alien objects by his externalisation, it is not the act of positing which is the subject in this process: it is the subjectivity of objective essential powers, whose action, therefore, must also be something objective. An objective being acts objectively, and he would not act objectively if the objective did not reside in the very nature of his being. He only creates or posits objects, because he is posited by objects—because at bottom he is nature. In the act of positing, therefore, this objective being does not fall from his state of "pure activity" into a creating of the object; on the contrary, his objective product only confirms his objective activity, his activity as the activity of an objective, natural being.
+
+Here we see how consistent naturalism or humanism is distinct from both idealism and materialism, and constitutes at the same time the unifying truth of both. We see also how only naturalism is capable of comprehending the action of world history.
+
+(Man is directly a natural being. As a natural being and as a living natural being he is on the one hand endowed with natural powers, vi- tal powers—he is an active natural being. These forces exist in him as tendencies and abilities—as instincts. On the other hand, as a natural, corporeal, sensuous, objective being he is a suffering, conditioned and limited creature, like animals and plants. That is to say, the objects of his instincts exist outside him, as objects independent of him; yet these objects are objects that he needs—essential objects, indispensable to the manifestation and confirmation of his essential powers. To say that man is a corporeal, living, real, sensuous, objective being full of natural vigour is to say that he has real, sensuous objects as the object of his being or of his life, or that he can only express his life in real, sensuous objects. To be objective, natural and sensuous, and at the same time to have object, nature and sense outside oneself, or oneself to be object, nature and sense for a third party, is one and the same thing. > Hunger is a natural need; it therefore needs a nature outside itself, an object outside itself, in order to satisfy itself, to be stilled. Hunger is an acknowledged need of my body for an object existing outside it, indispensable to its integration and to the expression of its essential being. The sun is the object of the plant—an indispensable object to it, confirming its life — just as the
+
+
+
+**[p. 337]**
+
+A being which does not have its nature outside itself is not a natural being, and plays no part in the system of nature. A being which has no object outside itself is not an objective being. A being which is not itself an object for some third being has no being for its object; i.e., it is not objectively related. Its being is not objective.
+
+II XXVII| A non-objective being is a non-being. Suppose a being which is neither an object itself, nor has an object. Such a being, in the first place, would be the unique being: there would exist no being outside it—it would exist solitary and alone. For as soon as there are objects outside me, as soon as I am not alone, I am another—another reality than the object outside me. For this third object I am thus a different reality than itself; that is, I am its object. Thus, to suppose a being which is not the object of another being is to presuppose that no objective being exists. As soon as I have an object, this object has me for an object. But a non-objective being is an unreal, non-sensuous thing—a product of mere thought (i.e., of mere imagination)—an abstraction. To be sensuous, that is, to be really existing, means to be an object of sense, to be a sensuous object, and thus to have sensuous objects outside oneself—objects of one's sensuousness. To be sensuous is to suffer.
+
+Man as an objective, sensuous being is therefore a suffering being—and because he feels that he suffers, a passionate being. Passion is the essential power of man energetically bent on its object.
+
+<But man is not merely a natural being: he is a human natural being. That is to say, he is a being for himself. Therefore he is a species-being, and has to confirm and manifest himself as such both in his being and in his knowing. Therefore, human objects are not natural objects as they immediately present themselves, and neither is human sense as it immediately is—as it is objectively—human sensibility, human objectivity. Neither nature objectively nor nature subjectively is directly given in a form adequate to the human being.> And as everything natural has to come into being, man too has his act of origin—history—which, however, is for him a known history, and hence as an act of origin it is a conscious self-transcending act of origin. History is the true natural history of man (on which more later).
+
+Thirdly, because this positing of thinghood is itself only an illusion, an act contradicting the nature of pure activity, it has to be cancelled again and thinghood denied.
+
+Re 3, 4, 5 and 6. (3) This externalisation of consciousness has not
+
+
+
+**[p. 338]**
+
+As we have already seen, the appropriation of what is estranged and objective, or the annulling of objectivity in the form of estrangement (which has to advance from indifferent strangeness to real, antagonistic estrangement), means likewise or even primarily for Hegel that it is objectivity which is to be annulled, because it is not the determinate character of the object, but rather its objective character that is offensive and constitutes estrangement for self- consciousness. The object is therefore something negative, self- annulling—a nullity. This nullity of the object has not only a nega- tive but a positive meaning for consciousness, since this nullity of the object is precisely the self-confirmation of the non-objectivity, of the HXXVIIIt abstraction of itself. For consciousness itself the nullity of the object has a positive meaning because it knows this nullity, the objective being, as its self-alienation; because it knows that it exists only as a result of its own self-alienation
+
+The way in which consciousness is, and in which something is for it, is knowing. Knowing is its sole act. Something therefore comes to be for consciousness insofar as the latter knows this something. Knowing is its sole objective relation.
+
+It [consciousness] then knows the nullity of the object (i.e., knows the non-existence of the distinction between the object and itself, the non-existence of the object for it) because it knows the object as its self-alienation; that is, it knows itself—knows knowing as object—be- cause the object is only the semblance of an object, a piece of mystification, which in its essence, however, is nothing else but knowing itself, which has confronted itself with itself and hence has confronted itself with a nullity—a something which has no objectivity outside the knowing. Or: knowing knows that in relating itself to an object it is only outside itself—that it only externalises itself; that it itself only appears to itself as an object—or that that which appears to it as an object is only itself.
+
+On the other hand, says Hegel, there is here at the same time this other moment, that consciousness has just as much annulled
+
+
+
+**[p. I]**
+
+In this discussion all the illusions of speculation are brought together.
+
+First of all: consciousness, self-consciousness, is at home in its other-being as such. It is therefore — or if we here abstract from the Hegelian abstraction and put the self-consciousness of man instead of self-consciousness — it is at home in its other-being as such. This implies, for one thing, that consciousness (knowing as knowing, thinking as thinking) pretends to be directly the other of itself—to be the world of sense, the real world, life — thought surpassing itself in thought (Feuerbach).104 This aspect is contained herein, inasmuch as consciousness as mere consciousness takes offence not at estranged objectivity, but at objectivity as such.
+
+Secondly, this implies that self-conscious man, insofar as he has recognised and superseded the spiritual world (or his world's spiritual, general mode of being) as self-alienation, nevertheless again confirms it in this alienated shape and passes it off as his true mode of being—re-establishes it, and pretends to be at home in his other-being as such. Thus, for instance, after superseding religion, after recognising religion to be a product of self- alienation, he yet finds confirmation of himself in religion as religion. Here is the root of Hegel's false positivism, or of his merely apparent criticism: this is what Feuerbach designated as the positing, negating and re-establishing of religion or theology—but it has to be expressed in more general terms. Thus reason is at home in unreason as unreason. The man who has recognised that he is leading an alienated life in law, politics, etc., is leading his true human life in this alienated life as such. Self-affirmation, self-confirmation in contradiction with itself—in contradiction with both the knowledge and the essential being of the object—is thus true knowledge and life.
+
+There can therefore no longer be any question about an act of accommodation on Hegel's part vis-à-vis religion, the state, etc., since this lie is the lie of his principle.
+
+If know religion as alienated human self- consciousness, then what I know in it as religion is not my self-consciousness, but my alienated self-consciousness confirmed in it. I therefore know my self-consciousness that belongs to itself, to its very nature, confirmed not in religion but rather in annihilated and superseded religion.
+
+In Hegel, therefore, the negation of the negation is not the confirmation of the true essence, effected precisely through
+
+
+
+**[p. 340]**
+
+A peculiar role, therefore, is played by the act of superseding in which denial and preservation, i.e., affirmation, are bound to- gether.
+
+Thus, for example, in Hegel's philosophy of law, civil law superseded equals morality, morality superseded equals the family, the family superseded equals civil society, civil society superseded equals the state, the state superseded equals world history. In the actual world civil law, morality, the family, civil society, the state, etc., remain in existence, only they have become moments—modes of the existence and being of man—which have no validity in isolation, but dissolve and engender one another, etc. They have become moments of motion.
+
+In their actual existence this mobile nature of theirs is hidden. It appears and is made manifest only in thought, in philosophy. Hence my true religious existence is my existence in the philosophy of religion; my true political existence is my existence in the philo- sophy of law, my true natural existence, existence in the philosophy of nature; my true artistic existence, existence in the philosophy of art; my true human existence, my existence in philosophy. Likewise the true existence of religion, the state, nature, art, is the philosophy of religion, of nature, of the state and of art. If, however, the philosophy of religion, etc., is for me the sole true existence of religion then, too, it is only as a philosopher of religion that I am truly religious, and so I deny real religious sentiment and the really religious man. But at the same time I assert them, in part within my own existence or within the alien existence which I oppose to them—for this is only their philosophic expression—and in part I assert them in their distinct original shape, since for me they represent merely the apparent other-being, allegories, forms of their own true existence (i.e., of my philosophical existence) hidden under sensuous disguises.
+
+In just the same way, quality superseded equals quantity, quantity superseded equals measure, measure superseded equals essence, essence superseded equals appearance, appearance superseded equals actuality, actuality superseded equals the concept, the con- cept superseded equals objectivity, objectivity superseded equals the absolute idea, the absolute idea superseded equals nature, nature superseded equals subjective mind, subjective mind superseded
+
+
+
+**[p. 341]**
+
+equals ethical objective mind, ethical mind superseded equals art, art superseded equals religion, religion superseded equals absolute knowledge.105
+
+On the one hand, this act of superseding is a transcending of a conceptual entity; thus, private property as a concept is transcended in the concept of morality. And because thought imagines itself to be directly the other of itself, to be sensuous reality—and therefore takes its own action for sensuous, real action—this superseding in thought, which leaves its object in existence in the real world, believes that it has really overcome it. On the other hand, because the object has now become for it a moment of thought, thought takes it in its reality too to be self-confirmation of itself—of self-consciousness, of ab- straction.
+
+11XXX | From the one point of view the entity which Hegel supersedes in philosophy is therefore not real religion, the real state, or real nature, but religion itself already as an object of knowledge, i.e., dogmatics; the same with jurisprudence, political science and natural science. From the one point of view, therefore, he stands in opposition both to the real thing and to immediate, unphilosophic science or the unphilosophic conceptions of this thing. He therefore contradicts their conventional conceptions/
+
+On the other hand, the religious, etc., man can find in Hegel his final confirmation.
+
+It is now time to formulate the positive aspects of the Hegelian dialectic within the realm of estrangement.
+
+(a) Supersession as an objective movement of retracting the alienation into self. This is the insight, expressed within the estrangement, concerning the appropriation of the objective essence through the supersession of its estrangement; it is the estranged insight into the real objectification of man, into the real appropria- tion of his objective essence through the annihilation of the estranged character of the objective world, through the superses- sion of the objective world in its estranged mode of being. In the same way atheism, being the supersession of God, is the advent of theoretical humanism, and communism, as the supersession of private property, is the vindication of real human life as man's possession and thus the advent of practical humanism, or atheism is humanism mediated with itself through the supersession of religion, whilst communism is humanism mediated with itself through the supersession of private property. Only through the supersession of this mediation—which is itself, however, a necessary
+
+[^1]: 3 The conventional conceptions of theology, jurisprudence, political science, natural science, etc.— Ed.
+
+
+
+
+
+**[p. 342]**
+
+premise—does positively self-deriving humanism, positive human- ism, come into being.
+
+But atheism and communism are no flight, no abstraction, no loss of the objective world created by man—of man's essential powers born to the realm of objectivity; they are not a returning in poverty to unnatural, primitive simplicity. On the contrary, they are but the first real emergence, the actual realisation for man of man's essence and of his essence as something real.
+
+Thus, by grasping the positive meaning of self-referred negation (although again in estranged fashion) Hegel grasps man's self- estrangement, the alienation of man's essence, man's loss of objectivity and his loss of realness as self-discovery, manifestation of his nature, objectification and realisation. < In short, within the sphere of abstraction, Hegel conceives labour as man's act of self-genesis—conceives man's relation to himself as an alien being and the manifestation of himself as an alien being to be the emergence of species-consciousness and species-life.}
+
+(b) However, apart from, or rather in consequence of, the reversal already described, this act appears in Hegel:
+
+First as a merely formal, because abstract, act, because the human being itself is taken to be only an abstract, thinking being, conceived merely as self-consciousness. And,
+
+Secondly, because the exposition is formal and abstract, the supersession of the alienation becomes a confirmation of the alienation; or for Hegel this movement of self-genesis and self- objédification in the form of self-alienation and self-estrangement is the absolute, and hence final, expression of human life—with itself as its aim, at peace with itself, and in unity with its essence.
+
+This movement, in its abstract [|XXXI| form as dialectic, is therefore regarded as truly human life, and because it is neverthe- less an abstraction—an estrangement of human life—it is re- garded as a divine process, but as the divine process of man, a process traversed by man's abstract, pure, absolute essence that is distinct from himself.
+
+Thirdly, this process must have a bearer, a subject. But the subject only comes into being as a result. This result—the subject knowing itself as absolute self-consciousness—is therefore God, absolute Spirit, the self-knowing and self-manifesting idea. Real man and real nature become mere predicates—symbols of this hidden, unreal man and of this unreal nature. Subject and predicate are therefore related to each other in absolute reversal—a mystical subject-object or a subjectivity reaching beyond the object—absolute subject as a process, as subject alienating itself and returning from alienation
+
+
+
+**[p. 343]**
+
+into itself, but at the same time retracting this alienation into itself, and the subject as this process; a pure, incessant revolving within it- self.
+
+First. Formal and abstract conception of man's act of self-creation or self-objectification.
+
+Hegel having posited man as equivalent to self-consciousness, the estranged object—the estranged essential reality of man—is nothing but consciousness, the thought of estrangement mere- ly—estrangement's abstract and therefore empty and unreal ex- pression, negation. The supersession of the alienation is therefore likewise nothing but an abstract, empty supersession of that empty abstraction—the negation of the negation. The rich, living, sensuous, concrete activity of self-objectification is therefore reduced to its mere abstraction, absolute negativity—an abstraction which is again fixed as such and considered as an independent activity—as sheer activity. Because this so-called negativity is nothing but the abstract, empty form of that real living act, its content can in consequence be merely a formal content produced by abstraction from all content. As a result therefore one gets general, abstract forms of abstraction pertaining to every content and on that account indifferent to, and, consequently, valid for, all content — the thought-forms or logical categories torn from real mind and from real nature. (We shall unfold the logical content of absolute negativity further on.)
+
+Hegel's positive achievement here, in his speculative logic, is that the definite concepts, the universal fixed thought-forms in their independence vis-à-vis nature and mind are a necessary result of the general estrangement of the human being and therefore also of human thought, and that Hegel has therefore brought these together and presented them as moments of the abstraction- process. For example, superseded being is essence, superseded essence is concept, the concept superseded is absolute idea. But what, then, is the absolute idea? It supersedes its own self again, if it does not want to perform once more from the beginning the whole act of abstraction, and to satisfy itself with being a totality of abstractions or the self-comprehending abstraction. But abstrac- tion comprehending itself as abstraction knows itself to be noth- ing: it must abandon itself—abandon abstraction—and so it arrives at an entity which is its exact opposite—at nature. Thus, the entire logic is the demonstration that abstract thought is nothing in itself; that the absolute idea is nothing for itself; that only nature is something.
+
+[^1]: ||XXXII| The absolute idea, the abstract idea, which "considered with regard to its unity with itself is intuiting" (Hegel, Encyclopédie,
+
+
+
+
+
+**[p. 344]**
+
+3rd edition, p. 222 [§244]), and which (loc. cit.) "in its own absolute truth resolves to let the moment of its particularity or of initial characterisation and other-being, the immediate idea, as its reflection, go forth freely from itself as nature" (loc. cit.), this whole idea which behaves in such a strange and bizarre way, and which has given the Hegelians such terrible headaches, is from beginning to end nothing else but abstraction (i.e., the abstract thinker), which, made wise by experience and enlightened concerning its truth, resolves under various (false and themselves still abstract) conditions to abandon itself and to replace its self-ab- sorption (nothingness), generality and indeterminateness by its other-being, the particular, and the determinate; resolves to let na- ture, which it held hidden in itself only as an abstraction, as a thought-entity, go forth freely from itself: that is to say, this idea resolves to forsake abstraction and to have a look at nature free of abstraction. The abstract idea, which without mediation becomes intuiting, is indeed nothing else but abstract thinking that gives itself up and resolves on intuition. This entire transition from logic to natural philosophy is nothing else but the transition—so difficult to effect for the abstract thinker, who therefore describes it in such a far-fetched way—from abstracting to intuiting. The mystical feeling which drives the philosopher forward from abstract thinking to intuiting is boredom—the longing for a content.
+
+(The man estranged from himself is also the thinker estranged from his essence—that is, from the natural and human essence. His thoughts are therefore fixed mental forms dwelling outside nature and man. Hegel has locked up all these fixed mental forms together in his logic, interpreting each of them first as nega- tion—that is, as an alienation of human thought—and then as negation of the negation—that is, as a superseding of this alienation, as a real expression of human thought. But as this still takes place within the confines of the estrangement, this negation of the negation is in part the restoring of these fixed forms in their estrangement; in part a stopping at the last act—the act of self-reference in alienation—as the true mode of being of these fixed mental forms*; and in part, to the extent that this abstrac-
+
+[^1]: * (This means that what Hegel does is to put in place of these fixed abstractions the act of abstraction which revolves in its own circle. We must therefore give him the credit for having indicated the source of all these inappropriate concepts which originally appertained to particular philosophers; for having brought them to- gether; and for having created the entire compass of abstraction as the object of criticism, instead of some specific abstraction.) (Why Hegel separates thought from the subject we shall see later; at this stage it is already clear, however, that when man is not, his characteristic expression cannot be human either, and so neither could thought be grasped as an expression of man as a human and natural subject endowed with eyes, ears, etc., and living in society, in the world, and in nature!) — Note by Marx.
+
+
+
+
+
+**[p. 345]**
+
+tion apprehends itself and experiences an infinite weariness with itself, there makes its appearance in Hegel, in the form of the resolution to recognise nature as the essential being and to go over to intuition, the abandonment of abstract thought—the abandon- ment of thought revolving solely within the orbit of thought, of thought sans eyes, sans teeth, sans ears, sans everything.)
+
+IIXXXIIII But nature too, taken abstractly, for itself—nature fixed in isolation from man—is nothing for man. It goes without saying that the abstract thinker who has committed himself to intuiting, intuits nature abstractly. Just as nature lay enclosed in the thinker in the form of the absolute idea, in the form of a thought-entity—in a shape which was obscure and enigmatic even to him — so by letting it emerge from himself he has really let emerge only this abstract nature, only nature as a thought-entity—but now with the significance that it is the other-being of thought, that it is real, intuited nature—nature distinguished from abstract thought. Or, to talk in human language, the abstract thinker learns in his intuition of nature that the entities which he thought to create from nothing, from pure abstraction—the entities he believed he was producing in the divine dialectic as pure products of the labour of thought, for ever shuttling back and forth in itself and never looking outward into reality—are nothing else but abstractions from characteristics of nature. To him, therefore, the whole of nature merely repeats the logical abstractions in a sensuous, external form. He once more resolves nature into these abstractions. Thus, his intuition of nature is only the act of confirming his abstraction from the intuition of nature3—is only the conscious repetition by him of the process of creating his abstraction. Thus, for example, time equals negativity referred to itself (op. cit.,b p. 238). To the superseded becoming as being there corresponds, in natural form, superseded movement as matter. Light is reflection-in-itself, the natural form. Body as moon and comet is the natural form of the antithesis which according to logic is on the one side the positive resting on itself and on the other side the negative resting on itself. The earth is the natural form of the logical ground, as the negative unity of the antithesis, etc.
+
+[^1]: a The following passage is crossed out in the manuscript: "Let us consider for a moment Hegel's characteristics of nature and the transition from nature to the mind. Nature has resulted as the idea in the form of the other-being. Since the id [ea]"—Ed.
+
+[^2]: Georg Wilhelm Friedrich Hegel, Encyclopädie der philosophischen Wissenschaften im Grundrisse.—Ed.
+
+
+
+
+
+**[p. 346]**
+
+Nature as nature—that is to say, insofar as it is still sensuously distinguished from that secret sense hidden within it—nature isolated, distinguished from these abstractions, is nothing—a noth- ing proving itself to be nothing—is devoid of sense, or has only the sense of being an externality which has to be annulled.
+
+"In the finite-teleological position is to be found the correct premise that nature does not contain within itself the absolute purpose." P. 225 [§ 245]. Its purpose is the confirmation of abstraction.
+
+"Nature has shown itself to be the idea in the form of other-being. Since the idea is in this form the negative of itself or external to itself, nature is not just relatively external vis-à-vis this idea, but externality constitutes the form in which it exists as nature." P. 277 [§247].
+
+Externality here is not to be understood as the world of sense which manifests itself and is accessible to the light, to the man endowed with senses. It is to be taken here in the sense of alienation, of a mistake, a defect, which ought not to be. For what is true is still the idea. Nature is only the form of the idea's other-being. And since abstract thought is the essence, that which is external to it is by its essence something merely external. The abstract thinker recognises at the same time that sensuousness—ex- ternality in contrast to thought shuttling back and forth within itself—is the essence of nature. But he expresses this contrast in such a way as to make this externality of nature, its contrast to thought, its defect, so that inasmuch as it is distinguished from abstraction, nature is something defective. ||XXXIV| An entity which is defective not merely for me or in my eyes but in itself—intrinsically—has something outside itself which it lacks. That is, its essence is different from it itself. Nature has therefore to supersede itself for the abstract thinker, for it is already posited by him as a potentially superseded being.
+
+[^1]: "For us, mind has nature for its premise, being nature's truth and for that reason its absolute prius. In this truth nature has vanished, and mind has resulted as the idea arrived at being-for-itself, the object of which, as well as the subject, is the concept. This identity is absolute negativity, for whereas in nature the concept has its perfect external objectivity, this its alienation has been superseded, and in this alienation the concept has become identical with itself. But it is this identity, therefore, only in being a return out of nature." P. 392 [§381].
+
+[^2]: "As the abstract idea, revelation is unmediated transition to, the coming-to-be of, nature; as the revelation of the mind, which is free, it is the positing of nature as the mind's world—a positing which, being reflection, is at the same time a presupposing of the world as independently existing nature. Revelation in conception is the creation of nature as the mind's being, in which the mind procures the affirmation and the truth of its freedom". "The absolute is mind. This is the highest definition of the absolute." [P. 393, § 384.] | XXXIVII
+
+
+
+LETTERS
+
+October 1843-August 1844
+
+
+
+
+
+**[p. 1843]**
+
+1 TO LUDWIG FEUERBACH
+
+IN BRUCK.BERG 106
+
+Kreuznach, October 3, 1843 Dear Sir,
+
+A few months ago while passing through [Bruckberg], Dr. Ruge informed you of our plan to publish Franco-German Jahrbücher and asked at the same time for your collaboration. It has now been already settled that Paris is to be the place for printing and publication and that the first monthly number is to appear by the end of November.
+
+Before I leave for Paris in a few days time I feel obliged to make a brief epistolary approach to you since I have not had the privilege of making your personal acquaintance.
+
+You were one of the first writers who expressed the need for a Franco-German scientific alliance. You will, therefore, assuredly be one of the first to support an enterprise aimed at bringing such an alliance into being. For German and French articles are to be published promiscue* in the Jahrbücher. The best Paris writers have agreed to co-operate. Any contribution from you will be most welcome and there is probably something at your disposal that you have already written.
+
+From your preface to the 2nd edition of Das Wesen des Christentums, I am almost led to conclude that you are engaged on a fuller work on Schelling or that you have something about this windbag in mind.107 Now that would be a marvellous beginning.
+
+Schelling, as you know, is the 38th member of the [German] Confederation.108 The entire German police is at his disposal as I myself once experienced when I was editor of the Rheinische Zeitung. That is, a censorship order can prevent anything against
+
+[^1]: Mixed, alternately.— Ed.
+
+
+
+
+
+**[p. v]**
+
+the holy Schelling []* from getting through. Hence it is almost impossible in Germany to attack Schelling except in books of over 21 sheets, and books of over 21 sheets are not books read by the people.109 Kapp's bookb is very commendable but it is too circum- stantial and rather inaptly separates judgment from facts. Moreover, our governments have found a means of making such works ineffective. They must not be mentioned. They are ignored or the few official reviews dismiss them with a few contemptuous words. The great Schelling himself pretends he knows nothing about these attacks and he succeeded in diverting attention from Kapp's book by making a tremendous fiscal to-do about old Paulus' soup.cll° That was a diplomatic master stroke!
+
+But just imagine Schelling exposed in Paris, before the French literary world! His vanity will not be able to restrain itself, this will wound the Prussian Government to the quick, it will be an attack on Schelling's sovereignty abroad, and a vain monarch sets much greater store by his sovereignty abroad than at home.
+
+How cunningly Herr von Schelling enticed the French, first of all the weak, eclectic Cousin, then even the gifted Leroux. For Pierre Leroux and his like still regard Schelling as the man who replaced transcendental idealism by rational realism, abstract thought by thought with flesh and blood, specialised philosophy by world philosophy! To the French romantics and mystics he cries: "I, the union of philosophy and theology", to the French materialists: "I, the union of flesh and idea", to the French sceptics: "I, the destro/er of dogmatism", in a word, "I Schelling!"
+
+Schelling has not only been able to unite philosophy and theology, but philosophy and diplomacy too. He has turned philosophy into a general diplomatic science, into a diplomacy for all occasions. Thus an attack on Schelling is indirectly an attack on our entire policy, and especially on Prussian policy. Schelling's philosophy is Prussian policy sub specie philosophiae.
+
+You would therefore be doing a great service to our enterprise, but even more to truth, if you were to contribute a characterisa- tion of Schelling to the very first issue. You are just the man for this because you are Schelling in reverse. The sincere thought—we may believe the best of our opponent^of the young Schelling for the realisation of which however he did not possess the necessary
+
+[^1]: a A word here is indecipherable.— Ed.
+
+[^2]: [Ch. Kapp,] Friedrich Wilhelm Joseph von Schelling—Ed. c H. E. G. Paulus, Die endlich offenbar gewordene positive Philosophie der Offen- barung.— Ed.
+
+
+
+
+
+**[p. 351]**
+
+qualities except imagination, he had no energy but vanity, no driving force but opium, no organ but the irritability of a feminine perceptivity, this sincere thought of his youth, which in his case remained a fantastic youthful dream, has become truth, reality, manly seriousness in your case. Schelling is therefore an anticipated caricature of you, and as soon as reality confronts the caricature the latter must dissolve into thin air. I therefore regard you as the necessary, natural — that is, nominated by Their Majesties Nature and History — opponent of Schelling. Your struggle with him is the struggle of the imagination of philosophy with philosophy itself.
+
+I confidently expect a contribution from you in the form you may find most convenient.111 My address is: "Herr Maurer. Rue Vanneau No. 23, Paris, for the attention of Dr. Marx." Although she does not know you, my wife sends greetings. You would not believe how many followers you have among the fair sex.
+
+Yours very truly,
+
+Dr. Marx
+
+First published in part in: K. Grün, Printed according to the original Ludwig Feuerbach in seinem Briefwechsel T-, r u . . • ur u J • r und Nachlass, sowie in seiner Philosophischen ^he full text is published ,n Eng- Charakterentwicklung, Bd. I, Leipzig und l i s h f o r t h e f l r s t t l m e
+
+Paris, November 21, 1843 rue Vanneau, No. 31, Faub. St. Germain Dear Friend,
+
+Your letter has just arrived, but with some very strange symptoms.
+
+1) Everything which you say you enclosed is missing with the exception of Engels' article.3 This, however, is all in pieces and is therefore useless. It begins with No. 5.
+
+[^1]: Heidelberg, 1874; in full in: Karl Marx and Frederick Engels, Collected Works, second Russ. ed., Vol. 27, 1962
+
+[^2]: 2 TO JULIUS FRÖBEL112
+
+[^3]: IN ZURICH
+
+[^4]: a Frederick Engels, "Outlines of a Critique of Political Economy" (see this volume, pp. 418-43).— Ed.
+
+
+
+
+
+**[p. 352]**
+
+3)Mäurer's letter, which, like mine, I found open in the enclosed envelope, is also superscribed in a strange hand. I enclose the page with the writing.
+
+Hence there are only two possibilities. Either the French Government opened and seized your letters and your packet. In which case return the enclosed addresses. We will then not only initiate proceedings against the French Post-Office but, at the same time, publicise this fact in all the opposition papers. In any event it would be better if you addressed all packets to a French bookshop. However, we do not believe that the French Government has perpetrated the kind of infamy which so far only the Austrian Government has permitted itself.
+
+There thus remains the second possibility, that your Bluntschli and associates have played this police-spy trick. If this is so, then (1) You must bring proceedings against the Swiss and (2) Maurer as a French citizen will protest to the Ministry.
+
+As far as the business itself is concerned, it is now necessary: a) To ask Schüller not to issue the aforesaid document for the time being, as this must be the principal ornament of our first number.2
+
+ß) Send the whole of the contents to Louis Blanc's address: No. 2 or 3, rue Taitbout.
+
+t) Ruge is not yet here. I cannot very well begin with the printing until he has arrived. I have had to reject the articles so far sent to me by the local people (Hess, Weill, etc.) after many protracted discussions. But Ruge is probably coming at the end of this month, and if at that time we also have the document you promised, we can begin with the printing. I have written to Feuerbach,b Kapp and Hagen. Feuerbach has already replied.113
+
+Ô) Holland seems to me to be the most suitable place providing that your police spies have not already been in direct touch with the government.
+
+If your Swiss people have perpetrated the infamy I will not only attack them in the Réforme, the National, the Démocratie pacifique, the Siècle, Courrier, La Presse, Charivari, Commerce and the Revue indépendante, but in the Times as well, and, if you wish, in a pamphlet written in French.
+
+[^1]: a Of the Deutsch-Französische Jahrbücher.—Ed.
+
+[^2]: See previous letter.— Ed.
+
+
+
+
+
+**[p. 353]**
+
+These pseudo-Republicans will have to learn that they are not dealing with young cowhands, or tailors' apprentices.
+
+As to the office I will try to acquire one along with the new lodging into which I intend moving. This will be convenient from the business and financial viewpoint.
+
+Please excuse this scraggy letter. I can't write for indignation.
+
+Yours, Marx
+
+In any case, whether the Paris doctrinaires or the Swiss peasant lads were responsible for the trick, we will get Arago and Lamartine to make an intervention in the Chamber. If these gentlemen want to make a scandal, ut scandalum fiat.3 Reply quickly for the matter is pressing. Since Maurer is a French citizen, the plot on the part of the Zürichers would be a violation of international law, with which the cowhands shall not get away.
+
+First published in German and Russian Printed according to the original in the journal Voprosy istorii KPSS No. 4, Published in English for the first 1958 time
+
+[^1]: Scandal they shall have.— Ed.
+
+
+
+
+
+**[p. 1844]**
+
+3 TO LUDWIG FEUERBACH114
+
+IN BRUCKBERG
+
+Paris, August 11 [1844]
+
+rue Vanneau 38 Dear Sir,
+
+Since I just have the opportunity, I take the liberty of sending you an article of mine in which some elements of my critical philosophy of law2 are outlined. I had already finished it once but have since revised it in order to make it more generally com- prehensible. I don't attribute any exceptional value to this essay but I am glad to have an opportunity of assuring you of the great respect and—if I may use the word — love, which I feel for you. Your Philosophie der Zukunft, and your Wesen des Glaubens, in spite of their small size, are certainly of greater weight than the whole of contemporary German literature put together.
+
+In these writings you have provided—I don't know whether intentionally—a philosophical basis for socialism and the Com- munists have immediately understood them in this way. The unity of man with man, which is based on the real differences between men, the concept of the human species brought down from the heaven of abstraction to the real earth, what is this but the concept of society!
+
+Two translations of your Wesen des Christentums, one in English and one in French, are in preparation and almost ready for printing. The first will be published in Manchester (Engels has been supervising it) and the second in Paris115 (the Frenchman Dr. Guerrier and the German Communist Ewerbeck have translated it with the help of a French literary expert).b
+
+At present, the French will immediately pounce on the book, for
+
+[^1]: "Contribution to the Critique of Hegel's Philosophy of Law. Introduction" (see this volume, pp. 175-87).—Ed.
+
+[^2]: This paragraph is in square brackets in the original.— Ed.
+
+
+
+
+
+**[p. 355]**
+
+both parties—priests, and Voltairians and materialists—are look- ing about for 'help from outside. It is a remarkable phenomenon that, in contrast to the eighteenth century, religiosity has now passed to the middle and upper classes while on the other hand irreligiosity—but an irreligiosity of men regarding themselves as men—has descended to the French proletariat. You would have to attend one of the meetings of the French workers to appreciate the pure freshness, the nobility which burst forth from these toil-worn men. The English proletarian is also advancing with giant strides but he lacks the cultural background of the French. But I must not forget to emphasise the theoretical merits of the German artisans in Switzerland, London and Paris. The German artisan is still however too much of an artisan.
+
+But in any case it is among these "barbarians" of our civilised society that history is preparing the practical element for the emancipation of mankind.
+
+For me the difference between the French character and our German character was never demonstrated so sharply and convinc- ingly as in a Fourierist work which begins with the following sentences:
+
+"It is in his passions that man reveals himself completely." "Have you ever met a person who thought in order to think, who remembered in order to remember, who imagined in order to imagine, who wished in order to wish} Has this ever happened to you? No, obviously not!"a
+
+The main driving force of nature as of society is, therefore, the magical, the passionate, the non-reflecting attraction and
+
+From this there follows: "The attractive powers are proportional to the destinies.'"1
+
+Do not all these sentences give the impression that the Frenchman has deliberately set his passion against the pure activity of German thought? One does not think in order to think, etc.
+
+[^1]: "everything which exists, man, plant, animal or planet, has received an amount of power corresponding to its mission in the system of the universe" .b
+
+[^2]: a "L'homme est tout entier dans ses passions." "Avez-vous jamais rencontré un homme qui pensât pour penser, qui se ressouvint pour se ressouvenir, qui imaginât pour imaginer? qui voulait pour vouloir} cela vous est-il jamais arrivé à vous même? non, évidemment non!"
+
+[^3]: AU French passages occurring in this letter are translated in the text and the French original given in footnotes. The quotations are taken from Exposition de
+
+[^4]: la science sociale, constituée par C. Fourier, by E de Pompery, Paris, 1840, pp. 13 and 29.— Ed.
+
+[^5]: "Tout être, homme, plante, animal ou globe a reçu une somme des forces en rapport avec sa mission dans l'ordre universel".— Ed.
+
+[^6]: "Les attractions sont proportionnelles aux destinées."—Ed.
+
+
+
+
+
+**[p. 356]**
+
+The character of the Literatur-Zeitung can be reduced to the following: "Criticism" is transformed into a transcendental being. These Berliners do not regard themselves as men who criticise, but as cri)ics who, incidentally, have the misfortune of being men. They therefore acknowledge only one real need, the need of theoretical criticism. People like Proudhon are therefore accused of having made some "practical" "need" their point of departure. This criticism therefore lapses into a sad and supercilious intellectualisai. Con- sciousness or self-consciousness is regarded as the only human quality. Love, for example, is rejected, because the loved one is only an "object". Down with the object. This criticism thus regards itself as the only active element in history. It is confronted by the whole of humanity as a mass, an inert mass, which has value only as the antithesis of intellect. It is therefore regarded as the greatest crime if the critic displays feeling or passion, he must be an ironical ice-cold aocpoc .b
+
+Thus Bauer says literally:
+
+The tone of Bauer's Literatur-Zeitung is therefore one of dispas- sionate contempt and he makes it all the easier for himself by flinging the results of your work and of our time as a whole at other people's heads. He only exposes contradictions and, satisfied with this occupation, he departs with a contemptuous "Hm". He declares that criticism does not give anything, it is far too spiritual for that. Indeed, he plainly expresses the hope:
+
+It seems that Bauer has fought against Christ out of rivalry. I am going to publish a small booklet attacking this aberration of criticism. It would be of the greatest value to me if you would let me know in
+
+[^1]: "The critic should participate neither in the sufferings nor in the joys of society; he should know neither friendship and love, nor hate and envy; he should be enthroned in a solitude, where only the laughter of the Olympian Gods over the topsy-turviness of the world resounds occasionally from his lips."
+
+[^2]: "the time is not distant when the whole of degenerate mankind will rally against criticism" — and criticism means Bauerand company—"they will then sort out this mass into different groups and distribute the testimonium paupertatis to all of them".
+
+[^3]: Allgemeine Literatur-Zeitung.— Ed. b Sage.— Ed. c Karl Marx and Frederick Engels, The Holy Family. See this edition, Vol. 4.— Ed.
+
+
+
+
+
+**[p. 357]**
+
+Yours,
+
+Karl Marx
+
+First published in the journal Probleme Printed according to the original des Friedens und des Sozialismus Translated from the German and No. 2, 1958 French
+
+[^1]: a Of the League of the Just.— Ed. b See this volume, p. 580.—Ed. c Karoline von Westphalen.—Ed.
+
+
+
+
+
+FROM THE PREPARATORY MATERIALS
+
+
+
+FROM THE MEMOIRES DE R. LEVASSEUR (DE LA SARTHE).
+
+Paris, 1829, etc. In 4 volumes
+
+Volume 1117
+
+[ E X C E R P T S ]
+
+"So what we today assume to have been the frenzy of a few excited maniacs, was the general feeling of a whole people and in a way its manner of life." P. 21.
+
+"Later one saw different opinions dividing the nation; but it was not like Ais in 1788: all those in France who were not making a living out of abuses were united in a unanimous wish to destroy a rule of the sword; all those who were not devourers of the national wealth wished to see its management entrusted to the representatives of the people; all those who were not members of the privileged castes wished to see the law applied equally to all and to make all citizens liable to the same burdens." P. 27.
+
+[^1]: "The Constitution was revised" (after the King's flight) "in a less popular way than it had been originally drawn up; the changes made were not very important but they sufficed to make the Assembly lose all its popularity and the Constitution its most desirable sanction, that of the nation." P. 32.
+
+[^2]: "The session of the Legislative Assembly was nothing but a barely concealed war of the popular power against the royal authority. A war in which each of the two contenders used the Constitution in turn either as a sword or as a shield. An implacable war in which the Constitution, ceaselessly invoked by both sides, was for both sides only an empty word in which nobody believed. For the rest, this impotent Assembly, wrapped by the Constitution in swaddling-clothes, was unable to do anything useful consequently the numerous events which happened during its lifetime did not original« from this body. Constitutionally speaking, or according to the limits of their legal powers, the court and the Assembly could do nothing, and they did nothing. These two great colossi regarded one another in silence and demanded of secret conspiracies what they could not expect from the law." Pp. 37, 38.
+
+[^3]: "Neither the one nor the other" (party) "was honest Hence the crisis in which France had been left by the Constituent Assembly could only be solved in one of two ways: the toppling of the throne or the return to the old regime. Thus for each of the two parties it was a question of their very existence." P. 38.
+
+[^4]: "This great epoch of 1791 to 1792 which decided France's destiny was not marked by outstanding parliamentary struggles. It was between the people and the rulers that the battle continued to be waged. June 20, Pétion's triumph on July 14, and the movements which marked the entry of the volunteers from Marseilles into Paris, these events led to important results118 without the Assembly playing the least part in them.
+
+[^5]: 13—»Hü
+
+
+
+
+
+**[p. 362]**
+
+The deputies acted as conspirators and not as deputies. Even the declaration of war, the major event of this period, was decided by the Jacobins." 119 P. 39.
+
+La Fayette.120 P. 40. August 10.nl P. 41.
+
+"The insurrection, which had replaced all existing authorities on August 10, continued it was an active force and it crushed the enemies of liberty. P. 43.
+
+"The only force which existed in France during the interregnum which began on August 10 was the popular élan, insurrection, anarchy The only means of salvation still remaining was, therefore, to make use of the resources offered by anarchy and to direct against our enemies the brutal force which it aroused." Pp. 43, 44.
+
+"The decrees which it" (the Legislative Assembly) "issued had not the slightest authority. The Ministry, product of an impotent Assembly, was not itself a real power The government therefore passed into the hands of those who knew how to separate themselves from it, that is, to the popular societies and the municipalities. But these improvised centres of government, products of anarchy itself and having no basis in law or in the Constitution, were simply the leaders of the people, powerful as long as they restricted themselves to directing the line of march of the people and giving effect to its wishes; they would not have been able to enforce obedience had they come into conflict with the people and wished to impose on it the rule of law." Pp. 44, 45.
+
+"It is the Gironde which has separated itself from us. It is Buzot who left the place he had occupied in the Constituent Assembly; it is Vergniaud who abandoned the seat he had recently occupied in the Legislative Assembly" (i.e., on the left). P. 49. "We were far from seeking divisions Pétion was nominated President [of the Convention] almost unanimously; the other members of the committee were chosen from amongst the most influential deputies of the previous Assembly3" P. 49.
+
+The new deputies (belonging to the Mountain) knew nothing of the internal split. P. 50.
+
+[^1]: "Thus when we met, the new deputies who formed the great majority in the Mountain, did not even know that there were two camps and that the Republicans were not all inspired by the same sentiments and the same aspirations." P. 51.
+
+[^2]: "The Centre was made up of all those who have the constant habit of declaring themselves in favour of the winning side and who, before they show their colours, look for ways of not compromising themselves and without incurring any risk await further developments. This kind of deputy, who first concealed himself in the Centre, later became an ardent Montagnard and then an even more ardent reactionary. There were also men of talent: Barere Sieyès, Dulaure Boissy d'Anglas." P. 52.
+
+[^3]: "The only party which came to the Convention with a complete system and a previously worked-out plan took their place on the seats on the right." (The Girondists.) P. 52. "By swarming on to the seats opposite ours, they declared war on us, before they even knew us." P. 53.
+
+[^4]: The main speakers for the Girondists [were] lawyers from the Bordeaux Bar; the Girondists [were] all-powerful in the Legislative Assembly where they [had] controlled the majority; they also dominated the Jacobin Club, that is, public opinion; at the time of the insurrection of August 10 [they] believed they had France in their
+
+[^5]: a i.e., the Legislative Assembly.— Ed.
+
+
+
+
+
+**[p. 363]**
+
+hands; when the National Convention was convoked they concluded therefore that no majority independent of them could come about. But the forty-two-day interregnum changed the position. The energy which the Legislative Assembly, that is, the Girondists, had displayed in the struggle with the Crown vanished after August 10. "Feeble and irresolute as soon as the helm of the state was indisputably in their hands" [In their] speeches, declamations, they divorced themselves from public opinion without being able to prevent disorder, "merely depriving themselves of the means available to them for controlling the torrent. The Jacobin Club then became the thermometer of public opinion. It very rarely happened that the majority of Frenchmen opposed its decisions" . B o r a long time the word of the Girondists had been law in the Jacobin Club; even before the end of the Constituent Assembly they expelled the Lameths and drove the Constitutionals "into the unpopular precincts of the Feuillants".124 After August 10 they were superseded and went into opposition to the Jacobins. The Provisional Council of Ministers, entrusted with executive power by the Gironde on August 10, was powerless "since the party on which it depended had made itself unpopular", "executive power was in fact exercised by the Communes, especially by the Commune of Paris, composed of men of vigour and beloved of the people. The elections in the capital took place under the influence of the Commune whose leading members were elected". Pp. 53, 54. Hence the hostile attitude of the Girondists. "On their arrival in Paris all the deputies who were known to have energy and patriotism were admitted to the Jacobin Club in which the Commune had great influence. These deputies sat on the left-hand side, which was sufficient to make the men of the Gironde take their seats on the right. The Jacobins, having spurned their authority, had become their enemies", and also those deputies who sat on the side of the Commune and the deputies of Paris. P. 55.
+
+Danton, pp. 56, 57. Robespierre, Marat, pp. 57, 58.125
+
+The Girondists begin the struggle. P. 63.
+
+[^1]: "Thus at the beginning of the session, the Convention was not divided into parties But there arose in its midst an ambitious clique which wished to impose its opinions on the assembly and prepared to fight to avenge the wounds which its self-conceit had suffered and to satisfy its particular resentments." P. 55
+
+[^2]: "The majority of the party of the Gironde were by no means traitors but some were concealed in its ranks. No, it did not desire the ruin of the Republic, but its theories led in that direction." P. 59. The Girondists were the aggressors, the Montagnards were at first on the defensive, ibid.
+
+[^3]: On September 21. 1792, the session of the Convention begins. The President is Pétion.
+
+[^4]: Danton, pp. 60, 61, 62 .a
+
+[^5]: The first two decrees passed by the assembly had been proposed by Danton: 1) "No Constitution without the approval of the people." b 2) "Safety of persons and property to be protected by the nation." Unanimous adoption of Grégoire's motion: 3) Abolition of the monarchy.
+
+[^6]: "On September 24, Kersaint, speaking of the dangers facing the Convention in the capital, proposes to surround it [the Convention] with a force drawn from the Departments. P. 63. The Girondists are against the Commune, which has been
+
+[^7]: a This refers to a speech of Danton (see this volume, p. 368).— Ed This sentence is in German in the manuscripts.— Ed.
+
+
+
+
+
+**[p. 364]**
+
+effacing them since August 10, as well as against Danton, who dominated the Executive Council. [P. 64.] Before the convocation of the Convention the [members of the] deputation of Paris had nearly all been part of the Commune of August 10. P. 63. Hence the wrath of the Girondists "against that redoubtable Commune and particularly against the deputation of Paris". Pp. 63, 64.
+
+Thus one sees: the Girondists wanted to avenge themselves for their defeat and insignificance during the interregnum beginning on August 10.
+
+Joseph Egalité [Duke of] Orléans and Jean Paul Marat. Pp. 64, 65."
+
+"Such a man" (Marat) "would never have exercised the least influence if the Girondists had not increased his importance by attacking in his person the very principle of energy and provided him with the opportunity at least to display the calmness, the consistency, sang-froid and contempt for insults characteristic of real conviction and devotion." P. 65.
+
+September 24. Concealed attack on the Commune and on a number of Pans deputies "for seeking to organise a dictatorship".
+
+September 25. Barbaroux and Rebecqui accuse Robespierre .b
+
+Danton pleads for harmony. Pp. 66, 67. The Girondists continue with their denunciations. Vergniaud against Marat. P. 67.
+
+Marat, pp. 68, 69.126
+
+The dissensions continue every day: "the differences between the Ministers Roland and Danton, the offences ascribed to the Commune of Paris, Marat's posters, were the pretexts for these useless struggles". P. 69. Victory seemed almost always to go to the Girondists. P. 70. The majority are as yet not firmly organised and vacillate undecidedly. "Thus for a long time a large number of firm Republicans voted with the Right—they included Philippeaux, Cambon, Cambacérès, etc." P. 70.c
+
+[^1]: September 29. Roland, elected deputy of the Somme Department, announces to the Convention his intention of resigning his position as Minister of the Interior. Buzot demands "that the Minister be invited to remain at his post; all the Girondists support him". Philippeaux proposes "to ask Danton to support this invitation". Danton is against this: "the only possible way in which Roland can be retained in his post is to pronounce his election invalid".
+
+[^2]: Struggle, Roland's letter, etc. Pp. 70, 71 c. Decree dissolving the Commune of Paris. Pp. 73, 74, 75.d
+
+[^3]: "The mutual accusations were repeated each day with renewed fury. The Right always began the attack, basing itself on facts that occurred prior to the meeting of the Convention, constantly exploiting the kind of repugnance which Marat aroused in the assembly as a whole in order to incriminate the entire Mountain." P. 78, cf. p. 79. " inter-party strife in the course of which the elected representatives of the people wasted precious time and consumed energies which they ought to have directed entirely against the enemies of France." P. 79.
+
+[^4]: a Cf. this volume, pp. 368-69.— Ed. b Cf. this volume, p. 369.— Ed. c Cf. this volume, p. 369.— Ed. a Cf. this volume, p. 369.— Ed.
+
+
+
+
+
+**[p. 365]**
+
+October 29. Roland's, Louvet's accusation against Robespierre. P. 80 sqq.
+
+" he" (Louvet) "and Barbaroux were, quite undoubtedly, the only men of action in their party". P. 81.
+
+"The long-winded and garrulous eloquence of the latter" (Robespierre). P. 82.127
+
+"The committees of the Convention and the Convention itself dealt with all the branches of administration and performed through decrees numerous and fre- quent acts of executive authority. On the other hand, the municipalities had also taken over a large section of the administration. Civil power, military power, even judicial power, nothing was properly organised As soon as, for any reason whatsoever, a gathering of citizens was called upon to deal with a matter of public concern, it would at the same time interfere in matters quite unconnected with the task it had been given If there existed an infinity of powers in practice, a single collective entity, the Convention, legally united in itself all the authority of the social body, and it frequently used it: it acted as the legislative authority through its decrees, as the administration through its committees, and besides it exercised judicial power through the manner in which it extended the right of indictment." P. 85.
+
+"As a transitional state between the monarchy which had been destroyed and the Republic which was being organised, as a weapon of war against the aristocracy, the emigration and foreign invaders, this concentration of all powers was a happy symptom and, I would say, even indispensable." P. 86.
+
+"It is they" (the Girondists) "who demanded bills of indictment against their colleagues; it is they who in handing over Marat to the Revolutionary Tribunal violated the immunity of the elected representatives of the people." P. 87.a
+
+December 16. Buzofs motion for the expulsion of [the Duke of] Orleans and his sons; Buzot was supported by Louvet and Lanjuinais.128
+
+[^1]: Roland's intrigues. Pp. 88, 89.b
+
+[^2]: "In spite of their prejudices against us, Louvet, Roland, Guadet, Pétion, Gensonné were true and sincere Republicans." P. 90.
+
+[^3]: About the Girondists, pp. 90, 91.129
+
+[^4]: "The dissensions which hampered the deliberations of the National Convention soon manifested themselves in the Executive Council. When Servan was compelled to relinquish the Ministry of War on account of ill health, the Convention, on Roland's suggestion, unhesitatingly appointed citizen Pache, then working in the Ministry of the Interior, to take his place. The new Minister did not share the aversions and the views of his patron." P. 91.
+
+[^5]: "During these interminable quarrels, the committees of the Convention were not as inactive as the Convention itself. The Committee of National Defence, under the influence of Camot, assisted our armies and paved the way for our victories; the Committee of Accounts, for which Cambon was the regular reporter, created resources with the aid of the paper money, which under the name of assignats was so greatly and so frequently devalued, and by the sale of national property." Pp. 92, 93.
+
+[^6]: "By the end of January 1793 the Montagnards had abandoned the defensive which they had maintained perhaps too long and gone over in their turn to the attack on the Gironde." P. 100.
+
+[^7]: a Cf. this volume, p. 373.— Ed. b Cf. this volume, p. 370-371.— Ed.
+
+
+
+
+
+**[p. 366]**
+
+After the death of Michel de Le Peletier Saint-Fargeau "the Girondists ceased to have an assured majority". P. 101.
+
+Danton, p. 143 sqq."
+
+THE STRUGGLE BETWEEN THE MONTAGNARDS
+
+AND THE GIRONDISTS An interregnum begins on August 10, 1792. Impotence of the Legislative Assembly, impotence of the Ministry to which it had given rise. Government passes over to the public meetings and municipalities; improvised centres of government, products of anarchy, they were bound to be the expression of the popular movement, for their power was only the power of popular opinion (pp. 44, 45). From now on division amongst those with influence.
+
+One party wishes to re-establish the order disrupted by August 10 and to ensure the implementation of the existing laws. The principal members of the Ministry and of the Legislative Assembly are the leaders of this party.
+
+The other party sees in anarchy the only mobile d'actionb, in the enthusiasm which it produces the substitute for a ready-made organisation, the only power of resistance externally and internally. These men are the masters of the Commune of Paris and of nearly all other municipalities in France, they possess one voice (Danton) in the Ministry (pp. 45, 46).
+
+The Girondists (the first party) do not oppose any effective means to the popular movement. Their theories are limited in practice to speeches and declamations, which make their unpopu- larity almost universal without having the slightest effect on developments.
+
+Had they been quelled, all public life would have been extin- guished (pp. 46, 47).
+
+The provinces detest the September murders but they are grateful to the men who are maintaining the insurrectionary fever in order to fill the army camps with citizen soldiers.
+
+[^1]: "During this period, the Commune of Paris drives the citizens towards the frontiers; the alarm guns, thundering away hour after hour, proclaim the public danger; all citizens enrol in the sections in order to march against the enemy."
+
+[^2]: During this period occur the September days.lso
+
+[^3]: The Girondists are despised; lacking the courage to drive the citizens against the foreign troops, they do not even know how to organise an energetic resistance to the crimes which they denounce and which they use as a means of recrimination against their vigorous enemy.
+
+[^4]: a Cf. this volume, p. 373-74.—Ed. Driving force.—Ed.
+
+
+
+
+
+**[p. 367]**
+
+The elections took place during this stormy period. When the Convention opened, Paris was still in the grip of the insurrectionary movement and the Commune was all-powerful.
+
+The Girondists were the first to separate themselves from the Montag- nards. The almost unanimous election of Pétion as President of the Convention shows how little the newly-arrived men of the Moun- tain were looking for divisions; the other members of the committee were likewise elected from amongst the most influential members of the previous Assembly.3 Almost all the newly-arrived deputies knew nothing of the inner dissensions. Robespierre and Pétion, Danton and Guadet equally enjoyed their respect.
+
+The only party which came to the assembly with a complete system and a previously worked-out plan (the Girondists), took their place on the right-hand side. By leaving their former seats (on the left) and rushing en masse to the right-hand side, they declared war on the newly-arrived Republicans who surged on to the left as the traditional side of patriotism.
+
+The Girondists had controlled the majority in the assemblée legislative as well as in the Jacobin Club. They thought they had France in their hands at the time of August 10. In summoning the National Convention they never suspected for a moment that a majority independent of them could arise. But the forty-two-day interregnum altered the state of affairs and the character of the elections.
+
+[^1]: "The Legislative Assembly, that is, the Girondists, had displayed some energy in the struggle against the Court. They showed themselves to be weak and irresolute as soon as they obtained undisputed control of the state. They did not know how to restrain the current unleashed by August 10; they were inept enough to oppose it with declamations. They isolated themselves from public opinion without being able to prevent any disorder whatsoever. They only deprived themselves of the means they had to direct events. The Jacobin Club was the thermometer of public opinion at that time. [] The word of the Gironde had been law there for a long time. Even before the dissolution of the Constituent Assembly they had dethroned the Lameths and driven the Constitutionals into the unpopular precincts of the Feuillants. After August 10, they allowed themselves in their turn to be superseded: they lost their popularity, nearly all of them left a society whose merits they had loudly proclaimed as long as it applauded their views but which they regarded as nothing more than a den of rebels as soon as it thought differently than they did.
+
+[^2]: "The Gironde had, moreover, on August 10 vested executive power in a Provisional Council of Ministers. Without any support in the nation, this Council was powerless as soon as the party to which it belonged became unpopular. The executive power was in fact exercised by the Communes, and especially by the Commune of Paris, composed of vigorous men of the people. The elections in the capital took place under the influence of the Commune. Its leading members were elected [to the Convention]."
+
+[^3]: i.e., the Legislative Assembly.— Ed.
+
+
+
+
+
+**[p. 368]**
+
+Hence the hostile attitude of the Girondists from the very first moments of the Convention.
+
+"All new deputies who were known to have energy or patriotism, were admitted on their arrival to the Jacobin Club, in which the Commune had great influence. These deputies took their seats on the left side. This sufficed to drive the Girondists to the right. The Jacobins [] had become their enemies []; they called their new opponents Jacobins. [] Originally only enemies of the Commune and of the deputation of Paris, they extended their hatred to include all who sat on the side used by the Jacobins and who were ardent Republicans. Thus at the beginning of the session, the Convention was not divided; a solid mass of Republicans united by a common feeling, in other respects however differing on many points. But an ambitious clique arose in its midst, which wished to impose its opinions on the assembly and prepared to fight to avenge the wounds which its self-conceit had suffered and to satisfy its private resentments."
+
+The majority of the Girondists were not traitors, but there were traitors in their ranks; the ruin of the Republic was not their aim but the consequence of their theories; the few Royalists in the Convention therefore joined forces with them. They were the attackers; the Mountain was on the defensive for a long time; the Girondists were unable to sacrifice their egotism for the public cause (pp. 47-59).
+
+On September 21, 1792, opening of the Convention. Pétion President. Danton resigns his post as Minister of Justice. A conci- liatory speech. No Constitution could exist unless it was accepted by a majority of the primary meetings. A declaration regarding security of property ought to be decreed. Both Danton's proposals became decrees (the first decrees promulgated by the Convention). In his speech Danton declared that the popular agitation was temporarily necessary; now, however, the constituted power of the Convention should replace it, excesses should be abandoned.
+
+Unanimous abolition of the monarchy on Grégoire's motion. The first session of the Convention shows the desire of the Mountain for general reconciliation in the interests of order and of freedom. The Girondists immediately demonstrate their urge to take revenge.
+
+On September 24, Kersaint, speaking of the dangers in the capital, proposes to surround it [the Convention] with force recruited from the Departments. This is the first declaration of war by the Girondists who are full of anger against the deputation of Paris because the Girondists who had been members of the Legislative Assembly were annihilated as a result of the activities of the Commune and because of Danton's domination in the Executive Council.
+
+Jean Paul Marat and Joseph Egalité in particular gave the Girondists the opportunity of making spiteful charges against the
+
+
+
+**[p. 369]**
+
+Mountain, charges of blood-thirstiness and anarchy on the one side and of ambition and Royalism on the other.
+
+September 24. Indirect accusations that the Commune of Paris is striving for a dictatorship.
+
+September 25: Rebecqui and Barbaroux name Robespierre as the candidate of the dictatorship. Danton again preaches concord and defends the Commune: an extra-legal power had been necessary under the weak leadership of the assemblée legislative, now there should be a return to order. Girondists do not pay attention to Danton's admonitions; they keep returning to the past in order to seek continual grounds for recrimination.
+
+Vergniaud and Boileau attack Marat. Marat's courageous reply. The assembly turns to the business of the day. But the hostilities already initiated are continued.
+
+"While [the Assembly] waited for a decisive act and a split between Roland and Danton, the alleged outrages by the Commune of Paris and Marat's posters served as pretexts for these useless conflicts. Victory seemed almost always to favour the side of the Girondists. The majority was not yet organised during these first conflicts, swaying uncertainly this way and that. For a considerable time many firm Republicans, e. g., Philippeaux, Cambon, Cambacérès, voted with the Right.
+
+September 29: Roland, elected deputy of the. Somme Department, informs the Assembly that he would relinquish his position as Minister of the Interior. Those on the right express their regrets. Buzot proposes to request Roland to remain at his post, Philip- peaux would like Danton to support this request; Danton opposes; an invitation is below the dignity of the Convention; the only way to keep Roland at his post is to declare his election null and void. The Girondists insist on an invitation. Valazé declares that Ro- land's name is holy to him. Louvet, Barbaroux overwhelm him with praise. This time the men of the Centre, Barère, Lacroix, Tureau," who often provided the Right with a majority without actually belonging to them, are against Buzot's proposal.
+
+September 30: Roland writes a letter to the Convention in which he states that he wants to remain Minister, he praises himself a great deal in this letter, lectures his opponents, accuses Danton indirectly; all these reproaches against Danton and the Commune refer to facts which occurred prior to the meeting of the Convention; evidence of the hatred of a vanquished party for the victors.
+
+[^1]: Each day the Right persecutes the Commune, which is defended by the deputies of Paris. Finally this revolutionary authority is ordered to dissolve; it is requested to give an account of itself. New source of strife emerges. The comité de surveillance of the Commune gives notice to the Convention of the seizure of important papers
+
+[^2]: a This is evidently a misprint, it refers to Thuriot.—Ed.
+
+
+
+
+
+**[p. 370]**
+
+which will throw light on the treacheries of the Court, in which several deputies will find themselves compromised. It asks that it should nojt be compelled to part with these documents and to be allowed to continue to function until a favourable moment for their use. [] The Girondists regard this as an open wish on the part of the Commune to perpetuate its functions; the Montagnards see in their opponents people interested in stifling the truth. The discussion confirms each party in its prejudices. [] The documents are finally handed over to a commission of 25 representatives, which comprises no members either of the Commune and the deputation of Paris, or of the Constituent and Legislative Assemblies.
+
+Nothing emerges either against the Commune or against the Gironde. Even the report of Joseph Delaunay (a Girondist deputy) comes out, in the main, in favour of the Commune.
+
+"The mutual accusations are repeated daily with renewed fury, the Right always initiating the attack, basing themselves on facts which occurred before the convocation of the Convention. [] Freedom of opinion is always misconstrued when a representative of the Left wishes to speak; Robespierre was driven from the rostrum by uproar and insults."
+
+Marat was only able to make his reply by dint of perseverance.
+
+Up to now the Right has always had a majority; the Mountain votes with it whenever questions of principle, establishment of order, implementation of laws, etc., are involved.
+
+In his reports to the Convention, Roland constantly repeats that the crimes of the interregnum still have to be punished, and introduces indirect accusations against Robespierre and Danton, and also against the deputation of Paris.
+
+Roland is furious because Danton's supremacy in the Council has crushed him.
+
+On October 29 Roland makes a report to the Convention in which Robespierre is again accused. While on the rostrum seeking to defend himself, Robespierre is interrupted by the clamour of the Girondists and by constant interjections by President Guadet.
+
+December 16. Thuriot brings about the proclamation of the unity and indivisibility of the Republic. Buzot proposes a motion for the expulsion of the Duke of Orléans and his sons and is supported by Louvet and Lanjuinais. In this way the Girondists make the first attempt to decimate the National Assembly. Incidentally, the
+
+[^1]: Louvets attack on Robespierre. November 5.a Robespierre's reply. "Return to the order of the day demanded on all sides, even Vergniaud, Guadet and Pétion support this. Only Salles, Barbaroux, Lanjuinais, Lariviére stand by Louvet []. The return to the agenda is adopted almost unanimously. Barbaroux still demands the floor in order to support the accusations [] and then goes down to the bar and wants to speak as plaintiff and even as the accused. This unseemly scene is prolonged and, as usual, ends without the assembly having made any decisions whatsoever" (pp. 60-83).
+
+[^2]: a Marx has: "November 6", apparently a slip of the pen.— Ed.
+
+
+
+
+
+**[p. 371]**
+
+Girondists are on friendly terms with Orléan's creatures — Dumouriez, Sillery, Biron, Valence.
+
+The Ministers showed open bias in favour of the Girondists.
+
+"When Louvet accused Robespierre, the Convention ordered the printing of both the indictment and the defence. Roland had Louvet's speech distributed in large quantities with the words: Imprimé par ordre de la Convention,3 and restricted the distribution of Robespierre's speech to members of the Convention. Thus the impression was to be produced among the public that a kind of censure had been pronounced on Robespierre. A similar knavish trick was repeated over the decree concerning the banishment of the Bourbons. Before the reading of the minutes, which signified its adoption, i.e., before the final wording had been approved by majority decision as was the rule, its printing was speeded up and its dispatch to the 84 Departments carefully arranged by Roland, while the postponement of any decision regarding the fate of Philippe Egalité was not given the same publicity. Thus one could believe that the supporters of Orléans, brought about the repeal of a decree which concerned him by a surprise move on the next morning []."
+
+The dissensions which interfered with the deliberations of the National Convention soon crept into the Executive Council itself. Servan retiring on account of ill health, the Convention on Roland's recommendation appointed Fache, then working in the Ministry of the Interior. Pache wanted to be independent, in addition he associated with the Jacobins. Pache was a good patriot but a bad Minister of War. By accusing him of treason, the Girondists caused a redoubling of the recriminations which for a long time had been levelled against Roland.
+
+Assignats, law concerning the practice of worship (cf. p. 93), decree concerning food, compare Levasseur's speech, p. 94 sqq.131
+
+Shortly after the decree on means of subsistence, discussions in connection with the trial of Louis XVI. This occasioned further acrimony.
+
+End of January 1793. Baseless animosities, just as at the begin- ning of the Convention. But a big change has taken place in the temper of the assembly. The Mountain has now gone over from the defensive to the offensive. The war of the parties is at fever heat.
+
+The Marsh, tired of the capricious intrigues and the conceit of the Girondists, frequently allies itself with the Mountain against them. Roland's resignation accepted.
+
+January 28: Buzot denounces the comité de sûreté générale11 (in
+
+[^1]: "There is a feeling that from now on it is impossible to advance towards any organisation of the Republic without the complete destruction of one of the two parties.
+
+[^2]: "The assassination of Michel de Le Peletier Saint-Fargeau led to an argument and an open breach between the two extremes."
+
+[^3]: a Printed by order of the Convention.— Ed. Committee of Public Safety.— Ed.
+
+
+
+
+
+**[p. 372]**
+
+which apart from the Girondists there are several Montag- nards—Tallien, Chabot, Bazire) on account of the arrest of a journalist and demands its dissolution.
+
+"The Girondists were in the habit of sacrificing any institution rather than allow it to flourish in the hands of their opponents" (pp. 84-103).
+
+March 8. Great agitation because of the military set-backs in Belgium under Dumouriez. Commissioners are sent to all the sections [of] Paris to call the citizens to arms, and also to the Departments.
+
+March 9. The Commissioners present their reports. Guarantees are demanded against internal conspiracies. Decree for the estab- lishment of an extraordinary criminal court, from whose findings there is no appeal, for the hearing of all cases involving traitors, conspirators and counter-revolutionaries. Great excitement in the capital. The printing-presses belonging to Gorsas are smashed up; he is forced to flee. The people were so worked up that it required a decree of the Convention to get the bakers to return to the bakeries and the Post-Office clerks to the telegraph office.
+
+March 10. Debates about the organisation of the Revolutionary Tribunal.
+
+Great excitement in Paris. Evening session of the Convention at 9 o'clock. The seats on the right almost empty. After midnight the combined crowds in the Champs Elysées assume a rebellious character. They go to the Jacobin and Cordelier Clubs, they preach insurrection against the Convention. These proposals are rejected by the Montagnards.132
+
+March 11. Decree relating to the Revolutionary Tribunal. March 12. Marat speaks against the assaults made on the 10th. March 13. Complaints and attacks by the Girondists in connec- tion with March 10.
+
+When it was first established, the comité de sûreté générale was composed overwhelmingly of Girondists.
+
+[^1]: "The rebellious movements of March 10 in Paris were nurtured by all the parties, because all of them took part in the agitation — an agitation stirred up in order to drive the people to the frontiers; the scenes on March 10 were a necessary consequence of this impassioned state. The Mountain, sitting alone in the Chamber, had quietened the threatening disorders in a few hours. Pache and Santerre [] were praised for their ardour; Marat and Dubois-Crancé pacified both the Jacobin and the Cordelier Clubs and persuaded them to abandon their sinister plans. Marat first of all denounced the March 10 disorders, he initiated a decree of indictment against Fournier l'Américain, one of their instigators; La Source, an impassioned Girondist, addressed eulogies to him during the March 12 session. Finally, [] a member of the Right who had insulted Marat during the same sitting [] was censured and it was unanimously decided to enter this in the official record despite the revolting partisanship against the ami du peuple which people were in the habit of displaying" [pp. 122-23].
+
+
+
+
+
+**[p. 373]**
+
+A few days after March 10, the Girondists wanted to shift responsibility for it on to the Mountain.
+
+"Stormy sessions became the customary state of affairs in the Convention. Tumultuous scenes. [] The galleries often participated in these scandalous interruptions. Then the Girondists screamed that they were no longer safe in Paris, they called the Departmental forces to their aid. The Mountain, from their side, accused their opponents of preaching civil war. Sometimes whole days and nights passed in these wretched debates" [p. 127].
+
+Nevertheless the immunity of deputies was still respected on all sides until now. The Right was the first to depart from this rule. On Guadet's motion, Marat was committed for trial. The Legislation Committee prepared a bill of indictment in which his condemnation was anticipated. Marat was unanimously acquitted by the Revolutionary Tribunal, and led back to the Convention by the people in triumph [pp. 127-29].
+
+This event had important results. Party conflicts of the deputies assumed the form of legal proceedings. The persecution of Marat was the immediate prelude to May 31.133
+
+March 18. Defeat of Dumouriez near Neerwinden; his letters to the Executive Council contain insults against the Convention (Danton's opinion regarding Dumouriez, p. 133).134 The Girondists applaud his insolent letters.
+
+March 29. A letter from Dumouriez evokes the greatest indigna- tion. Decree ordering Dumouriez to appear before the bar of the House, etc. The treason of Dumouriez.
+
+April 3. La Source dares to denounce Danton as an accomplice of Dumouriez. (Cf. p. 137.) Danton declares war on the Girondists. Danton's speech makes great impression. Danton had tried to bring about a reconciliation between the two sides of the assembly.
+
+[^1]: "Although he was sitting on the summit of the Mountain, he was, to some extent, the leader of the Marsh. He had often criticised the passion of the Montagnards, fought against Robespierre's suspicions, maintained that instead of fighting the Girondists one should compel them to support the Mountain in order jointly to save the common cause. Even a few days before La Source's attack, Danton had had a conference with the chief leaders of the Right at which agreement was reached to work together in harmony and to concentrate on the struggle against the foreigners and the aristocrats. The whole of the Mountain loved Danton but the majority thought that he misjudged the situation if he hoped to establish an alliance between the Mountain and the Gironde." [p. 143].
+
+[^2]: "The discussions assumed a much more serious character toward the end of April and the beginning of May. No more parliamentary bickering but a life and death struggle. Each side began to seek help from outside in order to win. But [] the Mountain, in spite of this internal discord, paid serious attention to matters concerning France while the Gironde only thought about the destruction of its opponents and abandoned completely the direction of the state. During these two months the question of the maximum was dealt with. [] The Right fought [] this measure by means of slanders. It made accusations about violation of the right to own property and threats to the life of property owners. These declamations
+
+
+
+
+
+**[p. 374]**
+
+were aimed at turning the middle classes against the Mountain. The maximum was adopted" [p. 147, 150].
+
+The Girondists always had the majority when party wrangling was involved, as, for example, when such questions as the impeachment of Marat, the March disorders, the petitions of the sections, the Commission of the Twelve, were being discussed. The Mountain had the majority when big questions of general interest were involved, such as the maximum, means for revolutionary recruitment, the extraordinary tribunal, forced loans, etc.
+
+An incident occurred during the discussion of the maximum. Ducos was on the rostrum criticising the proposed measure, counterposing the sansculottes to the middle classes, when a violent uproar broke out in one of the public galleries. Guadet demands the transfer of the Convention to Versailles. Acclamation on the right. Levasseur demands that the rules should be observed and the galleries cleared. Resistance by the Right. Philippeaux,, Danton, Lacroix vainly call on the assembly to remember its dignity and its urgent obligations. In vain they demand that matters of the greatest importance should not be interrupted on account of an insignificant incident. The Girondists had to give vent to their rage. Animated discussion, attacks on the Paris authorities, threats that the provinces would take vengeance.
+
+Disorders in the Vendée had developed into a real civil war. New enrolments and renewed expenditure of funds became necessary. Danton, Desmoulins, Philippeaux, Couthon tried to find means to make this possible. The only possible means of meeting the urgent expenditure was the mobilisation of the national wealth, an emprunt force* (cf. p. 161 sqq.), which was derived from superfluous wealth in the hands of citizens.
+
+The Girondists, who denounced the measures of the Mountain, did not even propose an alternative plan. They did nothing at all.
+
+[^1]: Thus the tocsin of civil war was sounded at the very moment when it was a question of interests which had roused the people. The intention was to incite the two classes of the people against one another. The Mountain went with the party of the popular masses, where the sinewy arms and strong devotion are to be found [pp. 152-53].
+
+[^2]: Written at the end of 1843 and the beginning of 1844
+
+[^3]: First published in part in: K. Marx and F. Engels, Works, Vol. Ill, Russ. ed.,
+
+[^4]: 1930; in full in: Marx/Engels, Gesamtaus- gabe, Abt. 1, Bd. 3, 1932
+
+[^5]: a A forced loan.— Ed.
+
+[^6]: Printed according to the manu- script
+
+[^7]: Translated from the French and German
+
+[^8]: Published in English for the first time
+
+
+
+SUMMARY OF FREDERICK ENGELS' ARTICLE "OUTLINES OF A CRITIQUE OF POLITICAL ECONOMY" PUBLISHED IN DEUTSCH-FRANZÖSISCHE JAHRBÜCHER136
+
+Private property. Its immediate consequence—trade—like every activity, is a direct source of gain for the trader. The next category to which trade gives rise is value. Abstract real value and exchange-value. For Say utility is the determining feature of real value, for Ricardo and Mill*— the cost of production. For the Englishmen, competition as against the cost of production repre- sents utility; for Say, it is the cost of production. Value is the ratio of the production costs to utility. Its immediate application: the decision whether to produce at all, whether utility outweighs the cost of production. The practical application of the concept of value is limited to the decision about production. The distinction between real value and exchange-value is based on the fact that the equivalent given in trade is no equivalent. Price: the relationship [between] cost of production and competition. Only that which can be monopolised has price. Ricardo's definition of rent of land is incorrect because it presupposes that a fall in demand instantly reacts on rent and- at once puts out of cultivation a corresponding quantity of the worst cultivated land. This is incorrect. This definition leaves out competition, that of Adam Smith leaves out fertility. Rent is the relationship between productivity of the soil and competition. The value of landb is to be measured by the productive- ness of equal areas using equal amounts of labour.
+
+The separation of capital from labour. The separation of capital and profit. The division of profit into profit and interest Profit, the weight that capital puts in the scales when the costs of
+
+[^1]: a Engels writes "Mc Culloch" (see this volume, p. 424).— Ed. b Engels stipulates: provided private property is abolished (see this volume, pp. 429-30).—Ed.
+
+
+
+
+
+**[p. 376]**
+
+production are determined, remains inherent in capital, and the latter reverts to laboura. The separation of labour and wages. The significance of wages. The significance of labour in determining the production costs. The split between land and the human being. Human labourb divided into labour and capital.
+
+Written in the first half of 1844 Printed according to the m a n u -
+
+First published in: Marx/Engels, script Gesamtausgabe, Abt. l, Bd. 3, 1932 Published in English for the first
+
+time
+
+[^1]: a Engels discusses the role of profit after the abolition of private property (see this volume, p. 431).—Ed.
+
+[^2]: Engels has: "human activity" (see this volume, p. 432).—Ed.
+
+
+
