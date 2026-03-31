@@ -1,7 +1,0 @@
-# title: "RedCommons"
-
-## Marx/Engels Collected Works
-
-Welcome to the RedCommons archive of the Marx/Engels Collected Works (MECW).
-
-Navigate through the volumes using the sidebar. Footnotes are rendered in the right margin, and original pagination markings are retained in the left margin.
