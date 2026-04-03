@@ -6,7 +6,7 @@ Use the sidebar to navigate the texts. Download Markdown (.md) files of the text
 
 Page numbers refer to the *Collected Works of Marx and Engels* (MECW).
 
-*Note: Site still underconstruction, there are formatting and syntax errors in the text body, footnotes and general langauge; for example, Greek characters are in broken syntax. I am working on fixing this.
+*Note: Site still under construction, there are formatting and syntax errors in the text body, footnotes and general langauge; for example, Greek characters are in broken syntax. I am working on fixing this.
 
 RedCommons is completely free and open-source. Do whatever you want with the files and output. You are free to share and distribute anything including the program files themselves. 
 
