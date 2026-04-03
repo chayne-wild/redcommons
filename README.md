@@ -2,7 +2,7 @@
 
 ## Host for creating RedCommons 
 
-Use the sidebar to navigate the texts. Download Markdown (.md) files of the texts or use the search function to search keywords within vollumes. Keyword search uses boolean operators AND, OR, NOT.
+Use the sidebar to navigate the texts. Download Markdown (.md) files of the texts or use the search function to search keywords within volumes. Keyword search uses boolean operators AND, OR, NOT.
 
 Page numbers refer to the *Collected Works of Marx and Engels* (MECW).
 
@@ -240,3 +240,10 @@ Critique of the Gotha Program (based on Marx's manuscript Marginal Notes on the 
 ### Vol. 50 
 
 * Correspondence/Letters (1892-1895)
+
+
+
+
+
+
+
