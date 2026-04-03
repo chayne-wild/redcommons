@@ -4,13 +4,15 @@
 
 Use the sidebar to navigate the texts. Download Markdown (.md) files of the texts or use the search function to search keywords within vollumes. Keyword search uses boolean operators AND, OR, NOT.
 
-Page numbers refer to the *COllected Works of Marx and Engels* (MECW).
+Page numbers refer to the *Collected Works of Marx and Engels* (MECW).
 
-*Note: Site still underconstruction, there are formatting errors in the footnotes and langauge, for example, Greek figures are in broken syntax. We are working on fixing this.
+*Note: Site still underconstruction, there are formatting and syntax errors in the text body, footnotes and general langauge; for example, Greek characters are in broken syntax. I am working on fixing this.
 
 RedCommons is completely free and open-source. Do whatever you want with the files and output. You are free to share and distribute anything including the program files themselves. 
 
-# Vollumes Outline
+Dev Contact: [chayne@vt.edu](chayne@vt.edu)
+
+# Volume Table of Contents
 
 ## I. Various philosophical, political, historical and economic works
 
