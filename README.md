@@ -187,26 +187,54 @@ Critique of the Gotha Program (based on Marx's manuscript Marginal Notes on the 
 
 ## III. Correspondence/Letters
 
-### Vol. 38 (1844-1851)
+### Vol. 38 
 
-### Vol. 39 (1852-1855)
+* Correspondence/Letters (1844-1851)
 
-### Vol. 40 (1856-1859)
+### Vol. 39 
 
-### Vol. 41 (1860-1864)
+* Correspondence/Letters (1852-1855)
 
-### Vol. 42 (1864-1868)
+### Vol. 40 
 
-### Vol. 43 (1868-1870)
+* Correspondence/Letters (1856-1859)
 
-### Vol. 44 (1870-1873)
+### Vol. 41 
 
-### Vol. 45 (1874-1879)
+* Correspondence/Letters (1860-1864)
 
-### Vol. 46 (1880-1883)
+### Vol. 42 
 
-### Vol. 47 (1883-1886)
+* Correspondence/Letters (1864-1868)
 
-### Vol. 48 (1887-1890)
-Vol. 49 (1890-1892)
-Vol. 50 (1892-1895)
+### Vol. 43 
+
+* Correspondence/Letters (1868-1870)
+
+### Vol. 44 
+
+* Correspondence/Letters (1870-1873)
+
+### Vol. 45 
+
+* Correspondence/Letters (1874-1879)
+
+### Vol. 46 
+
+* Correspondence/Letters (1880-1883)
+
+### Vol. 47 
+
+* Correspondence/Letters (1883-1886)
+
+### Vol. 48 
+
+* Correspondence/Letters (1887-1890)
+
+### Vol. 49 
+
+* Correspondence/Letters (1890-1892)
+
+### Vol. 50 
+
+* Correspondence/Letters (1892-1895)
